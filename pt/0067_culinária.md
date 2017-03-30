@@ -22,7 +22,7 @@ Eu pico o espinafre.
 Minha mamãe pica as cebolas.
 
 ##
-Cebolas  me fazem chorar quando elas estão picadas.
+Cebolas me fazem chorar quando elas estão picadas.
 
 ##
 * License: [CC-BY-NC]

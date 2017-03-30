@@ -4,7 +4,7 @@
 Quando a mãe de Simbegwire morreu, ela ficou muito triste. O pai de Simbegwire fez o melhor que pode para cuidar de sua filha. Lentamente, eles aprenderam a sentirem-se felizes de novo, sem a mãe de Simbegwire. Cada manhã eles sentavam e conversavam sobre o dia que estava começando. Todas as noites eles faziam a janta juntos. Depois que eles lavavam a louça e o pai de Simbegwire a ajudava com a lição de casa.
 
 ##
-Um dia, o pai de Simbegwire voltou mais tarde do que de costume. "Onde está você, minha criança?" ele chamou. Simbegwire correu em direção a seu pai. Quando viu que ele segurava a mão de uma mulher, ela ficou parada.  "Quero que conheça alguém especial, minha criança. Esta é Anita," ele disse sorrindo.
+Um dia, o pai de Simbegwire voltou mais tarde do que de costume. "Onde está você, minha criança?" ele chamou. Simbegwire correu em direção a seu pai. Quando viu que ele segurava a mão de uma mulher, ela ficou parada. "Quero que conheça alguém especial, minha criança. Esta é Anita," ele disse sorrindo.
 
 ##
 "Oi, Simbegwire, seu pai me falou muito sobre você," disse Anita. Mas ela não sorriu ou segurou a mão da menina. O pai de Simbegwire estava feliz e empolgado. Ele falou sobre os três morarem juntos e o quão feliz a vida deles poderia ser. "Minha criança, espero que você aceite Anita como sua mãe, " ele disse.
@@ -28,13 +28,13 @@ Simbegwire ficou muito despontada. Ela decidiu fugir de casa. Pegou os pedaços 
 Quando entardeceu, ela subiu numa árvore bem alta perto de um riacho e fez uma cama para ela nos galhos. Quando ela foi dormir, cantou: "Maama, maama, você me deixou. Você foi embora e nunca voltou. Papai não me ama mais. Mãe, quando você volta? Você me deixou."
 
 ##
-Na manhã seguinte, Simbegwire cantou a mesma canção novamente. Quando as mulheres vieram lavar suas roupas no riacho, escutaram a triste canção, vindo da árvore alta. Elas pensaram que era só o vento e as folhas sussurrando, e continuaram seu trabalho. Mas uma mulher escutou cuidadosamente a canção. 
+Na manhã seguinte, Simbegwire cantou a mesma canção novamente. Quando as mulheres vieram lavar suas roupas no riacho, escutaram a triste canção, vindo da árvore alta. Elas pensaram que era só o vento e as folhas sussurrando, e continuaram seu trabalho. Mas uma mulher escutou cuidadosamente a canção.
 
 ##
 Esta mulher olhou para o alto da árvore. Quando ela avistou a menina e os pedaços do cobertor colorido, exclamou, "Simbegwire, criança de meu irmão!" As outras mulheres paparam de lavar e ajudaram Simbegwire a descer a árvore. Sua tia abraçou a pequena menina e tentou confortá-la.
 
 ##
-A tia de Simbegwire levou-a para sua própria casa. ela deu a Simbegwire comida quentinha, colocou-a na cama e a cobriu com o cobertor de sua mãe. Aquela noite, Simbegwire chorou antes de adormecer. Mas eram lágrimas de alívio. Ela sabia que sua tia cuidaria dela. 
+A tia de Simbegwire levou-a para sua própria casa. ela deu a Simbegwire comida quentinha, colocou-a na cama e a cobriu com o cobertor de sua mãe. Aquela noite, Simbegwire chorou antes de adormecer. Mas eram lágrimas de alívio. Ela sabia que sua tia cuidaria dela.
 
 ##
 Quando o pai de Simbegwire retornou, ele encontrou o quarto dela vazio. "O que aconteceu, Anita? ele perguntou com o coração apertado. A mulher explicou que Simbegwire havia fugido. "Queria que ela me respeitasse," ela disse. "Mas talvez eu tenha sido muito dura." O pai de Simbegwire saiu de casa e foi em direção ao riacho. Ele prosseguiu até a aldeia de sua irmã para saber se ela tinha visto Simbegwire.
