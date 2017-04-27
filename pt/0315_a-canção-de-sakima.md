@@ -52,7 +52,7 @@ Sakima terminou de cantar a canção e se virou para ir embora. Mas o homem rico
 Naquele mesmo momento, dois homens vieram carregando alguém numa maca. Eles tinham encontrado o filho do homem rico espancado e deixado no acostamento da estrada.
 
 ##
-O homem rico ficou tão feliz em ver seu filho novamente. Ele recompensou Sakima por consolá-lo. Levou seu filho e Sakima para o hospital para que SaKima recuperasse a sua visão.
+O homem rico ficou tão feliz em ver seu filho novamente. Ele recompensou Sakima por consolá-lo. Levou seu filho e Sakima para o hospital para que Sakima recuperasse a sua visão.
 
 ##
 * License: [CC-BY]
