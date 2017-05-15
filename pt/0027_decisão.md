@@ -37,7 +37,7 @@ As pessoas se juntaram embaixo de uma grande árvore e ouviram.
 Meu pai disse, "Nós precisamos trabalhar juntos para resolver nossos problemas."
 
 ##
-Juma, uma menina de oito anos, sentada num galho de uma árvore, gritou, "Posso ajudar com a limpeza."
+Juma, um menino de oito anos, sentado num galho de uma árvore, gritou, "Posso ajudar com a limpeza."
 
 ##
 Uma mulher disse, "As mulheres podem se juntar a mim para plantar."
