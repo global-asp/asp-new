@@ -1,7 +1,7 @@
 # Zama é demais!
 
 ##
-Meu irmãozinho, dorme até muito tarde. Eu acordo cedo porque sou demais!
+Meu irmãozinho dorme até muito tarde. Eu acordo cedo porque sou demais!
 
 ##
 Eu sou daquelas que deixa o sol entrar.
