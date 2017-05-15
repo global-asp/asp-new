@@ -40,7 +40,7 @@ De qualquer modo, Sakima não desistiu. E a sua irmãzinha o apoiou. Ela disse, 
 No dia seguinte, Sakima pediu para que sua irmãzinha lhe guiasse até a casa do homem rico.
 
 ##
-Ele parou peto de uma janelona e começou a cantar sua canção favorita. Lentamente, a cebeça do homem rico começou a aparecer na janelona.
+Ele parou perto de uma janelona e começou a cantar sua canção favorita. Lentamente, a cabeça do homem rico começou a aparecer na janelona.
 
 ##
 Os operários pararam o que eles estavam fazendo. Eles ouviram a bela canção de Sakima. Mas um homem disse, "Ninguém foi capaz de consolar o chefe. Este menino cego acha que o consolará?"
@@ -52,7 +52,7 @@ Sakima terminou de cantar a canção e se virou para ir embora. Mas o homem rico
 Naquele mesmo momento, dois homens vieram carregando alguém numa maca. Eles tinham encontrado o filho do homem rico espancado e deixado no acostamento da estrada.
 
 ##
-O homem rico ficou tão feliz em ver seu filho novamente. Ele recompensou Sakima por consolá-lo. Levou seu filho e Sakima para o hospital para que SaKima recuperasse a sua visão.
+O homem rico ficou tão feliz em ver seu filho novamente. Ele recompensou Sakima por consolá-lo. Levou seu filho e Sakima para o hospital para que Sakima recuperasse a sua visão.
 
 ##
 * License: [CC-BY]
