@@ -13,10 +13,10 @@ Cedinho, na manhã seguinte, foram para a aldeia de carro com seu pai. Passaram 
 Depois de um tempo, as crianças estavam tão cansadas que pegaram no sono.
 
 ##
-O pai acordou Odongo e Apiyo quando chegaram na aldeia. Eles encontraram Nyar-Kanyada - sua avó, descansando numa esteira debaixo de uma árvore. Nyar-Kanyada em Luo, significa 'filha do povo de Kanyada'. Ela era uma mulher forte e bonita.
+O pai acordou Odongo e Apiyo quando chegaram na aldeia. Eles encontraram Nyar-Kanyada – sua avó, descansando numa esteira debaixo de uma árvore. Nyar-Kanyada em Luo, significa 'filha do povo de Kanyada'. Ela era uma mulher forte e bonita.
 
 ##
-Nyar-Kanyada recebeu-lhes dentro de sua casa e dançou em volta do quarto, cantando de alegria. Seus netos estavam animados para lhe dar os presentes que compraram para ela na cidade. "Primeiro abra o meu presente, " disse Odongo. "Não, meu presente primeiro!" disse Apiyo.
+Nyar-Kanyada recebeu-lhes dentro de sua casa e dançou em volta do quarto, cantando de alegria. Seus netos estavam animados para lhe dar os presentes que compraram para ela na cidade. "Primeiro abra o meu presente," disse Odongo. "Não, meu presente primeiro!" disse Apiyo.
 
 ##
 Após ela abrir os presentes, Nyar-Kanyada tradicionalmente abençoou seus netos.
