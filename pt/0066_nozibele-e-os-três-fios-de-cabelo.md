@@ -34,7 +34,7 @@ Todos os dias ela tinha que cozinhar, varrer e lavar para o cachorro. Assim, um 
 No instante em que o cachorro saiu, Nozibele arrancou três fios de cabelo da sua cabeça. Colocou um fio embaixo da cama, um atrás da porta e o outro no curral. Então ela correu para casa o mais rápido que conseguiu.
 
 ##
-Quando o cachorro retornou, procurou Nozibele. "Nozibele, onde você está?" disse zangado. "Estou aqui embaixo da cama, " gritou o primeiro fio de cabelo. "Estou aqui atrás da porta," disse o segundo fio. "Estou aqui, no curral," disse o terceiro fio de cabelo.
+Quando o cachorro retornou, procurou Nozibele. "Nozibele, onde você está?" disse zangado. "Estou aqui embaixo da cama," gritou o primeiro fio de cabelo. "Estou aqui atrás da porta," disse o segundo fio. "Estou aqui, no curral," disse o terceiro fio de cabelo.
 
 ##
 Logo o cachorro notou que Nozibele tinha lhe enganado. Portanto, ele correu e correu todo o caminho até chegar à aldeia. Mas os irmãos de Nozibele estavam o esperando com três grandes pedaços de pau. O cachorro voltou correndo e nunca mais foi visto desde então.
