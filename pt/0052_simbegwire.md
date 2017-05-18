@@ -7,7 +7,7 @@ Quando a mãe de Simbegwire morreu, ela ficou muito triste. O pai de Simbegwire 
 Um dia, o pai de Simbegwire voltou mais tarde do que de costume. "Onde está você, minha criança?" ele chamou. Simbegwire correu em direção a seu pai. Quando viu que ele segurava a mão de uma mulher, ela ficou parada. "Quero que conheça alguém especial, minha criança. Esta é Anita," ele disse sorrindo.
 
 ##
-"Oi, Simbegwire, seu pai me falou muito sobre você," disse Anita. Mas ela não sorriu ou segurou a mão da menina. O pai de Simbegwire estava feliz e empolgado. Ele falou sobre os três morarem juntos e o quão feliz a vida deles poderia ser. "Minha criança, espero que você aceite Anita como sua mãe, " ele disse.
+"Oi, Simbegwire, seu pai me falou muito sobre você," disse Anita. Mas ela não sorriu ou segurou a mão da menina. O pai de Simbegwire estava feliz e empolgado. Ele falou sobre os três morarem juntos e o quão feliz a vida deles poderia ser. "Minha criança, espero que você aceite Anita como sua mãe," ele disse.
 
 ##
 A vida de Simbegwire mudou. Ela não tinha mais tempo de sentar com seu pai pelas manhãs. Anita dava tantas tarefas para ela fazer que ela ficava muito cansada para fazer as lições de casa à noite. Ela ia direto para cama depois da janta. A única coisa que a confortava era o cobertor colorido que a sua mãe havia lhe dado. O pai de Simbegwire não parecia notar que sua filha estava infeliz.
