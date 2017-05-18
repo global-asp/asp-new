@@ -19,7 +19,9 @@ Varro o chão.
 Lavo a louça.
 
 ##
-Por que eu trabalho tão duro... ....quando meu irmão está ocupado brincando?
+Por que eu trabalho tão duro...
+
+...quando meu irmão está ocupado brincando?
 
 ##
 * License: [CC-BY-NC]
