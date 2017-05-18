@@ -25,7 +25,7 @@ Todas as bagagens já estavam acomodadas e os passageiros estava todos sentados.
 Alguns passageiros compravam bebidas, outros compravam lanches e começavam a mastigar. Aqueles que como eu não tinham dinheiro, só assistiam.
 
 ##
-Essas atividade eram interrompidas pelo barulho do ônibus - um sinal que estávamos prontos para partir. Os cobradores gritavam para os vendedores ambulantes sairem.
+Essas atividades eram interrompidas pelo barulho do ônibus – um sinal que estávamos prontos para partir. Os cobradores gritavam para os vendedores ambulantes sairem.
 
 ##
 Os vendedores ambulantes se empurravam para descer do ônibus. Alguns davam o troco para os passageiros. Outros tentavam vender mais coisas de última hora.

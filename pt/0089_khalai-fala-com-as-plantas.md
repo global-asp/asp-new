@@ -7,7 +7,7 @@ Esta é Khalai. Ela tem sete anos de idade. Seu nome significa 'pessoa boa' em s
 Khalai acorda-se e fala com a laranjeira. "Por favor, laranjeira, cresça grande e nos dê muitas laranjas maduras."
 
 ##
-Khalai vai a pé para a escola. no caminho ela fala com a grama. "Por favor, grama, cresça mais verde e não seque."
+Khalai vai a pé para a escola. No caminho ela fala com a grama. "Por favor, grama, cresça mais verde e não seque."
 
 ##
 Khalai passa pelas flores selvagens. "Por favor, flores, continuem florescendo para que possa colocá-las em meu cabelo."

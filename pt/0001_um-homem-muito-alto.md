@@ -31,7 +31,7 @@ Ele comprou uma bicicleta bem grande.
 Ele sentou numa cadeira muito alta. Ele comeu com um garfo bem longo.
 
 ##
-Ele deixou sua casa e foi morar em uma grande floresta.
+Ele deixou sua casa e foi morar em uma grande floresta. Ele viveu por muitos anos.
 
 ##
 * License: [CC-BY]
