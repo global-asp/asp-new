@@ -1,10 +1,10 @@
 # Um homem muito alto
 
 ##
-O sapato dele era muito pequeno.
+A enxada dele era muito pequena.
 
 ##
-A porta era muito baixa.
+A porta dele era muito baixa.
 
 ##
 A cama dele era muito curta.
