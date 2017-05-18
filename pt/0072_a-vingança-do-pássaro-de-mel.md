@@ -10,7 +10,7 @@ Meia hora depois, chegaram até uma enorme figueira selvagem. Ngede saltou enlou
 Então Gingile colocou sua lança de caça embaixo da árvore, recolheu alguns galhos secos e fez uma fogueirinha. Quando o fogo estava queimando bem, colocou uma vara seca e comprida no centro da fogueira. Esta madeira era especialmente conhecida por fazer muita fumaça enquanto queimava. Ele começou a subir, segurando a ponta fria da vara com seus dentes.
 
 ##
-Logo ele pode ouvir o zumbido das abelhas ocupadas. Elas estavam entrando e saindo de uma brecha no tronco da árvore - sua colméia. Quando Gengile alcançou a colméia, ele empurrou a ponta enfumaçada da vara na brecha do tronco. As abelhas saíram apressadas, zangadas e malvadas. Elas voaram para longe porque não gostaram da fumaça - mas não antes de darem ferroadas dolorosas em Gengile.
+Logo ele pode ouvir o zumbido das abelhas ocupadas. Elas estavam entrando e saindo de uma brecha no tronco da árvore – sua colméia. Quando Gengile alcançou a colméia, ele empurrou a ponta enfumaçada da vara na brecha do tronco. As abelhas saíram apressadas, zangadas e malvadas. Elas voaram para longe porque não gostaram da fumaça – mas não antes de darem ferroadas dolorosas em Gengile.
 
 ##
 Quando as abelhas estavam fora da colméia, Gingile empurou suas mãos para dentro do ninho. Pegou punhados pesados do favo, pingando de rico mel e cheio de larvas brancas e gordas. Ele colocou o favo de mel cuidadosamente na bolsa que levava no seu ombro e começou a descer da árvore.
