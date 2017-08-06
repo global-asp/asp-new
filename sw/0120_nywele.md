@@ -21,7 +21,6 @@ Zanele amechana nywele zake.
 ##
 Thabo amenyoa nywele zake.
 
-
 ##
 Themba umenyoa kipara.
 

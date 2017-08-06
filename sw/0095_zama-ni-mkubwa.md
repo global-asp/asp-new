@@ -16,7 +16,7 @@ Naoga mwenyewe, sihitaji msaada.
 Naweza kuvumilia maji ya baridi na harufu nzuri ya sabuni ya bluu.
 
 ##
-Mama ananikumbusha, "Usihashau kupiga mswaki."namjibu, "Kamwe, labda sio mim!"
+Mama ananikumbusha, "Usihashau kupiga mswaki." Namjibu, "Kamwe, labda sio mim!"
 
 ##
 Baada ya kuoga , nawasalimia babu na shangazi, na kuwatakia siku njema.

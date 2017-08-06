@@ -4,7 +4,7 @@
 Kuruka kamba
 
 ##
-kukimbia
+Kukimbia
 
 ##
 Kupiga mpira
