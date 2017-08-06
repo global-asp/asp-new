@@ -1,7 +1,7 @@
 # Andiswa Nyota wa Mpira wa Miguu
 
 ##
-Andiswa alikuwa anawaangalia wavula wakicheza mpira wa miguu.Alitamani kujiunga nao. Akamwomba kocha kama anaweza kufanya nao mazoezi.
+Andiswa alikuwa anawaangalia wavula wakicheza mpira wa miguu. Alitamani kujiunga nao. Akamwomba kocha kama anaweza kufanya nao mazoezi.
 
 ##
 Kocha akaweka mikono mfukoni. "Kwenye shule, ni wavula pekee wanao ruhusiwa kucheza mpira wa miguu," alisema.
@@ -10,10 +10,10 @@ Kocha akaweka mikono mfukoni. "Kwenye shule, ni wavula pekee wanao ruhusiwa kuch
 Wavulana walimwambia aende kucheza mpira wa wavu. Walisema mpira wa wavu ni kwa ajili ya wasichana na mpira wa miguu ni kwa wavulana. Andiswa alijisikia vibaya.
 
 ##
-Siku iliyofuata, shule yao ilikuwa na mashindano makubwa ya mpira wa miguu.Kocha alikuwa na wasiwasi kwakuwa mchezaji wake wakutegemewa alikuwa mgonjwa na asingecheza.
+Siku iliyofuata, shule yao ilikuwa na mashindano makubwa ya mpira wa miguu. Kocha alikuwa na wasiwasi kwakuwa mchezaji wake wakutegemewa alikuwa mgonjwa na asingecheza.
 
 ##
-Andiswa alimwendea kocha na Kumuomba acheze.kocha hakujua afanye nini. Akaamua kumruhusu Andiswe ajiunge na timu.
+Andiswa alimwendea kocha na Kumuomba acheze. Kocha hakujua afanye nini. Akaamua kumruhusu Andiswe ajiunge na timu.
 
 ##
 Mchezo ulikuwa mgumu na hakuna timu yeyote iliyokuwa imeshinda hadi muda wa mapumziko.

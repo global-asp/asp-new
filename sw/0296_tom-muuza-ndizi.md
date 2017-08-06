@@ -16,7 +16,7 @@ Hakuna anaye nunua ndizi za Tom. Wanapenda kununua ndizi kutoka kwa akina mama.
 "kwenye jamii yetu, ni wanawake pekee ndio wanaouza matunda," watu wanasema. "Ni mwanaume wa aina gani huyu?" watu wanahoji.
 
 ##
-Lakini Tom hakati tamaa. Anaita, "nunua ndizi zangu! Nunueni ndizi zangu tamu!"
+Lakini Tom hakati tamaa. Anaita, "Nunua ndizi zangu! Nunueni ndizi zangu tamu!"
 
 ##
 Mwanamke mmoja anachukua kichana cha ndizi kutoka kwenye tenga. Anaziangalia ndizi kwa umakini.
