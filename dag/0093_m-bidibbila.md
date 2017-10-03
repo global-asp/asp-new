@@ -1,7 +1,7 @@
 # M bidibbila
 
 ##
-M bidibbila maa yuli John Francis
+M bidibbila maa yuli John Francis.
 
 ##
 O yuri kɔdu ʒɛhi mini apil pam.
