@@ -6,6 +6,23 @@ This repository consists of newly commissioned translations of [African Storyboo
 
 One-off translations into ASP-supported languages (e.g., English, French, Swahili, Lugbarati, etc.) are usually added manually to the African Storybook website and then included in the ASP Source repository once they have been published. However, African Storybook does not currently have any means of batch uploading new translations in text format. This repository is therefore a holding area for new translations that have been commissioned but are waiting to be manually submitted to the African Storybook site.
 
+## Included languages
+
+The repo currently includes the following languages, arranged by [ISO 639-1](http://en.wikipedia.org/wiki/ISO_639-1) or [ISO 639-3](http://en.wikipedia.org/wiki/ISO_639-3) code.
+
+ISO Code | Name
+-------- | ----
+am | Amharic
+dag | Dagbani
+fr | French
+koo | Lukhonzo
+om | Oromo
+rw | Kinyarwanda
+so | Somali
+sw | Kiswahili
+zne | Zande
+zu | Zulu
+
 # License
 
 Creative Commons (CC BY / CC BY-NC -- see individual story metadata for license details)
