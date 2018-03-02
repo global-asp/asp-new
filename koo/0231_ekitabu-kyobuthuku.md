@@ -1,28 +1,28 @@
 # Ekitabu ky'obuthuku
 
 ##
-Ekyanda
+Obuthuku nikyanda.
 
 ##
-Omwisi nimunene
+Omwisi nimunene.
 
 ##
-Muli n'erihunga
+Obuthuku nihunga.
 
 ##
-Muli n'ebithu
+Obuthuku nibithu.
 
 ##
-Embeho
+Obuthuku numbeho.
 
 ##
-Embulha yamawa
+Embulha yawire.
 
 ##
-Muli akarabyo
+Obuthuku bukapura.
 
 ##
-Ngalhangira ekima
+Ngalhangira ekima.
 
 ##
 * License: [CC-BY-NC]
