@@ -17,6 +17,7 @@ dag | Dagbani
 fr | French
 koo | Lukhonzo
 om | Oromo
+pcm | Nigerian pidgin
 rw | Kinyarwanda
 so | Somali
 sw | Kiswahili
