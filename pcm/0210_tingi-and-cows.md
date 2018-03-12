@@ -1,4 +1,4 @@
-# Tingi and cows.
+# Tingi and cows
 
 ##
 Tingi de stay with grandma.
