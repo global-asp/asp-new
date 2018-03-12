@@ -4,7 +4,7 @@
 Na Khalai be dis. She be seven years. D meaning of her name na ‘good one’ for dem dialect, wen be Lubukusu.
 
 ##
-Khalai wake up begin yan with orange tree. “Abeg orange tree, dey grow oo make we for dey  lick plenty orange wen ripe.”
+Khalai wake up begin yan with orange tree. “Abeg orange tree, dey grow oo make we for dey lick plenty orange wen ripe.”
 
 ##
 Khalai dey tricke go school. For road na so she go dey yan with grass. “Abeg oo grass, grow make u dey fresh and make u no die oo.”
@@ -29,4 +29,4 @@ Wen Khalai come back for school, she go look d orange tree come ask am, Your ora
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

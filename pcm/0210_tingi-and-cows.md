@@ -38,4 +38,4 @@ Dem creep go house small small.
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

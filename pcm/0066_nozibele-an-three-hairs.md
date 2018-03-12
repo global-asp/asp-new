@@ -19,7 +19,7 @@ Na so Nozibele come go back by emsef. E see the chain na em e tuke go house. Na 
 E come see light dey shine for one house far far. Na so e rush go there go knock d door.
 
 ##
-Shoo, na dog open door o. D dog say, “wetin you want?” “ Nozibele come say e  miss road, i dey look for were to sleep,” ”come inside, or I go bite u oo! D dog tell am. Na so Nozibele enter o.
+Shoo, na dog open door o. D dog say, “wetin you want?” “ Nozibele come say e miss road, i dey look for were to sleep,” ”come inside, or I go bite u oo! D dog tell am. Na so Nozibele enter o.
 
 ##
 Dog come say, “oya cook for me” e come ansa am say e never cook for dog before o. Dog come say, “cook, or I go bite you oo!” na so Nozibele come cook food for dog.
@@ -44,4 +44,4 @@ Na now d Dog come get the gist say Nozibele don do am wayo. Na so Dog come para 
 * Text: Tessa Welch
 * Illustration: Wiehan de Jager
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

@@ -35,4 +35,4 @@ E always de tell em friends to read book well well so their tomorrow go better.
 * Text: Cissy Namugerwa, Nanyonga Allen
 * Illustration: Genevieve Terblanche, Melany Pietersen, Catherine Groenewald, Marion Drew, Mlungisi Dlamini, Rob Owen, Natalie Propa, Franz Phooko, Wiehan de Jager
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

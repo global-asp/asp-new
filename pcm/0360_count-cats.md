@@ -38,4 +38,4 @@ Watin be dis? Na cat pikin hook for tree! I go help am comot.
 * Text: Nina Orange
 * Illustration: Jesse Breytenbach
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

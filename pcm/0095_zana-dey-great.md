@@ -41,4 +41,4 @@ I dey do plenty things everyday. But na play I like pass.
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

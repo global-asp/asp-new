@@ -13,7 +13,7 @@ D house were e dey sleep no good at all.
 D people for the village dey talk about am well well.
 
 ##
-Na so one day e come get money 
+Na so one day e come get money.
 
 ##
 E come buy cement, sand, iron sheets, bricks and nails.
@@ -35,4 +35,4 @@ Degive am plenty gift.
 * Text: Remedial class (Kabubbu community Library)
 * Illustration: Rob Owen, Marleen Visser, Wiehan de Jager, Alex Zablon, Jano Strydom, Kathy Arbuckle, Magriet Brink
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

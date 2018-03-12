@@ -44,4 +44,4 @@ Sound Aaa i no go ever forget you.
 * Text: Cissy Namugerwa, Ritah Katetemera
 * Illustration: Wiehan de Jager, Benjamin Mitchley, Cathy Feek, Sue Kramer, Kathy Arbuckle, Mlungisi Dlamini, Sean Whitehead, Jesse Breytenbach, Franz Phooko, Jesse Pietersen, Catherine Groenewald, Jano Strydom, Karlien de Villiers, Vusi Malindi
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

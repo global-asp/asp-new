@@ -29,4 +29,4 @@ All of us like flower.
 * Text: Rashida, Joy, Jovia, Zulu, Phionah
 * Illustration: Jonathan Field, Rob Owen, Wiehan de Jager
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm

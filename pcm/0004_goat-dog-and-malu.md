@@ -29,4 +29,4 @@ Cow no send if moto dey come or not. Na yanga e dey take waka for road as e no o
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser
 * Translation: Anthonia Ujene
-* Language: Nigerian pigine English
+* Language: pcm
