@@ -10,7 +10,7 @@ Miyarondya ebyalya lyolholyolho kandi omwabukuthu. Neryo....
 Mpwaaa!!! Engonya yawirira!
 
 ##
-Yebere yabiriwirira, muyamera, neryo yamiwutha.  Neryo enzalha yamabalha neryo yamayanza
+Yebere yabiriwirira, muyamera, neryo yamiwutha. Neryo enzalha yamabalha neryo yamayanza
 
 ##
 Kuhika ayakwira enzalha, kandi.

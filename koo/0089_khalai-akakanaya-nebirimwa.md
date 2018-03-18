@@ -1,7 +1,7 @@
 # Khalai akakanaya n'ebirimwa
 
 ##
-Ono ni Khalai. Awithe myaka musanju.  Erina liwe omwalhulimi lwiwe, Lubukusu limanyisaya "omubuya".
+Ono ni Khalai. Awithe myaka musanju. Erina liwe omwalhulimi lwiwe, Lubukusu limanyisaya "omubuya".
 
 ##
 Khalai akabuka omwathulho neryo inyakania nomuthi we mintsungwe athi, "chisi muthi wemitsungwe, kulha lhubalhuba wangatuhererya ebighuma by'emitsungwe".
@@ -22,7 +22,7 @@ Khalai akabwira olhughuthu lw'okwisomero athi, "chisi lhughuthu ubye namani wang
 Neryo Khalai akabya akalwa okw'isomero akayalebeya omuthi wemitsungwe. "emitsungwe yaghu siyiriyanera kwehi?"
 
 ##
-"Emitsungwe yikine makuke" uhmm... "ngendisyakulebya omunkya muthi w'emitsungwe". Khalai akabugha athia.  "Obundi lero ukendisyaba n'omutsungwe owerire."
+"Emitsungwe yikine makuke" uhmm... "ngendisyakulebya omunkya muthi w'emitsungwe". Khalai akabugha athia. "Obundi lero ukendisyaba n'omutsungwe owerire."
 
 ##
 * License: [CC-BY]

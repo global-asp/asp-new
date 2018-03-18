@@ -7,7 +7,7 @@ I be Ana Maria Namata
 My papa na Mr Agaba Ali.
 
 ##
-My mama na Ananga Asha. She care and like me well well. 
+My mama na Ananga Asha. She care and like me well well.
 
 ##
 Papa want apples and ants.
@@ -25,7 +25,7 @@ Male na long man
 na for basket dem pack apple.
 
 ##
-Namata, Cathy, Sara, Ali and Aba join sidon. 
+Namata, Cathy, Sara, Ali and Aba join sidon.
 
 ##
 Mama teach me words wen sound Aa

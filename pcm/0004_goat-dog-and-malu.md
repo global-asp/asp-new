@@ -19,7 +19,7 @@ D driver vex no be small so ta e no give Dog change sef
 Till today, na so Dog da run follow car to check if na d driver wen day owe am change dey inside
 
 ##
-Goat on em own level no dey try near moto. E dey dread make den no catch am come collect the moni e owe. 
+Goat on em own level no dey try near moto. E dey dread make den no catch am come collect the moni e owe.
 
 ##
 Cow no send if moto dey come or not. Na yanga e dey take waka for road as e no owe anybody.

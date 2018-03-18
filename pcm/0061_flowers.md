@@ -1,13 +1,13 @@
 # Flowers.
 
 ##
-Story, story, one girl dey wen live for Busolwe village for Namagunga. 
+Story, story, one girl dey wen live for Busolwe village for Namagunga.
 
 ##
 The girl like flowers so te one day wen she go draw water for Nakwiga river.
 
 ##
-Wen she dey return, she see some flower wen she like well well. she say Shoo! 
+Wen she dey return, she see some flower wen she like well well. she say Shoo!
 
 ##
 As she reach house, she tell her mama to plant flower for their house because...

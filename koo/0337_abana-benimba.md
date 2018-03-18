@@ -10,7 +10,7 @@ Isibalilwa kutse eritsumangana. Abana ibakawatikaya ababuthi babo eka kandi n'om
 Aliryo isibalikiriribawa erighenda hakuhi nomuliro.
 
 ##
-Ibakakolha emibiri yabo yomwakiro.  Kusangwa babya bakolire omw'animba eyikanyegha.
+Ibakakolha emibiri yabo yomwakiro. Kusangwa babya bakolire omw'animba eyikanyegha.
 
 ##
 Neryo omughuma okwabalhwana abya inyanzire erighenda okwamwisi.
@@ -25,7 +25,7 @@ Obuthuku butebwabya buli, neryo mw'anyegha okwamwisi.
 Ikwa abana abenimba mubahunerera bakalhangira mughalha wabubo akany'enga neribumbutuka.
 
 ##
-Abasighala mubatwa obwenge.  Enimba eyabumbutukira ahisi mubatwamu erikolha ekinyonyi.
+Abasighala mubatwa obwenge. Enimba eyabumbutukira ahisi mubatwamu erikolha ekinyonyi.
 
 ##
 Mubathwalha ekinyonyi kighalhakyabubo okw'akitwa.

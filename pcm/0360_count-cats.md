@@ -22,7 +22,7 @@ Na how many cats? 5 Five cats.
 Na how many cats? 6 Six cats.
 
 ##
-Na how many cats? 7 Seven cats. 
+Na how many cats? 7 Seven cats.
 
 ##
 Na how many cats? 8 Eight cats.
