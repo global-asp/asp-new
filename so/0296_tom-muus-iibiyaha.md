@@ -1,7 +1,7 @@
-# Moos iibiyihii Tom
+# Tom muus iibiyaha
 
 ##
-Tom waxa uu sidaa masaf uu moos bisil ku jiro.
+Tom waxa uu sidaa masaf uu moos bisil ah.
 
 ##
 Tom waxa uu aadaa suuqa si uu moos u soo iibiyo
@@ -16,25 +16,25 @@ Laakiin cidna gadanmayso mooska Tom. Waxa ay doorbidaan in ay khudradda ka soo g
 Dadku waxa ay yiraahdaan, "jaalliyaddayada, haweenka uun baa iibsha khudradda." "Qofkani waa nin noocee ah?" ayay dadku is weyddiiyaan.
 
 ##
-Laakiin Tom ma samro. Waxa uu yiraahdaa, "Gata mooskayga! Gata mooskayga bisil ee macaan!"
+Laakiin Tom ma niyad jabo. Waxa uu yiraahdaa, "Gata mooskayga! Gata mooskayga bisil ee macaan!"
 
 ##
-Haweeney ayaa masafka kor uga qaadday xirmo moos ah. Si taxaddar leh ayay u eegaysaa mooska.
+Haweeney ayaa masafta kor uga qaadday xirmo moos ah. Si taxaddar leh ayay u eegaysaa mooska.
 
 ##
-Haweentu mooskii waa ay gadatay.
+Haweeneydi mooskii waa ay gadatay.
 
 ##
 Dad badan ayaa yimid kabadhkii. Waa ay gateen mooskii Tom oo waa ay cuneen.
 
 ##
-Markiiba, masafkii wuu martay. Tom waxa uu tirsaday lacagtii uu shaqeystay.
+Markiiba, masaftii wuu martay. Tom waxa uu tirsaday lacagtii uu shaqeystay.
 
 ##
-Dabadeed Tom waxa uu gatay saabbuun, sonkor iyo rooti. Alaabtii waxa uu ku qaatay masafkiisii.
+Dabadeed Tom waxa uu gatay saabbuun, sonkor iyo rooti. Alaabtii waxa uu ku qaatay masaftiisii.
 
 ##
-Tom madaxa ayuu saartay masafkii oo waxa uu aaday gurigiisii.
+Tom madaxa ayuu saartay masaftii oo waxa uu aaday gurigiisii.
 
 ##
 * License: [CC-BY]

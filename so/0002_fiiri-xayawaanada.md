@@ -1,28 +1,28 @@
-# Fiiri xayawaanadka
+# Fiiri xayawaanada.
 
 ##
-Fiiri xayawaanadka.
+Fiiri xayawaanada.
 
 ##
-Sicii ayaa leh, "Moo."
+Saca ayaa leh, "Moo."
 
 ##
-Ridii ayaa leh "Meh, meh."
+Rida ayaa leh "Meh, meh."
 
 ##
-Faraskii ayaa leh, "Neeq."
+Faraska ayaa leh, "Neeq."
 
 ##
-Doofaarka ayaa leh, "Garun."
+Doofaarka ayaa leh, "Khukhu."
 
 ##
 Digaaga ayaa leh, "Kalook."
 
 ##
-Eygu wuxuu leeyahay, "Waah."
+Eyga ayaa leh, "Waah."
 
 ##
-Beeraaluhu wuxuu leeyahay, "Shhh!"
+Beeraalaha ayaa leh, "Shhh!"
 
 ##
 * License: [CC-BY-NC]

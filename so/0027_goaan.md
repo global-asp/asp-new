@@ -1,52 +1,52 @@
-# Go'aanka
+# Go'aan
 
 ##
-Tuuladayda waxay lahayd dhibaatooyin badan. Waxaan samaynay xariiqin dheer si aan biyo ooga soo dhaansano tuubada.
+Tuuladayda waxay lahayd dhibaatooyin badan. Waxaan samaynay saf dheer si aan biyo ooga soo dhaansano tuubada.
 
 ##
-Waxaan sugeynay raashin aay ku deeqeen dadkale.
+Waxaan sugnay raashin ay nagu deeqeen dad kale.
 
 ##
-Guriganaga waan xirnay amin hore sababtoo ah tuugada.
+waxaan xirnay guryahanaga amin hore sababta oo ah tuugo.
 
 ##
-Carruur badan ayaa dugsiga katagtay.
+Caruur badan ayaa dugsiga ka baxday.
 
 ##
-Gabdhaha yaryar waxay ka shaqeeyen sishaqaala ah tuulooyin kale.
+Gabdhaha yaryar waxay ka shaqeeyeen sidii adeegto tuulooyinka kale.
 
 ##
-Wiilasha yaryar waxay ku wareegsadeen agagaarka tuulada halka qaar kalane ay ka shaqeeynayeen beeraha dadku.
+Wiilasha yaryar waxay ku wareegeysteen agagaarka tuulada halka kuwa kale na ay ka shaqeeyeen beeraha dadka.
 
 ##
-Markii dabayshu qarxatay, waraaqo qashin ah ayaa ka lalmaday geedaha iyo ooda.
+Markii dabayshu kacdo, waraaqaha qashinka ayaa ka lalmado geedaha iyo dayrarka.
 
 ##
-Dadka waxaa jarjaray muraayad jaban oo loo tuuray sitaxadar la'aan ah.
+Dadka waxaa jarjaray dhalooyin jajaban kuwaa oo loo tuuray si taxadar la'aan ah.
 
 ##
-Kadib hal maalin tuubada ayaa biyo la'aan lagadhigay weelashanadane waay madhnaayeen.
+Kadib hal maalin, tuubada ayaa biyo la'aan laga dhigay weelashanadana faaruq bey ahaayeen.
 
 ##
-Aabahay ayaa guri guri ugu tagay asagoo ka codsanaayo dadka iney ka qeybgalaan shirka tuulada.
+Aabahay ayaa guri guri ugu tagay asagoo waydiinayo dadka in ay ka qayb galaan shirka tuulada.
 
 ##
-Dadka waxay ku soo urureen geed weyn hoostiisa wayne dhagaysteen.
+Dadka waxay iskugu soo urureen geed wayna hoostiisa wayna dhagaysteen.
 
 ##
-Aabahay ayaa istaagay waxuuna yidhi, "Waxaan ubaahannahay inaan wada shaqayno si aan uxallino dhibaatooyinkeena."
+Aabahay ayaa istaagay waxuuna yidhi, "Waxaan u baahanahay in aan wada shaqayno si aan u xallino dhibaatooyinkeena."
 
 ##
-Juma oo sideed jir ah, oo kufadhiyo geedka rakadiisa ayaa ku qeyliyay, "Waan kaa caawin karaa nadiifinta."
+Juma oo sideed jir ah, oo kufadhiyo jirridda geedka ayaa ku qeyliyay, "Waan kaa caawin karaa nadiifinta."
 
 ##
-Haweeney aya tiri, "Dumarka way igu soo biiri karaan si ay u abuurtaan cuntada."
+Haweeney ayaa tiri, "Dumarka way igu soo biiri karaan si ay u beeraan cuntada."
 
 ##
-Ninkale ayaa istaagay oo yidhi, "Raggu waxaay qodi doonan ceel."
+Ninkale ayaa istaagay oo na yidhi, "Raggu waxa ay qodi doonaan ceel."
 
 ##
-Dhammaanteen waxaan kuqeylinay, "Waa inaan badelnaa nolosheena." Maalintaas laga bilaabo waxaan ka wada shaqeynay inaan xallino dhibaatooyinkeena.
+Dhammaanteen waxaan ku dhawaaqnay, "Waan ku qasbanahay in aan badelno nolosheena." Maalintaas laga bilaabo waxaan ka wada shaqeynay inaan xallino dhibaatooyinkeena.
 
 ##
 * License: [CC-BY]

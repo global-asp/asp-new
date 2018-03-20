@@ -1,10 +1,10 @@
-# Karinta
+# Karin
 
 ##
 Waxaan diiraa baradhada.
 
 ##
-Waxaan jaraa kaabajka.
+Waxaan jarjaraa kaabajka.
 
 ##
 Waxaan jeexaa kaarootada.
@@ -19,7 +19,7 @@ Waxaan jaraa lowska.
 Waxaan jarjaraa isbinaajka.
 
 ##
-Hooyaday waxaay jarjartaa basasha.
+Hooyaday waxay jarjartaa basasha.
 
 ##
 Basasha way iiga oohisaa markii lajarjaro.

@@ -1,4 +1,4 @@
-# Darreen
+# Dareen
 
 ##
 Qalbigayga waxuu dareemayaa waxyaabo badan.
@@ -7,13 +7,13 @@ Qalbigayga waxuu dareemayaa waxyaabo badan.
 Waxaan dareemaa farxad marka ay ayayday noosheegayso sheekooyin fiidkii.
 
 ##
-Waxaan dareemaa nacasnimo marka aan laciyaaraayo saxiibkeey.
+Waxaan dareemaa nacasnimo marka aan laciyaaraayo saxiibkeeyga.
 
 ##
-Waxaan dareemaa wax xun markuu aabahay dhaho lacag mahaysto.
+Waxaan dareemaa xumaan markuu aabahay dhaho lacag ma haysto.
 
 ##
-Waxaan dareemaa in laijecelyahay markay hooyadeey isiiso hab.
+Waxaan dareemaa in la i jecelyahay marka ay hooyadeey isiiso hab.
 
 ##
 * License: [CC-BY-NC]
