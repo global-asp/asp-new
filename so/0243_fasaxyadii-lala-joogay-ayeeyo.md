@@ -1,22 +1,22 @@
 # Fasaxyadii lala joogay ayeeyo
 
 ##
-Odongo iyo Apiyo waxay kula noolaayeen magaalada aabahood. Waxay sugayeen fasaxyada. Ma aha oo kaliya sababtoo ah iskuulka waa la xidhay, laakiin waxay u baxeen inay soo booqdaan ayeeyadood. Waxay ku nooleed tuulo kalluumeysi oo u dhaw laag ballaaran.
+Odongo iyo Apiyo waxay kula noolaayeen magaalada aabahood. Waxay sugayeen fasaxyada. Ma aha sababti la iskuulka la xidhay, laakiin waxay u doonayeen in ay soo booqdaan ayeeyadood. Waxay ku nooleed tuulo kalluumeysi oo u dhaw laag ballaaran.
 
 ##
-Odongo iyo Apiyo way faraxsanayeen sababtoo ah waxa ay ahayd wakhtigii ay soo booqanlahayeen ayeeyadood. Habeen ka hor, way xidhxidheen waxayna u diyaargaroobeen safarka dheer ee tuulada. Way seexan kari waayeen, waxayne kashekeysten habeenkii oo dhan fasaxa.
+Odongo iyo Apiyo way faraxsanayeen sababtoo ah waxa ay ahayd wakhtigii ay soo booqan lahayeen ayeeyadood. Habeen ka hor, ayay xidhxidheen waxayna u diyaar garoobeen safarka dheer ee tuuladeeda. Way seexan kari waayeen, waxayne ka shekeysten habeenkii oo dhan fasaxa.
 
 ##
-Aroortii hore ee subixii, waxay ka tageen tuulada wxayne raaceen baabuurki aabbahood. Waxay sii mareen buuriha, xayawaanka duurjoogta ah iyo beeraha shaah. Waxay tiriyeen baabuurta iyagoo ku heesayo heeso.
+Aroortii hore ee subixii xigay, waxay ka tageen tuulada wxayne raaceen baabuurki aabbahood. Waxay sii mareen buuro, xayawaanka duurjoogta ah iyo beeraha caleen shaaha. Waxay tiriyeen baabuurta iyagoo ku heesayo heeso.
 
 ##
-Muddo ka dib, carruurtii way daaleen wayne seexdeen.
+Muddo ka dib, carruurtii way daaleen hudo ayayna la dhaceen.
 
 ##
-Aabahood ayaa toosiyey Odongo iyo Apiyo markii ay yimaadeen tuulada. Waxay heleen Nyar-Kanyada, ayeeyadood, iyadoo ku fadhida darin geed hoostiisa. Nyar-Kanyada ee Luo, waxaa loola jeedaa 'gabadhii reer Kanyada'. Waxay ahayd haweeneey xoog leh oo qurux badan.
+Aabahood ayaa toosiyey Odongo iyo Apiyo markii ay yimaadeen tuulada. Waxay heleen Nyar-Kanyada, ayeeyadood, iyadoo ku fadhida darin geed hoostiisa. Nyar-Kanyada Luo ahaan, waxaa loola jeedaa 'gabadhii reer Kanyada'. Waxay ahayd haweeneey xoog leh oo qurux badan.
 
 ##
-Nyar-Kanyada waxay ku soo dhaweeysay guriga waxayna ku cayaareen qolka iyagoo u heesayo si farxad leh. Carruurta ay ayeeyada u tahay waxay ku faraxsanaayeen inay siiyaan hadiyadihii ay ka keeneen magaalada. "Marka hore fur hadiyaddayda," ayuu yiri Odongo. "Maya, hadiyaddayda marka hore!" ayeey tiri Apiyo.
+Nyar-Kanyada waxay ku soo dhaweeysay guriga waxayna ku niikiyen qolka iyagoo ku wareegayo oo u heysayo si farxad leh. Carruurta ay ayeeyada u tahay waxay ku faraxsanaayeen inay siiyaan hadiyadihii ay ka keeneen magaalada. "Marka hore fur hadiyaddayda," ayuu yiri Odongo. "Maya, hadiyaddayda marka hore!" ayeey tiri Apiyo.
 
 ##
 Ka dib markii ay furtay hadiyadaha, Nyar-Kanyada ayaa ugu ducaysay caruurteedii si hab dhaqameed ah.

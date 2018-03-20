@@ -2,7 +2,7 @@
 
 ##
 Gabar yar ayaa aragtay muuqaal
- Aan la garaneyn oo masaafo ka muuqdo.
+ aan la garaneyn oo masaafo ka muuqdo.
 
 ##
 Markii uu muuqaalki soo dhowaaday, waxa ay aragtay in ay tahay haweeney xaamilo culus ah.
@@ -11,10 +11,10 @@ Markii uu muuqaalki soo dhowaaday, waxa ay aragtay in ay tahay haweeney xaamilo 
 xishood laakiin geesi nimo, gabadhii waxa ay ku sii dhowaatay haweeneydii. "Waa in ay nala joogtaa," ayay gabadha dadkeedii go'aansadeen. "Iyada iyo ilmaheedaba waa aannu nabad gelinaynaa."
 
 ##
-Ilmaha ayaa soo dhakhso ba wadada soo galay. "Riix!" "Bustayaal la kaalaya!" "Biyo!" "Riiiiixxxx!!!"
+Ilmaha ayaa soo dhakhso ba wadada soo galay. "Riix!" "Bustayaal la kaalaya!" "Biyo!" "Riiiixxxxxx!!!"
 
 ##
-Laakiin markii ay ilmihii arkeen, qof walba gadaal ayuu argagax ula booday. "Dameer?!"
+Laakiin markii ay ilmihii arkeen, qof walba gadaal ayuu argagax ugu booday. "Dameer?!"
 
 ##
 Qof waliba muran ayuu bilaabay. "Waxa aynnu ballan qaadnay in aan ilmaha iyo hooyadaba nabad gelyo siinno, waana in aan sidaas yeelnaa," qaar baa sidaa yiri. "Laakiin waxa ay noo horseedi doonaan nasiib darro!" qaar kale ayaa sidaa iyana yiri.
@@ -35,7 +35,7 @@ Jahawareer iyo carro ayaa iskugu darsantay dameerkii. Sidan ma yeeli karo sidaan
 Dameerkii ceeb ayuu dareemay. Waxa aanu bilaabay in uu aad u ordo oo uu u cararo meel fog.
 
 ##
-Markii uu joogsaday, habeen bay ahayd, Dameerkiina waa uu lumay. "Aaa’i Aaa?" codkiisii ayaa dib ugu soo laabtay. Wuu cidlooday oo keligii ayaa uu noqday. Intuu isku duubay bur adag oo hoosta gashaday, ayuu hurdo aan farxadi ku jirin oo cidla' dareen ah la dhacay.
+Markii uu joogsaday, habeen bay ahayd, Dameerkiina waa uu lumay. "Haa’i Aaa?" codkiisii ayaa dib ugu soo laabtay. Wuu cidlooday oo keligii ayaa uu noqday. Intuu isku duubay bur adag oo hoosta gashaday, ayuu hurdo aan farxadi ku jirin oo cidla' dareen ah la dhacay.
 
 ##
 Dameerkii waxa uu toosay isaga oo uu oday weyn dul taagan yahay. Odaga indhihiisii ayuu kor u eegay isaga oo ay xoogaa rajo ahi soo gashay.
@@ -56,7 +56,7 @@ Markii ay kor u baxeen oo ay darruuro ku gedaaman yihiin ayay gam'een. Dameerkii
 Ugu dambeyntii dameerkii waa uu yiqiinsaday wixii uu sameyn lahaa.
 
 ##
-Dameerkii waxa uu helay hooyadii, oo cidlootay una barooranaysa ilmaheedii lumay. Muddo dheer ka dib waa ay isku dhaygageen. Dabadeedna si kal iyo laab ah ayay isku habsiiyeen oo isugu dhegeen.
+Dameerkii waxa uu helay hooyadii, oo cidlootay una barooranaysa ilmaheedii lumay. Muddo dheer ayay is eegteen. Dabadeedna si kal iyo laab ah ayay isku habsiiyeen oo isugu dhegeen.
 
 ##
 Ilmihi dameerka ahaa iyo hooyadii waa ay wada koreen wax ayna heleen qaab badannoocyo badan oo ay ku wada noolaan karaan midba midka dhinaciisa. tartiib tartiib, dhinacyadooda oo dhan, qoysas ayaa bilaabay in ay soo dagaan.

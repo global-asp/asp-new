@@ -28,7 +28,7 @@ Miyaadan u soconin inaad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
 Rahim ayaa billaabay inuu dareemo xanuun.
 
 ##
-" Caloosha ayaa aad ixanuunayso," Rahim ayaa ku gunuunacay.
+"Caloosha ayaa aad ixanuunayso," Rahim ayaa ku gunuunacay.
 
 ##
 Hooyo ayaa garanaysay in ay taas dhacayso. mirtii ayaa ciqaabeyso Rahim!
