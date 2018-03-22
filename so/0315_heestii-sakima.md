@@ -4,13 +4,13 @@
 Sakima wuxuu la noolaa waalidkiis iyo walaashiisa afar jir ka ah. Waxay ku noolaan jireen dhulka ninka hodanka ah. Gurigoodi cawska kasamaysnaa waxuu kuyaalay mesha geedaha kuegyihiin.
 
 ##
-Marku Sakima ahaa saddex jir, ayuu xanuunsaday oo aragkiisii ​​waayay. Sakima wuxuu ahaa wiil yar oo xirfad leh.
+Marku Sakima ahaa saddex jir, ayuu xanuunsaday oo aragkiisii waayay. Sakima wuxuu ahaa wiil yar oo xirfad leh.
 
 ##
 Sakima waxuu sameeysay waxyaabo badan oo wiilasha da'doodu tahay lix sano jir aysan sameynin. Tusaale ahaan, wuxuu la fadhiisan karay dadka waa yeelka ah ee tuulada waxuuna kala xaajon jiray arrimaha muhiimka ah.
 
 ##
-Waalidiinta Sakima waxay ka shaqeyn jireen guriga ninka hodanka ah. Waxay katagi jireen guriga aroortii, waxayna soo laaban jireen fiidkii. Sakima waxaa looga tagi jiray walaashiisa ​​yar.
+Waalidiinta Sakima waxay ka shaqeyn jireen guriga ninka hodanka ah. Waxay katagi jireen guriga aroortii, waxayna soo laaban jireen fiidkii. Sakima waxaa looga tagi jiray walaashiisa yar.
 
 ##
 Sakima wuxuu jeclaa in uu ku heeso heesaha. Maalin maalmaha ka mid ah, waxay hooyadiis weydiisay, "Halkee baad ka barataa heesahan, Sakima?"
@@ -31,13 +31,13 @@ Fiidnimo markii waalidkiis guriga ku soo laabteen, aad ayay u aamusnaayeen. Saki
 Sakima waxa uu waydiiyay, Maxaa qaldan hooyo, aabe? "Sakima ayaa waydiiyay. Sakima wuxuu ogaaday in wiilka ninkii hodanka ah uu maqan yahay, ninku wuxuu ahaa mid aad u murugeysan oo kali giis ah.
 
 ##
-"Waan u heesi karaa isaga. Isaga in uu ku farxa laga yaabaa ee," Sakima ayaa u sheegay waalidiintiisa. Laakiin waalidiintiisii ​​way iska dhago tireen. "Waa nin aad u taajir ah, waxaad tahay wiil yar oo indho la. Miyaad u maleyneysaa in ay heestada caawin doonto?"
+"Waan u heesi karaa isaga. Isaga in uu ku farxa laga yaabaa ee," Sakima ayaa u sheegay waalidiintiisa. Laakiin waalidiintiisii way iska dhago tireen. "Waa nin aad u taajir ah, waxaad tahay wiil yar oo indho la. Miyaad u maleyneysaa in ay heestada caawin doonto?"
 
 ##
-Si kastaba ha ahaatee, Sakima uma joojin. Walaashiisii ​​yarayd ayaa ku taageertay isaga. Waxay tiri, "Sakima heestisa way idajisaa markaan gaajoonayo. Way dajin doonan ninka taajirka ah."
+Si kastaba ha ahaatee, Sakima uma joojin. Walaashiisii yarayd ayaa ku taageertay isaga. Waxay tiri, "Sakima heestisa way idajisaa markaan gaajoonayo. Way dajin doonan ninka taajirka ah."
 
 ##
-Maalintii xigtay, Sakima wuxuu walaashiisii ​​yarayd weydiistay in ay u wado ninkii taajirka ahaa gurigiisa.
+Maalintii xigtay, Sakima wuxuu walaashiisii yarayd weydiistay in ay u wado ninkii taajirka ahaa gurigiisa.
 
 ##
 Waxa uu hoos istaagay daaqad weyn wuxuuna bilaabay in uu ku heeso heestiisi uu jeclaa. Si tartiib ah, madaxa ninki hodanka aha ayaa bilaabay in uu kasoo muuqdo daaqadi weynayd.

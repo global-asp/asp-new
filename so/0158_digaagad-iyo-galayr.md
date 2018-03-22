@@ -7,7 +7,7 @@ mar waayihi hore kamid ah, Digaagad iyo Galayr ayaa saaxiibbo ahaa. Waxa ay naba
 Hal maalin, ayaa waxaa dhulka ka jirtay abaar. Galayrkii waxa ay u socotay meel aad u fog si ay cunto u hesho. Waa ay soo noqotay iyada oo aad u daallan. "Waa in ay jirtaa si sahlan oo loo safro!" Ayay tidhi Galayrkii.
 
 ##
-Habeen ay si fiican u seexatay ka dib, Digaagaddii ayaa caqli fiican heshay. Waxa ay bilowday uruurinta baalasha ka daatay shimbiraha saaxiibbadeed ah oo dhan. "Aynu ku tolno dusha baalasha kuwa naga ," ayay tidhi. "Malaha taas baa sahli in la safro."
+Habeen ay si fiican u seexatay ka dib, Digaagaddii ayaa caqli fiican heshay. Waxa ay bilowday uruurinta baalasha ka daatay shimbiraha saaxiibbadeed ah oo dhan. "Aynu ku tolno dusha baalasha kuwa naga," ayay tidhi. "Malaha taas baa sahli in la safro."
 
 ##
 Galayrkii ayaa ahayd mida keliya tuulada ee heysata irbad, marka iyada ayaa markii koowaad baalashii isku toshay. Waxa ay sameysatay laba joog baalal ah oo aad u qurxoon kor ayeyna u duushay digaaggada korkeeda. Digaagaddii waxa ay soo amaahatay irbaddii laakiin dhakhso ba wey ku daashay tolliinkii. Waxa ay irbaddii uga tagtay armaajada korkeeda waxa ayna u kacday jikada si ay cunto ugu diyaariso ilmaheeda.

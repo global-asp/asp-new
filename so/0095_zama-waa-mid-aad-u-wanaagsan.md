@@ -1,31 +1,31 @@
-# Zama waa wenyahay!
+# Zama waa mid aad u wanaagsan!
 
 ##
-Walaalkeyga yar wuxuu seexdaa waqti dambe. Anigu waxaan soo toosaa xilli hore, maxaa yeelay waan weynahay!
+Walaalkeyga yar wuxuu seexdaa waqti dambe. Anigu waxaan soo toosaa xilli hore, maxaa yeelay waa mid aad u wanaagsan!
 
 ##
 Anigu waxaan ahay kan qorraxda soo bixiyo.
 
 ##
-"Waxaad tahay xiddigta subaxdayda," ayuu yidhi Ma.
+"Waxaad tahay xiddigta subaxdayda," ayuu yidhi Mama.
 
 ##
 Anigu waan maydhaa, ma u baahni wax caawin ah.
 
 ##
-Waxaan la qabsan karaa biyo qabow iyo saabuun shiirayso oo buluug ah.
+Waxaan u dul qaadan karaa biyo qabow iyo saabuun shiirayso oo buluug ah.
 
 ##
-Ma aya i xasuusiyo, "Ha iloobin ilkaha." Waxaan ku jawaabaa, "Marnaba, aniga ma ihi!"
+Mama aya i xasuusiyo, "Ha iloobin ilkaha." Waxaan ku jawaabaa, "Marnaba, aniga ma ihi!"
 
 ##
 Ka dib markii aan maydho, waxaan salaamaa awoowe iyo eedo, oo waxaan u rajeeyaa ayaga maalin wanaagsan.
 
 ##
-Dabadeedna waan labistaa, "hadda waan weynahay Ma," ayaan dhahaa.
+Dabadeedna waan labistaa, "hadda waan weynahay Mama," ayaan dhahaa.
 
 ##
-Waxaan xidhi karaa badhanyadayda iyo suunka kabahayga.
+Waxaan xidhi karaaguluusyadeeyda iyo suunka kabahayga.
 
 ##
 waxaan na hubiyaa in walaalkeyga yar uu yaqaano dhamaan wararka iskuulka.

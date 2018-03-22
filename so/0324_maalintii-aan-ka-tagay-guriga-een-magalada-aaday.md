@@ -1,16 +1,16 @@
-# Maalintii an katagay guriga een magalada aaday
+# Maalintii aan ka tagay guriga een magalada aaday
 
 ##
-Baska yar ee tuuladayda waxay ku mashquulsanaayen dadka, wayne buux dhaafsanayeen. Dhulka xitaa waxyaabo badan ayaa yaalay oo u baahnaa in la raro. Rakaabiyaha ( gaari rare) ayaa ku qaylinayay magacyada basaskoda mesha ay u socdaan.
+boosteejada yar ee tuuladeyna waxa ay aheyd mid mashquulsan dadka awgeed iyo bases la rar dhaafiyay. Dhulka xitaa waxaa yaalay wax badan oo in la raro aheyd. Kirishbooyada ayaa ku dhawaaqayay magacyada meelaha ay basaskooda u socdaan.
 
 ##
-"Magaalada, Magaalada, Waxuu u socdaa Galbeedka!" Waxaan maqlay cod ka rakaabiyihii oo ku qaylinayo. Kaasi ayaa ahaa baskii aan u baahnaa in aan raaco.
+"Magaalada, Magaalada, Waxuu u socdaa Galbeedka!" Ayaan maqalay kirishbooy ku dhawaaqaya. Kaasi ayaa ahaa baskii aan u baahnaa in aan raaco.
 
 ##
-Baska magaalada ku dhawaad wuu buuxay, hase ahaatee dad badan ayaa wali isku soo riixaayay iney raacan. Qaar ka mid ah boorsooyinkooda ayey hoos galieyeen baska. Qaar kalena waxay dhigteen mesha kabaha lasaaranayay.
+Baska magaalada ku dhawaad wuu buuxay, laakiin dad badan ayaa wali isku soo riixaayay in ay in koraan. Qaar baa xamuuulkoodi baska hoostiisa gashaday. Qaar kalena waxay dhigteen mesha kabaha lasaaranayay.
 
 ##
-Rakaabka cusub ayaa ruxaayay tikidhadooda markay raadinaayeen meel ay ka fariistaan ​​baska dadku ku badan yihiin. Dumarka haysta caruurta yaryar waxay ku raaxaysan hayeen safar ka dheer.
+Rakaabka cusub ayaa ruxaayay tikidhadooda markay raadinaayeen meel ay ka fariistaan baska dadku ku badan yihiin. Dumarka haysta caruurta yaryar waxay ku raaxaysan hayeen safar ka dheer.
 
 ##
 Waxaan is ku nabay xaga xigto daaqada. Qofka fadhiyay agtayda waxuu si adag u hayay bac cagaaran. Wuxuu soo xidhay kabo duug ah, jaakad dildilaacsan, wuxuuna u muuqday mid aad u xanaaqsan.
@@ -31,13 +31,13 @@ Hawlahani waxaa kala gooyay baska hoonkisa, calaamad muujinayso in aan diyaar u 
 Wareejiya yaashii ayaa isku riixay si ay uga dagaan baska. Qaarkood waxay sii yeen baaqigoda rakaabkii. Kuwa kale waxay sameeyeen daqiiqadkii ugu dambeeyey ee iibinta alaabooyin badan.
 
 ##
-Saas tuu u dhaqaaqay baska, waxaan daaqada ka fiiriyay bananka. Waxaan la yaabay haddii aan mar kale ku laaban doono tuuladayda.
+Sidaas tuu baska uga dhaqaaqay boosteejada baska, waxaan daaqada ka eegay bananka. Waxaan si la yaableh uga fikiray in aan abid kuso laaban doonto tuulada.
 
 ##
-Intii safarka sii gudo galnay, gudaha baska ayaa aad u kululaaday. Waxaan is ku qabsaday indhaha anoo rajeynayo inaan seexdo.
+Intii safarka sii gudo galnay, gudaha baska ayaa aad u kululaaday. Waxaan is ku xidhay indhaha anigoo rajeynayo in aan seexdo.
 
 ##
-Laakiin maskaxdayda ayaa dib ugu laabatay guriga. Hooyaday miyay amaan ahan doontaa? Miyuu bakaylahaygu ii gali doona wax lacag ah? Walaalkay mawuu xusuusan doonaa in uu geedahaygi waraabiyo?
+Laakiin maskaxdayda ayaa dib ugu laabatay guriga. Hooyaday miyay amaan ahan doontaa? Miyuu bakaylahaygu ii gali doona wax lacag ah? Walaalkay miyuu xusuusan doonaa in uu geedahaygi waraabiyo?
 
 ##
 Markan jidka sii soconay waxaan sii xifdiyay magaca meesha uu adeerkey kaga noolaa magaalada weyn. Waxaan wali si hoose u sii shekeysan hayay markii aan hurday.

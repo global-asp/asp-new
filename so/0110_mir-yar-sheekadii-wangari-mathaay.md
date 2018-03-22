@@ -1,4 +1,4 @@
-# Mir yar: Sheekadii Wangari Maathaay
+# Mir yar: Sheekadii Wangari Mathaay
 
 ##
 Tuulo ku taal dhinaca hooseyo buurta Kenya ee Bariga Afrika, gabar yar ayaa hooyadeed kala shaqeyn jirtay beeraha. Magaceedu waxa uu ahaa Wangari.
@@ -7,7 +7,7 @@ Tuulo ku taal dhinaca hooseyo buurta Kenya ee Bariga Afrika, gabar yar ayaa hooy
 Wangari bannaanka ayay aad u jeclaan jirtay. Baangad ayay ku qodqodday carrada beerta qoyskooda. Waxayna dhulka qandacsan ku aastay miro aad u yaryar.
 
 ##
-watigay ugu jeclayd maalinta waxa uu ahaa marka ay cadceeddu dhacdo. Marka ay mugdi saaid u noqoto ooy arkay dhirta, Wangari waxay ogaataa in ay tahay xilligii ay guriga aadi lahayd. Waxayna qaadaa waddoyin dhuudhuuban oo dhex maro beeraha, ayadoo gudbeyso webi yaal markay baxdo.
+watigay ugu jeclayd maalinta waxa uu ahaa marka ay cadceeddu dhacdo. Marka ay mugdi saaid u noqoto aragtida dhirta, Wangari waxay ogaataa in ay tahay xilligii ay guriga aadi lahayd. Waxayna qaadaa waddoyin dhuudhuuban oo dhex maro beeraha, ayadoo gudbeyso webi yaal markay baxdo.
 
 ##
 Wangari waxa ay ahayd ilma farriid ah wayna sugi la eyd in ay iskuul aado. Laakiin hooyadeed iyo aabbaheed waxa ay doonayeen in ay joogto oo ay guriga ka caawiso. Markii ay toddoba jirsatay, walaalkeed ka weyn ayaa ku qalqaaliyey waalidkeed in ay u oggolaadaan in ay iskuul aaddo.
