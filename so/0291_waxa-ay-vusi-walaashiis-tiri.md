@@ -31,10 +31,10 @@ Jidka dhexdiisa, Vusi wuxuu la kulmay beeraley iyo sac. "Maxay tahay xidhmo maca
 Sicii wuu ka xumaaday iney noqotay mid hunguri wayn. Beeraalihii wuxuu ku raacay in uu Vusi saca hadiyad uqaato. Sidaa daraaddeed Vusi wuuqaatay.
 
 ##
-Laakiin sicii wuxuu dib ugu cararay ninkii beeralayda ahaa. Vusi ne wuu lumay. Wuxuu imaaday xili danbe aroska walashiis. Martida ayaa cuntada cunaysay.
+Laakiin sicii wuxuu dib ugu cararay ninkii beeralayda ahaa. Vusi ne wuu lumay. Wuxuu imaaday xili danbe arooski walashiis. Martida ayaa cuntada cunaysay.
 
 ##
-"Maxaan sameeyaa?" Vusi ayaa ku qaylinayay. "Saca dib u cararay wuxuu aha hadiyadii badalkii xidhmadii fuundayasha isiiyeen. Fuundayaasha aya isiiyay xidhmada sababtoo ah waxay jabiyeen ushii ay midho guratada isiiyeen. Midho guratada ayaa isiiyay usha sababtoo ah waxay jabiyeen ukuntii keegga. Keegga wuxuu ahaa midkii arooska walaashay. Hada ukun maleh, Keeg maleh, hadiyad maleh."
+"Maxaan sameeyaa?" Vusi ayaa ku qaylinayay. "Saca dib u cararay wuxuu aha hadiyadii badalkii xidhmadii fuundayasha isiiyeen. Fuundayaasha aya isiiyay xidhmada sababtoo ah waxay jabiyeen ushii ay midho guratada isiiyeen.Midho guratada ayaa isiiyay usha sababtoo ah waxay jabiyeen ukuntii keegga. Keegga wuxuu ahaa midkii arooska walaashay. Hada ukun maleh, Keeg maleh, hadiyad maleh."
 
 ##
 Vusi walaashiis way fikirtay in muddo ah, ka dibna waxay tiri, "Walaalkay Vusi, runtii ma daneeyo hadiyado, xitaa dan kamalihi keegga! waan wada joognaa halkan dhamanteen, waan faraxsanahay. Hada dhar quruxsan xidho oo aan u dabaaldegno maalintan!" Taasine waa sida uu Vusi sameeyey.

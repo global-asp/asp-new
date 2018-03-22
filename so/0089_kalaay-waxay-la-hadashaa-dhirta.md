@@ -22,7 +22,7 @@ Kalaay waxay la hadashaa bowdka ku wareegsan dugsigeeda. "Fadlan u kora si awood
 Markay Kalaay guriga ku laabato, waxay booqataa geedka liinta." Miyay bislaadeen midhahaada wali? Ayey weydisaa khalaay.
 
 ##
-"Liinta weli waa cagaar," ayay ku neef tuurtay Kalaay "Waxaan ku arki doonaa berrito geedka liintaw," ayay tidhi Khalaay. " Malaha markaas baad ii yeelan doonto midho liin ah oo bislaaday!"
+"Liinta weli waa cagaar," ayay ku neef tuurtay Kalaay "Waxaan ku arki doonaa berrito geedka liintaw," ayay tidhi Khalaay. "Malaha markaas baad ii yeelan doonto midho liin ah oo bislaaday!"
 
 ##
 * License: [CC-BY]

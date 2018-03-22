@@ -22,7 +22,7 @@ qofkeen u aqrin karaa?
 Aabahey iyo awoowgay waa ay mashquulsanyihiin.
 
 ##
-qofkeen u aqrin karaa? Aniga ayaa is ku aqrin karaayo.
+qofkeen u aqrin karaa?Aniga ayaa is ku aqrin karaayo.
 
 ##
 * License: [CC-BY]

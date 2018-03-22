@@ -40,7 +40,7 @@ Odongo iyo Apiyo waxay ka caawiyeen ayeeydood shaqada guriga. Waxay u soo dhaami
 Nyar-Kanyada waxay bartay caruurtay ayeeyada u tahay sida loo kariyo soor jilicsan si ay ugu cunaan fuudka. Waxay tustay sida loo sameeyo bariiska qumbaha si ay ugu cunaan kalluunka duban.
 
 ##
-Hal Subax, Odongo waxuu kaxeeyay sicihii ayeeydiis si ay u soo daaqaan. Waxay ku ordeen beertii deriska. Beeraalihii wuxuu u xanaaqay Odongo. Waxa uu ku hanjabay in uu ilaaliyo lo'da cunaayo dalagiisa. Maalintii ka dib, wiilku wuxuu ku dadaalay in lo'du aanay mar kale dhibaato ka soo gaarin.
+Hal Subax, Odongo waxuu kaxeeyay sicihii ayeeydiis si ay u soo daaqaan. Waxay ku ordeen beertii deriska. Beeraalihii wuxuu u xanaaqay Odongo. Waxa uu ku hanjabay in uu ilaaliyo lo'da cunaayo dalagiisa. Maalintii ka dib, wiilku wuxuu ku dadaalay in lo'du aanay mar kale dhibaato ka soo gaarin. 
 
 ##
 Maalin kale, carruurtu waxay suuqa u raaceen Nyar-Kanyada. Waxay laheyd sandaqad ay ku iibiso khudaarta, sonkorta iyo saabuunta. Apiyo waxay jeclayd in ay u sheegto macaamiisha qiimaha alaabta. Odongo wuxuu u soo hagaajiyaa alaabta ay macaamiisha iibsadeen.

@@ -28,7 +28,7 @@ Mar dambe gallapkii, ayey galarykii soo noqotay. Waxa ay weydiisay irbadii si ay
 Markii ay Dafadii timid maalinkii dambe, waxa uu arkay Digaagaddii oo carrada faageysa, laakiin aan irbaddii hayn. Sidaa darteed galayrkii si degdeg ah ayay hoos ugu soo duushay oo daftay mid ka mid ah carruurtii. Waa uu la duulay. Abid markaa ka dib, mar walba u galayrka soo muuqato, waxa ay aragtaa Digaagadda oo carrada faagaysa oo irbaddii ka raadinaysa.
 
 ##
-Marka uu hooska baalasha galayrka dhulka ka soo muuqdo, Digaagaddu waxa ay u digtaa boojaalaheeda. " ka tagga dhulkan banaan ee qalallan." Iyaguna waxa ay ugu jawaabaan: "Doqommo ma nihin. Waan carari doonnaa."
+Marka uu hooska baalasha galayrka dhulka ka soo muuqdo, Digaagaddu waxa ay u digtaa boojaalaheeda. "Ka tagga dhulkan banaan ee qalallan." Iyaguna waxa ay ugu jawaabaan: "Doqommo ma nihin. Waan carari doonnaa."
 
 ##
 * License: [CC-BY]

@@ -35,7 +35,7 @@ Jahawareer iyo carro ayaa iskugu darsantay dameerkii. Sidan ma yeeli karo sidaan
 Dameerkii ceeb ayuu dareemay. Waxa aanu bilaabay in uu aad u ordo oo uu u cararo meel fog.
 
 ##
-Waqtigii uu joojiyay orodkii, habeen bay ahayd, Dameerkiina waa uu lumay. "Haa’i Aaa?" ayuu mugdigi uga dhex gunuunacay. “Haa’i Aaa?” Ayuu mugdiga ka daba dhahay. Waaxuu ahaa mid cidloobay. Intuu isku duuduubay sidii kubad adag, ayuu la dhacay hurdo dheer oo dhiban.
+Waqtigii uu joojiyay orodkii, habeen bay ahayd, Dameerkiina waa uu lumay. "Haa'i Aaa?" ayuu mugdigi uga dhex gunuunacay. "Haa'i Aaa?" Ayuu mugdiga ka daba dhahay. Waaxuu ahaa mid cidloobay. Intuu isku duuduubay sidii kubad adag, ayuu la dhacay hurdo dheer oo dhiban.
 
 ##
 Dameerkii waxa uu toosay isaga oo oday la yaab leh hoos usoo eeegayo. Indhihi odayga ayuu eegay waxuu na billaabay inyar oo rajo ah in uu dareemo.

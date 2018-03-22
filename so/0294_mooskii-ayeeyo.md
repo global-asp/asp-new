@@ -22,7 +22,7 @@ Codkii ayeeyo ayaa i cabsigaliyay markii ay ii dhawaaqday, "Maxaad samaynaysaa? 
 Maalintii xigtay markii ayeeyo ay soo booqatay hooyo, waxaan u orday gurigeeda si aan u eego mooska mar kale. Waxaa jiray kuwo farabadan oo aad u bislaaday. Waxaan soo qaatay hal xabo waxaana ku qariyay dharkayga. Kadib markii aan dib u daday, waxaan guriga gadaashiisa, si degdeg ahne waan u cunay. Waxay ahayd mooskii ugu macaanaa ee aan abid dhadhamiyey.
 
 ##
-Maalintii xigtey, markii ay ayeeyo beerta qudaar kasoo guraysay, waxaan u dhuuntay oo aan eegay mooska. Ku dhowaad dhammaantood way bislaadeen. Anigu ma awoodi karin in aan qaado afar xidhmood/gacan. Markaan albaabka xagiisa usoo tagtaagsan hayay, waxaan maqlay ayeeyo qufacayso. Waxaa ii suurto gashay in aan ku qariyo mooska dharkayga hoostiisa waana garab maray.
+Maalintii xigtey, markii ay ayeeyo beerta qudaar kasoo guraysay, waxaan u dhuuntay oo aan eegay mooska. Ku dhowaad dhammaantood way bislaadeen. Anigu ma awoodi karin in aan qaado afar xidhmood/gacan.Markaan albaabka xagiisa usoo tagtaagsan hayay, waxaan maqlay ayeeyo qufacayso. Waxaa ii suurto gashay in aan ku qariyo mooska dharkayga hoostiisa waana garab maray.
 
 ##
 Maalintii xigtay waxaay ahaayd maalintii suuqa. Ayeeyo ayaa hore u toostay. Marwalba waxay qaadi jirtay moos bislaaday iyo xajmi caanaha si ay ugu iibiso suuqa. Anigu ma aanan degdegin inaan booqdo maalintaas. Laakin ma aanan ka ahaan karin muddo dheer.
