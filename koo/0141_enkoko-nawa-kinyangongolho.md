@@ -39,6 +39,6 @@ Neryo irilhwiririra naho, Wankoko, na Wakinyangongolho bwabiribya buyighu.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Amos Mubunga Kambere
 * Language: koo
