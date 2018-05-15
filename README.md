@@ -16,6 +16,7 @@ am | Amharic
 dag | Dagbani
 fr | French
 koo | Lukhonzo
+luo | Dholuo
 om | Oromo
 pcm | Nigerian pidgin
 rw | Kinyarwanda
