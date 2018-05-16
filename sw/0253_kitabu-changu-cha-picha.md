@@ -1,4 +1,4 @@
-# kitabu changu cha picha
+# Kitabu changu cha picha
 
 ##
 Msichana
