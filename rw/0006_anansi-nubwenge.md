@@ -1,22 +1,22 @@
-# Anansi n'Umbwenge
+# Anansi n'Ubwenge
 
 ##
-Igihe kinini cyashize abantu ntibari bazi ikintu nakimwe. Ntibari bazi uko batera imyaka, uko bakora imyenda, nuko bakora ibikoresho by'ibyuma. Imana Nyame hejuru mukirere yari ifite ubwende bwose mw'isi yose. Yabubitse neza mu inkono y'ibumba.
+Kera kera hashize abantu ntibari bazi ikintu nakimwe. Ntibari bazi uko bahinga ibihingwa, cyangwa uko badoda umwenda, cyangwa uko bakora imikoresho by'icyuma. Imana Nyame mu ijuru yari ifite ubwenge bwose mu isi. Yabubikaga mu ingono y'ibumba.
 
 ##
-Umunsi umwe, Nyame yahisemo guha Anansi inkono y'ubwenge. Buri igihe Anansi yarebaga mu inkono y'ibumba, yamenyaga ikintu gishya. Byari ibishimishije cyane!
+Umunsi umwe, Nyame yanzuye ko iha Anansi ingono y'ubwenge. Buri gihe Anansi yarebaga mu inkono y'ibumba, yamenyaga ikintu gishya. Byari bishimishije!
 
 ##
-Igisambo Anansi yaratekereje, "nzagumisha inkono hejuru y'ibiti byose birebire. Hanyuma nzayigumana ngenyine!" Yakoze akagozi karekare, ikazengurutsa iruhande ry'inkono y'ibumba, izirika ku inda ye. Yatangiye kurira igiti. Ariko byari bigoye kurira igiti n'inkono yikubita ku amavi buri gihe.
+Igisambo Anansi yaratekereje, "Nzahisha inkono mubushorishori bw'igiti kirekire. Izaba ari iyange gusa!" Yafumbye akagozi karekare, akazengurutsa inkono y'ibumba, inayizirika ku igifu (inda) ke. Yatangiye kurira igiti. Ariko byari bigoye kuri igiti n'inkono imukubita ku amavi buri gihe.
 
 ##
-
-
-##
-
+Buri gihe umuhungu muto wa Anansi yarari hasi areberera. Yaravuze, Ntibyari kukorohera iyo wurira inkono iziritse ku mugongo ahubwo?" Anansi yagerageje kuzirika inkono y'ibumba kumugongo, byo byari byoroshye cyane.
 
 ##
+Mu gihe gito yari yageze mu ubushorishori bw'igiti. Ariko ubwo yarahagaze aranatekereza, "ninge wakagobye kuba nfite ubwenge bwose, none dore umuhungu wange ni umunyabwenge kundusha!" Anansi yari arakaye cyane kubera byo bimutera kujugunya inkono y'ibumba hasi kuba mu giti.
 
+##
+Yamenetse mo ibice k'ubutaka. Ubwenge bwari aho bwo gusangirwa na buri umwe. Kandi nuko abantu bamenye guhinga, kufuma umwenda, gukora ibikoresho by'ibyuma, n'ibindi bintu abantu bazi gukora.
 
 ##
 * License: [CC-BY]

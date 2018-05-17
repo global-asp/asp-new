@@ -7,7 +7,7 @@ Umutima wange wiyunvira ibintu byinshi.
 Nunva nishimye iyo nyogokuru atubwiye inkuru nimugoroba.
 
 ##
-Nunva ntuje iyo nkina n’inshuti yange.
+Nunva ntuje iyo nkina n'inshuti yange.
 
 ##
 Nunva ntishimye iyo dada abwiyo ko adafite amafara.

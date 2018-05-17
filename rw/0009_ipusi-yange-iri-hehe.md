@@ -4,7 +4,7 @@
 Ipusi yange iri hehe?
 
 ##
-Iri munsi y’uburiri?
+Iri munsi y'uburiri?
 
 ##
 Iri hejuru y'akabati?
@@ -13,13 +13,13 @@ Iri hejuru y'akabati?
 Iri inyuma y'intebe?
 
 ##
-Iri iruhande rw’indobo y’imyanda?
+Iri iruhande rw'indobo y'imyanda?
 
 ##
 Iri mu indobo?
 
 ##
-Iri hanze y’inzu?
+Iri hanze y'inzu?
 
 ##
 Iri hano! (ndayibonye!)

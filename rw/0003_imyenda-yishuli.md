@@ -1,4 +1,4 @@
-# Imyenda y’ishuli.
+# Imyenda y'ishuli.
 
 ##
 Iyi kanzu ni ndende.
