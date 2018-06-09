@@ -4,7 +4,7 @@
 Mukaka akandamukaya
 
 ##
-Tukatibitha eriyalyebya esande sya mukaka
+Tukathibitha eriyalebya esiande sya mukaka
 
 ##
 Mukaka ngamulhabako
