@@ -1,16 +1,16 @@
-# Eriryondia amaghetse
-
+# Erirondia amaghetse
+ 
 ##
-Amaghetse Ngalhusaye wahi
-
+Amaghetse Ngalhusaye wahi.
+ 
 ##
-Amaghetse ane omuiregha
-
+Amaghetse ane omuiregha.
+ 
 ##
-Ahisirye
-
+Ahisirye.
+ 
 ##
-Amaghetse ano anganabasa.
+Amaghetse ano anganabbasa.
 
 ##
 * License: [CC-BY]
