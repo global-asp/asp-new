@@ -1,22 +1,22 @@
 # Ekima
 
 ##
-Kiwithe esyarangi nene
+Kiwithe esyarangi nene.
 
 ##
-Sikabanika haima
+Sikabanika haima.
 
 ##
-Ukalhangira ekisande
+Ukalhangira ekisande.
 
 ##
-Iwalhangira ne bururu
+Iwalhangira ne bururu.
 
 ##
-Iwalhangira akarali
+Iwalhangira akarali.
 
 ##
-Esyarangi siwenenga
+Esyarangi siwenenga.
 
 ##
 * License: [CC-BY]
