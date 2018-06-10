@@ -1,16 +1,16 @@
-# Ekitabu kyaghe kyebisasani
-
+# Ekitabu kyaghe kyebisosano
+ 
 ##
 Omumbesa
-
+ 
 ##
 Enyonyi
-
+ 
 ##
 Endale
-
+ 
 ##
-Akajangwa
+Akagyangwa
 
 ##
 * License: [CC-BY]
