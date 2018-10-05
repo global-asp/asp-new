@@ -1,10 +1,10 @@
-# Akajangwa kayi kalihayi?
+# Akangyangwa kayi kalihayi?
 
 ##
-Akajangwa kayi kalihayi?
+Akangyangwa kayi kalihayi?
 
 ##
-Kabisamire ahisi y'enjingo?
+Kabisamire ahisi y'engyingo?
 
 ##
 Kali eyiwulhu okwa kabada?

@@ -1,28 +1,29 @@
-# Eritungerera ebisoro
+# Erithungerera ebisoro
 
 ##
-Tungerera ebisoro
+Thungerera ebisoro.
 
 ##
-Ende yiti "moo"
+Ende yithi "mow".
 
 ##
-Embene yiti "meh, meh"
+Embene yithi "mee, mee".
 
 ##
-Endogoya yiti "nei"
+Endogoya yithi "nei".
 
 ##
-Embunu yiti "grunt"
+Embunu yithi "grruut".
 
 ##
-Enkoko yiti "kluk"
+
+Engoko yithi "kluk"
 
 ##
-Embwa yiti "woof"
+Embwa yithi "wuff".
 
 ##
-Omulisya we bisoro ati "shhh"
+Omulisya we bisoro athi "hunna".
 
 ##
 * License: [CC-BY-NC]

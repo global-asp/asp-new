@@ -1,28 +1,28 @@
 # Khalai akakanaya n'ebirimwa
 
 ##
-Ono ni Khalai. Awithe myaka musanju. Erina liwe omwalhulimi lwiwe, Lubukusu limanyisaya "omubuya".
+Ono ni Khalai. Awithe myaka musangyu. Erina liwe omwalhulimi lwiwe, o'Lubukusu, limanyisaya "omubuya".
 
 ##
-Khalai akabuka omwathulho neryo inyakania nomuthi we mintsungwe athi, "chisi muthi wemitsungwe, kulha lhubalhuba wangatuhererya ebighuma by'emitsungwe".
+Khalai akabuka omwathulho neryo inyakania nomuthi we mintsungwe athi, "kyisi muthi wemitsungwe, kulha lhubalhuba wangathuhererya ebighuma by'emitsungwe".
 
 ##
-Khalai akaghenda omwabisando akayasoma. Neryo akabugha nebithi athi, "chisi bithi, mukule, kandi muleke eryuma"
+Khalai akaghenda omwabisando akayasoma. Neryo akabugha nebithi athi, "kyisi bithi, mukule, kandi muleke eryuma"
 
 ##
-Khalai akalhaba okwa bimole "chisi bimole, musanzulhaye neryo nangahira omwa mutwe waghe"
+Khalai akalhaba okwa bimole "kyisi bimole, musanzulhaye neryo nangabahira omwa muthwe waghe"
 
 ##
-Okw'Isomero, Khalai akabwira omuthi athi, "chisi muthi iwe kulhaya emithahi minene twangatunga ekitsutsu"
+Okw'Isomero, Khalai akabwira omuthi athi, "kyisi muthi iwe kulhaya emithahi minene thwangatunga ekitsutsu"
 
 ##
-Khalai akabwira olhughuthu lw'okwisomero athi, "chisi lhughuthu ubye namani wangaleka abandu babi erithwingirira.
+Khalai akabwira olhughuthu lw'okwisomero athi, "kyisi lhughuthu ubye namani wangaleka abandu babi erithendithwingirira.
 
 ##
-Neryo Khalai akabya akalwa okw'isomero akayalebeya omuthi wemitsungwe. "emitsungwe yaghu siyiriyanera kwehi?"
+Neryo Khalai akabya akalhwa okw'isomero akayalebaya omuthi wemitsungwe. "emitsungwe yaghu siyiriyanera kwehi?"
 
 ##
-"Emitsungwe yikine makuke" uhmm... "ngendisyakulebya omunkya muthi w'emitsungwe". Khalai akabugha athia. "Obundi lero ukendisyaba n'omutsungwe owerire."
+"Emitsungwe yikine makuke" uhmm... "ngendisyakulebya omungya muthi w'emitsungwe". Khalai akabugha athia. "Obundi lero ukendisyabya n'omutsungwe owerire."
 
 ##
 * License: [CC-BY]

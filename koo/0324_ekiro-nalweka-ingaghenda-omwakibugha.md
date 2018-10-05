@@ -1,52 +1,52 @@
 # Ekiro Nalw'eka ingaghenda omw'akibugha
 
 ##
-Ah'ebus yikimana omwakyaro kyethu hakusulha abandu haima n'esyabus esihekire abandu banene erirenga ekipimo. Ahisi okwakithaka naho hanuswire embindu. Abalebesya bakabirikira n'erithulha ah'esyabus sikaghenda.
+Ah'ebbasi yikimana omwakyalo kyethu hakusulha abandu haima n'esya'bbasi esihekire abandu banene erirenga ekipimo. Ahisi okwakithaka naho hanuswire ebindu. Abalebesya bakabirikira n'erithulha ah'esya'bbasi sikaghenda.
 
 ##
-"Kibugha! Kibugha! oyukaghenda ebulengera lyuba" omulebesya akabirikira. Eyo y'ebus eyikendindwalha omw'akibugha.
+"Kibugha! Kibugha! oyukaghenda ebulengera lyuba" omulebesya akabirikira. Eyo y'ebbasi eyikendindwalha omw'akibugha.
 
 ##
-Ebus eyikaghenda omwakibugha yabya iyabirisulha, kyonga abandu bikinayisoka muyo. Abandi banemuhira emighughu yabo yahisi y'ebus. Abandi bakasambiraya emighughu yabo okwa ndatha y'ebus.
+Ebbasi eyikaghenda omwakibugha yabya iyabiryosulha, kyonga abandu abakinayisoka muyo. Abandi ibanemuhira emighughu yabo yahisi y'ebbasi. Abandi bakasambiraya emighughu yabo okwa ndatha y'ebbasi.
 
 ##
-Abalhambayiri abandi bakahamba esya tighiti syabo sy'omwabyalha banemusondia eherikalha omwabus eyiswire. Abaghole abali n'abana balere mulhangira bathi bakabalembere ndeke, kusangwa olhughendo nilhuli.
+Abalhambayiri abandi bakahamba esya tighiti syabo sy'omwabyalha banemusondia aheryikalha omwabbasi eyiswire. Abaghole abali n'abana balere mubalhangira bathi bakabalembera ndeke, kusangwa olhughendo nilhuli.
 
 ##
-Neryo munayihatatania hakuhi neridirisa. Oyuwabya ikere hakuhi naghi mwahambirirya okwachikapa kiwere ekyamatsitsi. Abya ambere esyachapali, nekabuthe eyikulire kandi mwalhangirikana ngali mwobuba.
+Neryo munayihathathania hakuhi neridirisa. Oyuwabya ikere hakuhi nayi mwahambirirya okwakyikapa kiwe ekyamatsitsi. Abya ambere esyakyapali, n'ekabuthe eyikulire kandi mwalhangirikana ngali mwobuba.
 
 ##
-Nabere nawusa ameso weyihya, mulhangira kunamasigha ekyaro kyethu, ahanbuthirawa nerikulha, obo ngaghenda omwakibugha.
+Nabere nawusa ameso weyihya, mwanalhangira kunamasigha ekyalo kyethu, ahanabuthirawa nerikulhira, obo ngaghenda omwakibugha.
 
 ##
-Eripakira mulyahwa nabulimundu mwikalha omw'abus. Abatembeyi aliryo bakabya ibakinayiyiseseraya eriwulia ebindu byabu. Buli mutembeyi akabirikira ebiri okwabeyi ngokwakaulhaya. Ebindu mubyanzobera bakatabirikira.
+Eripakira mulyahwa nabulimundu mwikalha omw'abbasi. Abatembeyi aliryo bakabya ibakinayiyiseseraya eriwulia ebindu byabu. Buli mutembeyi akabirikira ebiri okwabeyi ngokwakaghulhaya. Ebindu mubyanzobera bakathabirikira.
 
 ##
-Abandi mubaghulha o'kwebyerinya, abandi mubaghulha okw'abyalha eby'erithakunya. Abo abatabya bawithe sente, nganjye, mubakwama chatungerera.
+Abandi mubaghulha o'kwebyerinywa, abandi mubaghulha okw'abyalya eby'eritakunya. Abo abathabya bawithe sente, ngangye, mubakwama kyathungerera.
 
 ##
-Neryo e'bus muyatera enkombe yikamanyisya yiti twamayahongoka. Neryo abalebesya mubabirikira abatembeyi erilwamu kusangwa ebus yikayahongoka.
+Neryo ebbasi muyathera engombe yikamanyisya yithi thwamayahongoka. Neryo abalebesya mubabirikira abatembeyi erilhwamu kusangwa ebbasi yikayahongoka.
 
 ##
-Neryo abatembeyi mubasukumana bakarondia enzira yerihulhuka omw'abus. Abandi mubasubulya okwasyambulho syabalyaulha. Abandi mubalengesya eritasyaulia esyomwiso.
+Neryo abatembeyi mubasukumana bakarondia enzira yerihulhuka omw'abbasi. Abandi mubasubulya okwasyambulho syabalyaghulha. Abandi mubalengesya erithasyaghulia esyomwiso.
 
 ##
-Ebus yebere yikatsimbulha munalebererya omwadirisa. Munayibulya indi obo mbwino nganemwesatasasubulha erisuba omwakyaro kyethu.
+Ebbasi yabere yikatsimbulha munalebererya omwadirisa. Munayibulya indi obo mbwino nganemwesathasasubulha erisuba omwakyalo kyethu.
 
 ##
-Olhughendo lhukahika ahakatikati, neryo omwakathi k'ebus mumwahisya. Munaliba ameso ngarondya othulho.
+Olhughendo lhukahika ahakathikathi, neryo omwakathi k'ebbasi mumwahisya. Munaliba ameso ingarondya othulho.
 
 ##
-Ebiringekanio byaghe mubyabya ibinemusuba eka. Munayibulya ibwa iya mama anemwendibya ndeka? Esyambanya syaghe sinemwendisyaulha? Mughalha wethu anemwesyabya akaseserera emithi yaghe?
+Ebilengekanio byaghe mubyabya ibinemusuba eka. Munayibulya ibwa iya mama anemwendibya ndeke? Esyambanya syaghe sinemwendisyaghulha? Mughalha wethu anemwesyabya akaseserera emithi yaghe?
 
 ##
-Omwanzira munatsuka eribya ingasuba omwalina ly'ekikaro ekya somulere waghi ikiremu. Ngachinalengekanaya, neryo munahambwa othulho.
+Omwanzira munatsuka eribya ingasuba omwalina ly'ekikaro ekya somulere waghi ikeremu. Ngakyinalengekanaya, neryo munahambwa othulho.
 
 ##
-Habere hahwa saha mwenda, munabuka ingowa eribirikira lyabalebesya bakabirikira abandu abakaghenda omwa kyaro. Neryo munabakulha esakira yaghe, nerihulhuka omw'abus lhubalhuba.
+Habere hahwa saha mwenda, munabuka ingowa eribirikira lyabalebesya bakabirikira abandu abakaghenda omwa kyalo. Neryo munabakulha esakira yaghe, nerihulhuka omw'abbasi lhubalhuba.
 
 ##
-Ebus eyikasuba omw'akyaro neryo muyanguha erishulha. Obo yikayasubayo ewethu, naghi namasighalira erirondekania ahasomulere waghi ikere.
+Ebbasi eyikasuba omw'akyalo neryo muyanguha eryosulha. Obo yikayasubayo ewethu, naghi namasighalira erirondekania ahasomulere waghe ikere.
 
 ##
 * License: [CC-BY]

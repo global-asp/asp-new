@@ -1,28 +1,28 @@
 # Eritwamo
 
 ##
-Omwakyaro kyayi mwabya ebitsibu binene. Tukimana okwa mulhondo muli tukayateha amaghetse okwa museke.
+Omwakyalo kyayi mwabya ebitsibu binene. Thukimana okwa mulhondo muli thukayatheha amaghetse okwa museke.
 
 ##
-Tukalindirira ebyalia ebikatuheribawa nabandi.
+Tukalindirira ebyalia ebikathuheribawa nabandi.
 
 ##
-Tukachinga emighi yethu ya lhuba tukasagha abibi.
+Thukakyinga emighi yethu ya lhuba thukasagha abibi.
 
 ##
-Abana banene bakalemawa erisoma neryo ibalwa omw'itendekero
+Abana banene bakalemawa erisoma neryo ibalhwa omw'ithendekero.
 
 ##
-Abambesa bakayakolhera omwabyaro ebindi ngabalemberi.
+Abambesa bakayakolhera omwabyalo ebindi ngabalemberi.
 
 ##
-Eminyetho yikaghangaghanga omwa kyaro, neyindi minyetho iyayakolha amakatara okwamalima abandi bandu.
+Abalhwana bakaghangaghanga omwa kyalo, n'abindi ibayakolha amakatara okwamalima w'abandi bandu.
 
 ##
-Omuyangha akabya ahitha, neryo ebipapura bikaleretha okwamiti nokwa syankuthu.
+Omuyangha akabya ahitha, neryo ebipapura bikaleretha okwamiti nokwa syanguthu.
 
 ##
-Abandu bakahuthalibawa nesya tsupa esitulhangikire
+Abandu bakahuthalibawa nesya tsupa esitulhangikire.
 
 ##
 Neryo kiro kighuma omuseke wamaghetse mw'uma neryo ebisya byethu byamabya buyira.
@@ -31,22 +31,22 @@ Neryo kiro kighuma omuseke wamaghetse mw'uma neryo ebisya byethu byamabya buyira
 Thatha waghi mw'aghenda okobuli muyi akabwira abandu athi base omwa lhuhindano.
 
 ##
-Abandu mubasangosongania ahisi y'omuthi munene nerihulikirira.
+Abandu mubasongasongania ahisi y'omuthi munene nerihulikirira.
 
 ##
-Thatha wayi mwahangana inyanimubugha ati, "tutolere erikolera hauma twangaunza ebitsibu byethu.
+Thatha wayi mwahangana inyanimubugha ati, "thutholere erikolera haghuma thwangaghunza ebitsibu byethu.
 
 ##
 Juma, ow'emiaka munani, inyanikere omwa muthi mwabirikira, "naghe nanganawathikya okwibirya".
 
 ##
-Omughole mughuma nayo ati, "abaghole mwangana yiyunga okwinje twangahera ebyalia".
+Omughole mughuma nayo athi, "abaghole mwangana yiyunga okwingye thwangahera ebyalia".
 
 ##
-Omulhume owundi mwahangana nayo ati, "Abalhume bakenditakulha ekidiba ky'amaghetse."
+Omulhume owundi mwahangana nayo athi, "Abalhume bakendithakulha ekidiba ky'amaghetse."
 
 ##
-Itwabosi twama birikira omwa mulenge mughuma, "Twanzire eriwania obuyingo bwethu". Neryo erilwa ekiro ekyo mutwakolera haima eriunza ebitsibu byethu.
+Ithwabosi thwama birikira omwa mulenge mughuma, "Twanzire eriwania obuyingo bwethu". Neryo erilhwa ekiro ekyo muthwakolera haima erighunza ebitsibu byethu.
 
 ##
 * License: [CC-BY]

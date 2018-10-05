@@ -1,7 +1,7 @@
 # Mughala Wethu Omughatha
 
 ##
-Ngabuka inahemba omuliro
+Ngabuka inahemba omuliro.
 
 ##
 Ngahuhaya amaghetse.
@@ -10,16 +10,16 @@ Ngahuhaya amaghetse.
 Ngasathangaya esyangwe.
 
 ##
-Ngalhabaya omwanyungu mw'omwiko
+Ngakorongaya omwanyungu mw'omwiko.
 
 ##
 Ngabiraya olhubughabugha.
 
 ##
-Ngowaya esya bakuli.
+Ngoghaya esya bbakuli.
 
 ##
-Busana naki ngakolha kutsibu..... mughala wethu inyanimusatha?
+Busana naki ngakolha kutsibu … ... mughala wethu inyanimusatha?
 
 ##
 * License: [CC-BY-NC]

@@ -4,16 +4,16 @@
 Omuthima waghe akowa binene.
 
 ##
-Ngayowandeke omughulhu mukaka akatuyira esyangano omwighologholo.
+Ngayowandeke omughulhu mukaka akathuyira esyangano omwigholhogholho.
 
 ##
-Ng'ayisyetha omughulhu ngasatha namulikyaghe.
+Ng'ayisyetha omughulhu ngasatha namunyikyaghe.
 
 ##
-Ngayowa nabi omughulhu thatha akabugha ati syawithe esyambulho.
+Ngayowa nabi omughulhu thatha akabugha athi syawithe esyambulho.
 
 ##
-Ngowa olwanzo omughulhu mama akanyibumbatira.
+Ngowa olwanzo omughulhu mama akanyibumbathira.
 
 ##
 * License: [CC-BY-NC]

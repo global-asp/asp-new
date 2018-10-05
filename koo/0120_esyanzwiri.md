@@ -1,10 +1,10 @@
 # Esy'anzwiri
 
 ##
-Thuli awithe esyanzwiri nguhi
+Thuli awithe esyanzwiri nguhi.
 
 ##
-Anna awithe esya nzwiri nyiri
+Anna awithe esya nzwiri nyiri.
 
 ##
 Cathy awithe esyanzwiri nyiri kutsibu.
@@ -13,16 +13,16 @@ Cathy awithe esyanzwiri nyiri kutsibu.
 Esya nzwiri sya Zuma silhukire.
 
 ##
-Baba awithe esyanderu
+Baba awithe esyanderu.
 
 ##
-Zanele abirizanula esya nzuri siwe
+Zanele abirizanula esya nzwiri siwe.
 
 ##
 Thabo abireghembwa ekimemba.
 
 ##
-Thembo abirighembwa enkubule
+Thembo abirighembwa engubule.
 
 ##
 * License: [CC-BY-NC]

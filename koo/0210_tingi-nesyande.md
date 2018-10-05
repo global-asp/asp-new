@@ -1,10 +1,10 @@
 # Tingi N'esyande
 
 ##
-Tingi abyikere namukaka wiwe
+Tingi abyikere namukaka wiwe.
 
 ##
-Inyakalisaya e'syande
+Inyakalisaya e'syande.
 
 ##
 Kiro kiwuma abasirikali mubasa.
@@ -13,7 +13,7 @@ Kiro kiwuma abasirikali mubasa.
 Mubaheka esy'ande syosi.
 
 ##
-Tingi banamuka wiwe mubatibitha neriyabisama
+Tingi banamuka wiwe mubathibitha neriyabisama.
 
 ##
 Mubabisama omwakisuki erihika omwakiro.
@@ -25,7 +25,7 @@ Kandi abasirikali mubasubulha.
 Omukekulhu mwabisa Tingi yomwabithi.
 
 ##
-Omusirikale muwuma mwalyatira Tingi okwasindo, kyonga Tingi mwayihunira, mwatayiseghania.
+Omusirikale muwuma mwalyathira Tingi okwakisando, kyonga Tingi mwayihunira, mwathayiseghania.
 
 ##
 Obuholho bwabere bwabanika, Tingi na mukaka wiwe mubalhwa omwoli eyababisama.

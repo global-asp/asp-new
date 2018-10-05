@@ -1,19 +1,19 @@
 # Engonya y'amakwa Enzalha
 
 ##
-Kera kera habya engonya eyikwire enzalha,
+Kera kera habya e'Gonya eyikwire enzalha,
 
 ##
-Miyarondya ebyalya lyolholyolho kandi omwabukuthu. Neryo....
+Mwayarondya ebyalya lyolholyolho kandi omwabukuthu. Neryo...
 
 ##
-Mpwaaa!!! Engonya yawirira!
+Mpwaaa!!! Egonya yawirira!
 
 ##
-Yebere yabiriwirira, muyamera, neryo yamiwutha. Neryo enzalha yamabalha neryo yamayanza
+Yabere yabiriwirira, muyamera, neryo yamiwutha. Neryo enzalha yamabalha neryo yamayanza.
 
 ##
-Kuhika ayakwira enzalha, kandi.
+Kuhika ahayakwira enzalha, kandi.
 
 ##
 * License: [CC-BY]

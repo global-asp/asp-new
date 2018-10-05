@@ -1,64 +1,64 @@
 # Ekihumuro E'wamukaka
 
 ##
-Odongo haima n'Apiyo bakyabikere omwa kibugha haima na tatawabu. Ibakabulikira ekihumulho kikahika. Butsira ambu habwesukuru erikinga, aliwe eribya ibakayahumulira ewamukaka wabo. Mukaka abikere hakuhi nahabakosohera esisu okwangetse.
+Odongo haima n'Apiyo babyabikere omwa kibugha haima na thathawabu. Ibakabulikira ekihumulho kikahika. Butsira ambu habwesukuru erikinga, aliwe eribya ibakayahumulira ewamukaka wabo. Mukaka aby'ikere hakuhi nahabakasohera esisu okwangetse.
 
 ##
-Odongo n'Apiyo mubabunyahirwa kusangwa bakayalebeya mukaka wabu kandi. Omwigholhogholho mubapakira ebikapa byabo neriyitekanizirya olhubalhamo lhwabo omwakyalo. Mubatabotsera. Mubakania obutuku erichya.
+Odongo n'Apiyo mubabunyahirwa kusangwa bakayalebeya mukaka wabu kandi. Omwigholhogholho mubapakira ebikapa byabo neriyitakanizirya olhubalhamo lhwabo omwakyalo. Mubathabotsera. Mubakania obuthuku erikya.
 
 ##
-Yabere yikabya nkyacha, mubatsinduka omwamatoka ya tata wabo. Mubavuga erilhaba omwabithwa, bamalhaba okwabisoro byomoli, haima namalima awa majani. Ibakabara esyamatoka esyabakalhabako, nerimba esyanyimbo.
+Yabere yikaby'engyakya, mubatsinduka omwamatoka ya thatha wabo. Mubafugha erilhaba omwabithwa, bamalhaba okwabisoro byomoli, haima namalima awa magyani. Ibakabara esyamatoka esyabakalhabako, nerimba esyanyimbo.
 
 ##
-Habilhaba katuku kake, bamalhuha neri yiwotserako.
+Habilhaba kathuku kake, bamalhuha neri yiwotserako.
 
 ##
-Bamabya bahika ewamuka wabo, neryo tata wabyo amabukya Odongo n'Apiyo. Mubasangana Nyar-Kanyada, mukaka wabo inyanikere okwamukeka ahisi omwakitsutsu kyomuthi. Nyar-Kanyanda omwalhulimi lw'abaluo, kikamanyisaya 'mwali wa Kayanda'. Abya mukekulhu wamani, kandi inimubuyanga.
+Bamabya bahika ewamuka wabo, neryo thatha wabo amabukya Odongo n'Apiyo. Mubasangana Nyar-Kanyada, mukaka wabo inyanikere okwamukeka ahisi omwakitsutsu kyomuthi. Nyar-Kanyanda omwalhulimi lhwaba'Luo, kikamanyisaya 'mwali wa Kayanda'. Abya mukekulhu wamani, kandi inimubuyanga.
 
 ##
-Nyar-Kayanda mwangirirabo, neribahotholera. Abitsikulhu biwe mubabunyahirwa nerimuhererya ebihembo ebyabamulethera eritwa omwa kibugha. "kwanza mukaka tangirisambulha ekihembo kyaghe", Odongo mwasaba. "Eyihi, weza mukaka, sambulha ekyaghe" Apiyo mwabugha.
+Nyar-Kayanda mwangirirabo, neribahotholera. Abitsikulhu biwe mubabunyahirwa nerimuhererya ebihembo ebyabamulethera erilwa omwa kibugha. "kwanza mukaka thangirisambulha ekihembo kyaghe", Odongo mwasaba. "Eyihi, weza mukaka, sambulha ekyaghe" Apiyo mwabugha.
 
 ##
 Abere abirisambulha ebihembo biwe, Nyar-Kanyada mwatsumulha neribasabira emighisa eyembaghane.
 
 ##
-Neryo Odongo n'Apiyo mubaghenda eyihya. Bamatsuka eritibitha okwa binyuruwunzu haima no tunyonyi.
+Neryo Odongo n'Apiyo mubaghenda eyihya. Bamatsuka erithibitha okwa binyuruwunzu haima no thunyonyi.
 
 ##
-Mubasamba omwamithi neritoghera omwamaghetse omwangetse.
+Mubasamba omwamithi nerithoghera omwamaghetse omwangetse.
 
 ##
-Obuthuku bikira, neryo bakasubeka erisalya ekyakiro. Bathebaghunza erirya, neryo othulho tukabahamba.
+Obuthuku bukira, neryo bakasubeka erisialya ekyakiro. Bathebaghunza erirya, neryo othulho thukabahamba.
 
 ##
-Omwankyacha, tata wabana mwavuga erisuba omwakibugha nerisigha abana na mukaka wabo Nyar-Kanyanda.
+Omwangyakya, thatha wabana mwafugha erisuba omwakibugha nerisigha abana na mukaka wabo Nyar-Kanyanda.
 
 ##
-Odongo n'Apiyo mubawatikya mukaka wabo okwathubiri. Mubaghenda okwalhusi, bamaletha esyangwe. Bamasongyasongya amaya w'esyankoko, nerisolhoma esyanyinyi omwirima.
+Odongo n'Apiyo mubawathikya mukaka wabo okwathubiri. Mubaghenda okwalhusi, bamaletha esyangwe. Bamasongyasongya amaya w'esyangoko, nerisolhoma esyanyinyi omwirima.
 
 ##
-Nyar-Kanyada mwakangirirya abitsikulhu biwe erihuka obusyano n'omukubi. Mwakangiriryabo nehuka omutsere oweriria n'engege eyumire.
+Nyar-Kanyada mwakangirirya abitsikulhu biwe erihuka obusyano n'omukubi. Mwakangiriryabo nerihuka omutsere oweriria n'engege eyumire.
 
 ##
-Kiro kighuma Odongo mwayalisya esy'ande syamukaka wiwe. Neryo syamalhaba omwirima lyomuliranwa. Neryo omuliranwa ono mwatsuruma, neribugha ati anganimya esy'ande esyosi habwerilhaba omwabyalya nerilya ebyalya biwe. Elhusirirya ekiro ekyo, omulhwana mwalhangira ati akatsunga esy'ande aleke eriyiwusa omwabulitho.
+Kiro kighuma Odongo mwayalisya esy'ande syamukaka wiwe. Neryo syamalhaba omwirima lyomuliranwa. Neryo omuliranwa ono mwatsuruma, neribugha athi anganimya esy'ande esyosi habwerilhaba omwabyalya nerilya ebyalya biwe. Erilhusirirya ekiro ekyo, omulhwana mwalhangira athi akatsunga esy'ande aleke eriyiwusa omwabulitho.
 
 ##
-Ekindi kiro, abana mubaghenda omwakathale na Nyar-Kanyada. Ebyawite mwemeza ahakauliraya esyanyinyi, esukali haima n'esabuni. Apiyo abyanzire eribwira bawuli emihendo yebindu. Odongo inyakabohera abauli ebindu byabo babirighulha.
+Ekindi kiro, abana mubaghenda omwakathale na Nyar-Kanyada. Aby'awite mw'emeza ahakaghuliraya esyanyinyi, esukali haima n'esabuni. Apiyo abyanzire eribwira abawuli emihendo yebindu. Odongo inyakabohera abauli ebindu byabo babirighulha.
 
 ##
-Obuthuku bukira, neryo ibakanya majani chai haima. Neryo ibawatikya mukaka wabo eribara esyambulho esyabamatunga ekiro ekyo.
+Obuthuku bukira, neryo ibakanywa magyani chai haima. Neryo ibawathikya mukaka wabo eribara esyambulho esyabamathunga ekiro ekyo.
 
 ##
-Biro bingahi, neryo ekihumoro kyamahwamo. Obuthuku bw'erisuba okwasukuru bwamahika. Nyar-Kanyada mwahererya Odongo akasepeho n'Apiyo akasweta. Mwaboherabo endanda yomwanzira.
+Biro bingahi, neryo ekihumuro kyamahwamo. Obuthuku bw'erisuba okwasukuru bwamahika. Nyar-Kanyada mwahererya Odongo akasepeho n'Apiyo akasweta. Mwaboherabo endanda yomwanzira.
 
 ##
-Thatha wabo abere akasabenda, mubatanza erihingoka. Aliriryo mubasaba Nyar-Kanyada eryasa nabo omwakibugha. Mwaseka neryo abugha ati, "ngalimukekulhu, sinangathoka ekibugha". Ngendibalindirira kandi ekiro mukendisyasubulha.
+Thatha wabo abere akasiabenda, mubathanza erihongoka. Aliriryo mubasaba Nyar-Kanyada eryasa nabo omwakibugha. Mwaseka neryo abugha ati, "ngalimukekulhu, sinangathoka ekibugha". Ngendibalindirira kandi ekiro mukendisyasubulha.
 
 ##
-Odongo n'Apiyo mubalhagha mukaka wabo nerimubumbathira kutsibu. Mubalhagha buchaghe.
+Odongo n'Apiyo mubalhagha mukaka wabo nerimubumbathira kutsibu. Mubalhagha bukyaghe.
 
 ##
-Odongo n'Apiyo babere basuba okwisomero, mubathulirawo banywani babo eraha eyiri omwakyaro ewamukakawabo. Abandi bana bakalhangira obuyingo obwamwakibugha ngabuwene, aliriryo abana abosi mubikirirya bathi Odongo n'Apiyo bawithe mukaka wabo omubuya.
+Odongo n'Apiyo babere basuba okwisomero, mubathulirawo banywani babo eraha eyiri omwakyalo ewamukakawabo. Abandi bana bakalhangira obuyingo obwamwakibugha ngabuwene, aliriryo abana abosi mubikirirya bathi Odongo n'Apiyo bawithe mukaka wabo omubuya.
 
 ##
 * License: [CC-BY]

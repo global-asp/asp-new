@@ -7,7 +7,7 @@ Eyisuka yiwe ninguhi.
 Olhukyo lhwiwe nilhukuhi.
 
 ##
-Enjingo yiwe ninguhi.
+Engyingo yiwe ninguhi.
 
 ##
 Egali yiwe ninguhi.
@@ -25,10 +25,10 @@ Mwakolha emyango yolhuyi mwamiri.
 Mwakolha engingo yiwe mwanyiri.
 
 ##
-Mwaulha egali nyiri.
+Mwaghulha egali nyiri.
 
 ##
-Mwikalha okwa kitumbi kiri. Akalya omwa kijiko kiri.
+Mwikalha okwa kithumbi kiri. Akalya omwa ghuma nyiri.
 
 ##
 Mwalhwa omwa'nyumba yiwe neryo amayikalha omwa musithu. Mwakotha myaka minene.

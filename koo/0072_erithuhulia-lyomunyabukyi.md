@@ -1,37 +1,39 @@
-# Erithuhulia ly'omunyabuchi
+# Erithuhulia ly'omunyabukyi
 
 ##
-Lhuno lhwolhughano lhwa Ngende, Omunyabuchi, haima n'omulwana omweru iya Gingile. Kiro kiwuma Gingile abere inyanemuhigha, mwowa omulenge oweribirikira lya Ngede. Neryo obunu bwa Gingile bwamatsuka erisonia sonia, namatande erithogha akalengekania obusihe bw'obuchi. Mwimana nerihulikirira ndeke nerisamalira omwamuthi kuhika ahalhangirira enyonyi omwamisale yomwamuthi eyighulhu. "Chitik-chitik-chitik," akanyonyi mukimba ikanemuyitsiadanga okwa mithahi yomwamuthi. "Chitik-Chitik-Chitik" mukimba ikanemuyitsiadanga okwamithahi nerilebya kati Gingile anamukakwama.
+Lhuno lhwolhughano lhwa Ngende, Omunyabukyi, haima n'omulwana omweru iya Gingile.
+
+Kiro kiwuma Gingile abere inyanemuhigha, mwowa omulenge oweribirikira lya Ngede. Neryo obunu bwa Gingile bwamatsuka erisonia sonia, namatande erithogha akalengekania obusihe bw'obukyi. Mwimana nerihulikirira ndeke nerisamalira omwamuthi kuhika ahalhangirira enyonyi omwamisale yomwamuthi eyighulhu. "Chitik-chitik-chitik," akanyonyi mukimba ikanemuyitsiadanga okwa mithahi yomwamuthi. "Chitik-Chitik-Chitik" mukimba ikanemuyitsiadanga okwamithahi nerilebya kati Gingile anamukakwama.
 
 ##
-Habere halhaba kipindi ky'esaha, mubabya ibamabirihika okwamuthi munene owabakahulha mwe fig. Ngede mwawulhuka neriyowa omwamisale. Neryo amathahumulira okwa muthahe mughume nerihoriahoria Gingile ngoyukabugha ati, "sibwabunu, ashano lero, ibwa walindireki?" Gingile mwalhangire esyanzuki ahisi yomuthi, aliriryo mwakwama kyeriyisigha Ngede.
+Habere halhaba kipindi ky'esaha, mubabya ibamabirihika okwamuthi munene owabakahulha mwe fig(omutini). Ngede mwawulhuka neriyawa omwamisale. Neryo amathahumulira okwa muthahe mughuma nerihoriahoria Gingile ngoyukabugha ati, "sibwabunu, as'eno lero, ibwa walindireki?" Gingile mwalhangira esyanzuki ahisi yomuthi, aliriryo mwakwama kyeriyisigha Ngede.
 
 ##
-Nikwa neryo Gingile mwahira erithumo liwe lyobuhighi lyahisi yomuthi, amasondia ebithi ebyomire angahemba omuliro. Omuliro abere abiriaka ndeke, mwimya omuthi muli owumire amahira wo ahakathi komuliro. Omuthi ono inyasibwe ngowakaletha omuchi munene anemwaka. Gingile mwasamba omwamuthi inyahambire omuthi womwameno okwalhuhande olhute kwamuliro.
+Nikwa neryo Gingile mwahira erithumo liwe lyobuhighi lyahisi yomuthi, amasondia ebithi ebyomire angahemba omuliro. Omuliro abere abiriaka ndeke, mwimya omuthi muli owumire amahira wo ahakathi komuliro. Omuthi ono inyasibwe ngowakaletha omukyi munene anemwaka. Gingile mwasamba omwamuthi inyahambire omuthi womwameno okwalhuhande olhute kwamuliro.
 
 ##
-Neryo anemusamba amwowa eriruruma neribubutha ly'esyanzuki. Syabya isinemulhwa omwachuna, echiri mwechihembo chesyanzuki. Gingile aberehika ahali ekihembo ch'esyanzuki, mwingirya omuthi owalikwomuchi omwa chuna ekiri mw'esyanzuki. Neryo esya nzuki syamahurumikayo ngebimira byomutsiha. Syamawulhuka sikasagha omuchi, kyonga syamasigha syalhumanga Gingile.
+Neryo anemusamba amwowa eriruruma neribubutha ly'esyanzuki. Syabya isinemulhwa omwakyuna, ekyiri mwekyihembo kyesyanzuki. Gingile abere ahika ahali ekihembo ky'esyanzuki, mwingirya omuthi owalikwomukyi omwa kyuna ekiri mw'esyanzuki. Neryo esya nzuki syamahurumukayo ngebimira byomutsiha. Syamawulhuka sikasagha omukyi, kyonga syamasigha syalhumanga Gingile.
 
 ##
-Esyanzuki syabere syabirihwamo, Gingile mwahira ebyalha byomwachuna omuli olhwuthwe lhw'esyanzuki. Ebyalha byamalhusyayo ekihembo ekikathonghonga mw'obuchi. Neryo amahira ekihembo kyomwasakira eyabya inyanahirire okwakitigho, neritsuka erichima omwamuthi.
+Esyanzuki syabere syabirihwamo, Gingile mwahira ebyalha byomwakyuna omuli olhwukyo lhw'esyanzuki. Ebyalha byamalhusyayo ekihembo ekikathonghonga mw'obukyi. Neryo amahira ekihembo kyomwasakira eyabya inyanahirire okwakitigho, neritsuka erichima omwamuthi.
 
 ##
-Iyo Ngede mwatwamo erisamalira ebyosi ebya Gingile aby'akakolha. Amalindirira ati mbwino Gingile anemwendimusighira ekihembo ekyobunyunyu bw'obuchi ngekihembo ekyewasingya habwerimusondolia erihika ahali obuchi. Ngede mwaseseruka omwakisale yomuthi erihika ahisi yomuthi. Okwamwiso, Ngede mwahika ahisi hakuhi n'omulhwana inyanemulinda ekihembo kiwe, kutse ewasingya.
+Iyo Ngede mwathwamo erisamalira ebyosi ebya Gingile aby'akakolha. Amalindirira ati mbwino Gingile anemwendimusighira ekihembo ekyobunyunyu bw'obukyi ngekihembo ekyewasingya habwerimusondolia erihika ahali obukyi. Ngede mwaseseruka omwamisale yomuthi erihika ahisi yomuthi. Okwamwiso, Ngede mwahika ahisi hakuhi n'omulhwana inyanemulinda elhuhembo lhwiwe, kutse ewasingya.
 
 ##
-Ahonaho, Gingile mwalimya omuliro, amimya erithumo liwe neryo amatsuka olhungendo lwerighenda eka, buthatsomana wakanyonyi akamusondolhalya. Ngede mwabirikira nechinigha ati, "VIC-torr! VIC-tori!" neryo Gingile mwimana, amasamalira wakanyonyi, neryo amaseka kutsibu. "Wanzire okw'abuchi, munyani wayi? haa! Mungakolha omwatsi wosi winjuwene, nesyanzuki syamandumanga, ibwa busananaki inakuha okwabuchi obusihire butya?" Leka ngayighendere. Wakanyonyi Ngede mwatsuruma nerihithana! Echi mukitabya kisosekano kibuya, kwenene hali erithuhulia.
+Ahonaho, Gingile mwalimya omuliro, amimya erithumo liwe neryo amatsuka olhungendo lhwerighenda eka, buthatsomana w'akanyonyi akamusondolhaya. Ngede mwabirikira nekyinigha ati, "viktor! Viktor!" neryo Gingile mwimana, amasamalira w'akanyonyi, neryo amaseka kutsibu. "Wanzire okw'abukyi, munywani wayi? haa! Mungakolha omwatsi wosi wingyowene, nesyanzuki syamandumanga, ibwa busananaki inakuha okwabukyi obusihire buthya?" Leka ngayighendere. W'akanyonyi Ngede mwatsuruma nerihithana! Ekyi mukitabya kisosekano kibuya, kwenene hali erithuhulia.
 
 ##
-Kiro kighume ama'yenga manene abirilhaba, kandi Gingile mwowa olhusughundo lhwa Ngede olhukakanganaya lhuthi obuchi kandi bwabanikirre. Amibuka obunzwenzwe obwomwabuchi, neryo amakwama omulenge w'akanyonyi kandi. Amabya abirimuhikya okwa mwiso womusithu, Ngede mwahumulha omwa kathi akamahwa. "Ahh" amalengekania awobuchi neryo Gingile amahira w'okwakathi kamahwa. Neryo amacha omuliro kandi lhubalhuba, amatsuka erisamba omwakathi akalimwamahwa. Amahira omuthi womuchi w'omwamano, neryo amasamba. Ngede wakanyonyi amakwama kyatungerera kandi ngabulya.
+Kiro kighume ama'yenga manene abirilhaba, kandi Gingile mwowa olhusughundo lhwa Ngede olhukakanganaya lhuthi obukyi kandi bwabanikirre. Amibuka obunzwenzwe obwomwabukyi, neryo amakwama omulenge w'akanyonyi kandi. Amabya abirimuhikya okwa mwiso womusithu, Ngede mwahumulha omwa kathi akamahwa. "Ahh" amalengekania awobukyi neryo Gingile amahira w'okwakathi kamahwa. Neryo amakya omuliro kandi lhubalhuba, amatsuka erisamba omwakathi akalimwamahwa. Amahira omuthi wobukyi w'omwameno, neryo amasamba. Ngede w'akanyonyi amakwama kyikalha n'erithungerera.
 
 ##
-Gingile amasamba, kyonga amaghana eryowa eriruma ly'esyanzuki ngabulikiro. "Mbwino ekyuna ekyasirimu kirihali omwamuthi", mwalengekania atya. Amatasehetuka okwawundi musale. Omwanya werilhangira echihembo kyesyanzuki, mwayisangana maso kwa meso na w'engwe. W'angwe mwahithana akalangire Gingile akasamusumbugha omwathulho twiwe. W'angwe amaliba ameso, nerithanda obunu ndeke erikangania ameno awatwire pia pia pia.
+Gingile amasamba, kyonga amaghana eryowa eriruma ly'esyanzuki ngabulikiro. "Mbwino ekyuna ekyasirimu kirihali omwamuthi", mwalengekania atya. Amathasyahethuka okwawundi musale. Omwanya werilhangira ekyihembo kyesyanzuki, mwayisangana meso okwa meso na w'Engwe. W'Engwe mwahithana akalangire Gingile akasamusumbugha omwathulho thwiwe. W'Engwe amaliba ameso, nerithanda obunu ndeke erikangania ameno awathwire pia pia pia.
 
 ##
-Neryo w'angwe akinayiryatsira, Gingile mwayitsiada neryo ati akahamba omuthahi ebyalha byamataruka, nerisunukalha neryo amathoghera ahisi, erisina hekungudu, neribunika akakongulhu. Amaghenda akatsukuda lhubalhuba. Ekyomughisa mubuya, w'angwe abya inyakine mwothulho mwatatsomana erimuharambia. Wakanyonyi Ngede mwayisima kwanamatathuhulia. Kandi na Gingile mwasoma.
+Neryo w'Engwe akinayiryatsira, Gingile mwayitsiada neryo athi akahamba omuthahi ebyalha byamataruka, nerisunukalha neryo amathoghera ahisi, erisina hekungudu, neribunika akakongulhu. Amaghenda akatsukuda lhubalhuba. Ekyomughisa mubuya, w'Engwe abya inyakine mwothulho mwathatsomana erimuharambia. Wakanyonyi Ngede mwayisima kwanamatathuhulia. Kandi na Gingile mwasoma.
 
 ##
-Neryo abana ba Gingile bakabya bakowa omwatsi ono, bakasikaya Ngede nerimuha ekitsumbi. Obuthuku bakatheha obuchi bakalengaho erisighira echihembo ky'obunyunyu habw'omwembembetya w'obuchi!
+Neryo abana ba Gingile bakabya bakowa omwatsi ono, bakasikaya Ngede nerimuha ekitsumbi. Obuthuku bakatheha obukyi bakalengaho erisighira ekiihembo ky'obunyunyu habw'omwembembethya w'obukyi!
 
 ##
 * License: [CC-BY]

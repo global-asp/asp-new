@@ -13,13 +13,13 @@ Omuliro akatsumba.
 Omuliro akahuhaya.
 
 ##
-Omuliro akaleta ekyakakalha.
+Omuliro akaletha ekyakakalha.
 
 ##
 Samalira, omuliro!
 
 ##
-Omuliro ouwene.
+Omuliro uwene.
 
 ##
 Kandi awithe obuthoki bunene.

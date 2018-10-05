@@ -4,22 +4,22 @@
 Ngimba.
 
 ##
-Akasumba okuboko
+Akasumba okuboko.
 
 ##
-Ngakangathira ebyalha
+Ngakangathira ebyalha.
 
 ##
-Akayinanulha
+Akayinanulha.
 
 ##
-Akabirikira
+Akabirikira.
 
 ##
-Ngasubamo
+Ngasubamo.
 
 ##
-Akahulikirira
+Akahulikirira.
 
 ##
 Ukakolhaki?

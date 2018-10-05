@@ -1,58 +1,58 @@
 # Olwimbo lwa Sakima
 
 ##
-Sakima abye ikere nababuthi biwe haima n'amwali wabu oyuwabya inyawithe miaka ini. Babya bikere okwirima ly'omugaga. Akanyumba kabo akobunyatsi kabya okwamuheryo werilima lyemithi.
+Sakima aby'ikere nababuthi biwe haima n'amwali wabu oyuwabya inyawithe myaka ini. Babya bikere okwirima ly'omugaga. Akanyumba kabo akobunyatsi kabya okwamuheryo werilima lyemithi.
 
 ##
-Sakima abere akabya miaka isathu, mwabya ndimitime. Sakima abyamulhwana w'obwenge bunene.
+Sakima abere akabya emyaka isathu, mwabya ndimithime. Sakima abyamulhwana w'obwenge bunene.
 
 ##
-Sakima inyakakolha bindu binene ebyabandi bana abyemiaka mukagha batebangakolha. Ekyerileberako, inyakikalha nabalhume bakulhu omwabulambo nayo inyahanula okwamyatsi yabalhume bakulhu.
+Sakima inyakakolha bindu binene ebyabandi bana abemyaka mukagha batebangakolha. Ekyerileberyako, inyakikalha nabalhume bakulhu omwabulambo nayo inyahanulha okwamyatsi yabalhume bakulhu.
 
 ##
-Ababuthi ba Sakima babya bakakolere omulhume omugaga. Ibakalwa eka y'omwankyacha kutsibu. Sakima inyakasighalha eka namwaliwabo.
+Ababuthi ba Sakima babya bakakolera omulhume omugaga. Ibakalhwa eka y'omwangyakya kutsibu. Sakima inyakasighalha eka namwaliwabo.
 
 ##
-Sakima inyanzire erimba esyanyimbo. Kiro kighuma mama wiwe mwamubulya ati, "esyanyimbo esi ukasighirahayi, Sakima?"
+Sakima inyanzire eryimba esyanyimbo. Kiro kighuma mama wiwe mwamubulya athi, "esyanyimbo esi ukasyighirahayi, Sakima?"
 
 ##
-Sakima mwasubamu, "Sikakwama kyayasira mama. Ngasyowa omwamuthwe neryo inatsuka erimba".
+Sakima mwasubamu, "Sikakwama kyayasira mama. Ngasyowa omwamuthwe neryo inatsuka eryimba".
 
 ##
 Sakima inyanzire erimbira mwaliwabu, kulhabirirya obuthuku akabya inyakwire enzalha. Mwaliwabu inyakahulikirira esyanyimbo siwe kulhabirirya olhuwene. Neryo inyakahothola kulho.
 
 ##
-"Wanganasubamu, chisi mwanithu Sakima," mwaliwabu inyakamusaba. Sakima neryo inyakaligha erisubamu.
+"Wanganasubamu, kyiisi mwanithu Sakima," mwaliwabu inyakamusaba. Sakima neryo inyakaligha erisubamu.
 
 ##
-Kiro kighume omwigholhogholho, ababuthi babere bakakulhuka mubayihunira, neryo Sakima mwaminya at hali ekyabereho.
+Kiro kighume omwigholhogholho, ababuthi babere bakakulhuka mubayihunira, neryo Sakima mwaminya athi hali ekyabereho.
 
 ##
-"Ibwa kuthi mama, na Thatha, yebereki eyo?" Sakima mwabulyabo. Mubamusubirya bathi omulhwana womusyakulhu omugaga abulire. Omusyakulhu omugaga aly'omwabulighe bunene.
+"Ibwa kuthi mama, na Thatha, yabereki eyo?" Sakima mwabulyabo. Mubamusubirya bathi omulhwana womusyakulhu omugaga abulire. Omusyakulhu omugaga aly'omwabulighe bunene.
 
 ##
-"Nanganayamwimbira, neryo angatsanga tsanga." Sakima mwabwire ababuthi biwe. Aliriryo mutamuhira mwa maha. "Omulhume nimugaga, iwe wuli mulhwana ndimetime, ukalengekanaya olhwimbo lhwaghu lwanganayira ekyalhwangakola okwa mugaga?'
+"Nanganayamwimbira, neryo aniatsanga tsanga." Sakima mwabwire ababuthi biwe. Aliriryo mubathamuhira mwa maha. "Omulhume nimugaga, iwe wuli mulhwana ndimethime, ukalengekanaya olhwimbo lhwaghu lwanganayira ekyalhwangakolha okwa mugaga?'
 
 ##
-Sakima mwatalekereho, mwaliwabo nayo mwamuwatikya neribugha athi, "esyanyimbo sya Sakima sikanyiwatikaya omughulhe ngabya omwanzalha, neryo sinkabya netseme?" Omulhume omugaga nayo sanganatsangatsanga.
+Sakima mwathalekeraho, mwaliwabo nayo mwamuwathikya neribugha athi, "esyanyimbo sya Sakima sikanyiwathikaya omughulhu ngabya omwanzalha, neryo sindibya netseme?" Omulhume omugaga nayo sianganatsangatsanga.
 
 ##
-Ekindi kiro, neryo Sakima mwabwira mwaliwabo ati amwembethaye erimuhikya okwa w'omugaga.
+Ekindi kiro, neryo Sakima mwabwira mwaliwabo athi amwembembethaye erimuhikya okwa w'omugaga.
 
 ##
-Sakima mwimana hakuhi neridirisa erinene, neryo amatsuka erimba olhwimbo lhwiwe olhubuya, neryo omutwe w'omulhume omugaga amatsuka erihulhukirirya omw'adirisa.
+Sakima mwimana hakuhi neridirisa erinene, neryo amatsuka eryimba olhwimbo lhwiwe olhubuya, neryo omuthwe w'omulhume omugaga amatsuka erihulhukirirya omw'idirisa.
 
 ##
-Abakoli abosi neryo mubaleka erikolha bakathahulikirira olhwimbo lwa Sakima. Neryo omulhume mughuma mwabugha, "Sihali mundu namughuma oyuwamatalembalemba omugaga, nibughaambu omulhwana endimetime eyi yeyikendimulembalemba?
+Abakoli abosi neryo mubaleka erikolha bakathahulikirira olhwimbo lhwa Sakima. Neryo omulhume mughuma mwabugha, "Sihali mundu namughuma oyuwamathalembalemba omugaga, nibughaambu omulhwana endimetime eyi yeyikendimulembalemba?
 
 ##
-Sakima mwawunza erimba neryo amabinduka akanza erisuba ewabu. Neryo omulhume omugaga mwalhwa omunyumba neritibitha ati, "chisi chisi tasanzubiramo okwalhimbo".
+Sakima mwawunza eryimba neryo amabinduka akanza erisuba ewabu. Neryo omulhume omugaga mwalhwa omwanyumba neritibitha athi, "kyisi kyisi thasyanzubirayamo olhwimbo".
 
 ##
 Omwakatambi ako neryo abalhume babiri mubakabukalha ibanahekire omwana y'okwamuthi. Omwana w'omugaga abya inyabiriswiribwa, nerimusigha okw'anzira.
 
 ##
-Omulhume omugaga mwasima kutsibu akalhangira omwanawiwe. Mwasima Sakima erimutsangyatsangya. Neryo eriha Sakima y'ewasingya mwathalha omwana wiwe haima na Sakima b'omwasipatara. Sakima mwatambirwa ameso neryo mwatsuka erilhangira.
+Omulhume omugaga mwasima kutsibu akalhangira omwanawiwe. Mwasima Sakima erimutsangyatsangya. Neryo eriha Sakima y'ewasingya mwathwalha omwana wiwe haima na Sakima b'omwasipatara. Sakima mwathambirwa ameso neryo mwatsuka erilhangira.
 
 ##
 * License: [CC-BY]

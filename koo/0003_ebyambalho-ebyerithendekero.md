@@ -1,28 +1,28 @@
-# Esyongimba Syekisomo
+# Ebyambalho eby'erithendekero
 
 ##
-Ekiteteya ni kiri
+Ekiteteya ni kiri.
 
 ##
-Ekisomeko ni kinene
+Ekisomeko ni kinene.
 
 ##
-Ekikapa ni kinene
+Ekikapa ni kinene.
 
 ##
-Omukaba ono ni....
+Omukaba ono ni ...
 
 ##
-Esepeho eno ni nyike
+Esapeho eno ni nyike.
 
 ##
-Esya sitokingi ninguhi
+Esya sitokingi ninguhi.
 
 ##
-Aliryo esyangetha nimbyaka
+Aliryo esyangetha nimbyaka.
 
 ##
-... sikahika ndeke
+... sikahika ndeke.
 
 ##
 * License: [CC-BY-NC]

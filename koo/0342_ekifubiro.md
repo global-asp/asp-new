@@ -1,40 +1,40 @@
-# Ekifubiro
+# Ekifubiro.
 
 ##
 Kiro Kighuma, mama mwasa nebighuma.
 
 ##
-"Ebighuma tukendibirya'di?" mutwabulya. "Tukendibirya omw'igholho", mama mwabugha.
+"Ebighuma thukendibirya'di?" muthwabulya. "Thukendibirya omw'igholho", mama mwabugha.
 
 ##
 Mughalha wethu Rahim n'imweru. Akalyatsa kubuli kighuma, kandi akalya kutsibu.
 
 ##
-"Tasamalira ekya Rahim abirikolha!" Kaghalha kethu akalere mukabirikira. "Rahim sawithe ngeso."
+"Tasamalira ekya Rahim abirikolha!" Kaghalha kethu akalere mukabirikira. "Rahim siawithe ngeso."
 
 ##
 Mama abirihithana oku Rahim.
 
 ##
-Nethu twabirihithana oku Rahim. Kyonga ibwa Rahim iyo safereyo.
+Nethu thwabirihithana oku Rahim. Kyonga ibwa Rahim iyo sialeghene.
 
 ##
-"Obo siwendifubira Rahim?" kaghalhakethu akalere mukabulya.
+"Obo siwendisughira Rahim?" kaghalhakethu akalere mukabulya.
 
 ##
-"Rahim, siwukendiyigharukamu", mama mwabugha.
+"Rahim, siwukendiyikubyabomo", mama mwabugha.
 
 ##
-Rahim mwatsuka eriyilhwalirisya.
+Rahim mwatsuka eriyilhwalisisya.
 
 ##
-"Omunda yayi mukalhuma" Rahim mwabugha omw'abihwehwe.
+"Omwanda yayi mukalhuma" Rahim mwabugha omw'abihwehwe.
 
 ##
-Mama abya inyanasi ekindibyaho. Ebighuma byamamulhuma omwonda. Bikafubira Rahim.
+Mama abya inyanasi ekikendibyaho. Ebighuma byamamulhuma omwonda. Bikasughira Rahim.
 
 ##
-Neryo Rahim mwasaba ekighanyiro. "Sinendisasabya mudaku". Nethu mutwamughanyira kandi twamikirirya kwamatsira obudaku.
+Neryo Rahim mwasaba ekighanyiro. "Sinendisasabya mudaku". Nethu muthwamughanyira kandi thwamikirirya kwamatsira obudaku.
 
 ##
 * License: [CC-BY]

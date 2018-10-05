@@ -1,28 +1,28 @@
 # Erihuka
 
 ##
-Ngahata ebiribwa
+Ngahata ebiribwa.
 
 ##
-Ngasarasara esyanyinyi
+Ngasarasara esyanyinyi.
 
 ##
-Ngasaranga esya caroti
+Ngasaranga esya caroti.
 
 ##
-Ngowaya ebihimba
+Ngowaya ebihimba.
 
 ##
-Ngasara ebinyobwa
+Ngasara ebinyobwa.
 
 ##
-Ngasaranga esyanyinyi
+Ngasaranga esyanyinyi.
 
 ##
-Mama wayi akasaranga ebitunguru
+Mama wayi akasaranga ebitunguru.
 
 ##
-Ebitunguru bikaletha emisoni ukabisaranga
+Ebitunguru bikaletha emisoni ukabisaranga.
 
 ##
 * License: [CC-BY-NC]

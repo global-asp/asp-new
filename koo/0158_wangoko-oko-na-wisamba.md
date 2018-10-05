@@ -1,34 +1,34 @@
-# W'ankoko na W'isamba
+# wa'Ngoko oko na W'Isamba
 
 ##
-Kera kera, iya wankoko na w'samba babya banywani. Kandi babya bikere n'obuholho nebindi binyonyi. Aliriryo wankoko n'awisamba sibyabya byasi eriwulhuka.
+Kera kera, iya wa'Ngoko na w'Isamba babya banywani. Kandi babya bikere n'obuholho nebindi binyonyi. Aliriryo wa'Ngoko na w'Isamba sibyabya byasi eriwulhuka.
 
 ##
-Kiro kighuma, enzalha muyawa omwakihugho. W'isamba inyakaghenda lhughendo lhuli erirondia akalyo. Erisamba irikasubulha iryabirilhuha. "Nikwa ibwa hanatholere ihabya enzira eyirghenderamu" Isamba mwalengekania.
+Kiro kighuma, enzalha muyawa omwakihugho. W'Isamba inyakaghenda lhughendo lhuli erirondia akalyo. Erisamba irikasubulha iryabirilhuha. "Nikwa ibwa hanatholere ihabya enzira eyerighenderamu" w'Isamba mwalengekania.
 
 ##
-Wankoko abere akabuka amasa nekihanulho. Amatsuka erisorokya ebeya ebikathoghonga okwasindi nyonyi. Neryo amabwirasyo ati, "tulhandikanaye ebyeya neribiwatikania okwabyetu" wankoko amahanulha, "obundi byanganaleka itwa wulhuka"
+Wankoko abere akabuka amasa nekihanulho. Amatsuka erisorokya ebyeya ebikathoghonga okwasindi nyonyi. Neryo amabwirasyo athi, "tulhandikanaye ebyeya neribiwathikania okwabyethu" wa'Ngoko amahanulha, "obundi byanganaleka ithwa wulhuka"
 
 ##
-Erisamba lyeryanabya liwite enginzo eyikalhanda, neryo lyamatsuka eriyirandira kwebyeya. W'isamba mwayikolhera ebipupa bibiri ebiwene, neryo amawulhuka omwamwanya hali. W'ankoko nayo neryo amayibweka enginzo neryo amatsuka erilhanda, ibwa neryo amalhuha. Wankoko amasingha enginzo yokwa kabanda akatibitha omwa jokoni eriyahukira otwana twiwe.
+w'Isamba yowanabya awithe enginzo eyikalhanda, neryo mwatsuka eriyilhandira kwebyeya. W'Isamba mwayikolhera ebipupa bibiri ebyowene, neryo amawulhuka omwamwanya hali. W'Ngoko nayo neryo amayibweka enginzo neryo amatsuka erilhanda, ibwa neryo amalhuha. W'Ngoko amasingha enginzo yokwa kabada akathibitha omwa kyitsumbyo eriyahukira othwana thwiwe.
 
 ##
-Ebindi binyonyi byabere byalangire iya W'isamba akawulhuka omwamwanya, mubyasaba W'ankoko yenginzo nabyo byangayikolera ebipupa. Neryo katuku kake, enbinyonyi byamatsuka erisulha omwamwanya neriwulhuka.
+Ebindi binyonyi byabere byalangira iya w'Isamba akawulhuka omwamwanya, mubyasaba wa'Ngoko yenginzo nabyo byangayikolera ebipupa. Neryo kathuku kake, enbinyonyi byamatsuka erisulha omwamwanya neriwulhuka.
 
 ##
-Neryo enyonyi eyawunzerera erilhanda yabere yikasubulya enginzo, muyitasangana W'ankoko yahakuhi. Muyasighira enginzo y'obwana bwe w'ankoko. Neryo bwamatsuka erisatha omwanginzo, bwebere bwalhuha erisatha, bwamasighayo omwamusenyi.
+Neryo enyonyi eyawunzerera erilhanda yabere yikasubulya enginzo, muyithasangana wa'Ngoko yahakuhi. Muyasighira enginzo y'obwana bwa wa'Ngoko. Neryo bwamatsuka erisatha omwanginzo, bwabere bwalhuha erisatha, bwamasighayo omwamusenyi.
 
 ##
-Omwitungi, W'isamba amasubulha. Amasaba enginzo yiwe akatasyalhanda neribazirira ebyeya biwe ebyabya ibirimusunukalha habwo olhughendo lhuli. W'ankoko mwalebya okwa kabanda ahababya bakabikayo, siyiriho! Amalebye omwajokoni, siyiriyo, amalebya n'omwabalanzi, namo yamabya isiyirimo. Enginzo neryo yamabulirana.
+Omwithungyi, w'Isamba amasubulha. Amasaba enginzo yiwe akathasyalhanda neribazirira ebyeya biwe ebyabya ibyabirimusunukalhako habw'olhughendo lhuli. wa'Ngoko mwalebya okwa kabada ahababya bakabikayo, siyiriho! Amalebya kyitsumbyo, siyiriyo, amalebya n'omwabbalazi, namo yamabya isiyirimo. Enginzo neryo yamabulirana.
 
 ##
-"Tasamba kiro kiwuma" W'ankoko akayisengerezeya Erisamba. Ngendibanayo neryo wangabazirira ebyeya byaghu neriyarondia ebindi byalya. "Kale basi, kiro kiwuma kisa", W'isamba amaligha. "Wamabirilemwa iribana enginzo yaghe, ukendimbererya kawuma okwatwana twaghu mwandihi yenginzo yaghe. Sihali kabusa.
+"Thasamba kiro kiwuma" wa'Ngooko akayisengerezaya w'Isamba. Ngendibanayo neryo wangabazirira ebyeya byaghu neriyarondia ebindi byalya. "Kale basi, kiro kiwuma kisa", w'Isamba amaligha. "Wamabirilemwa iribana enginzo yaghe, ukendimbererya kawuma okwathwana thwaghu mwandihi yenginzo yaghe. Sihali kabusa.
 
 ##
-W'isamba abere akasubulha ekiro kyakabiri, akasangana W'ankoko inyanemukwesa omusenyi akarondia enginzo. Neryo enginzo muyitabanika. W'isamba mwawulhuka neriyabakulha akana kawuma okwatwana tw'enkoko. Neryo kyalekire bulikiro erisamba likabya likabanika ahali esyankoko, sikasangawa isinemukwesa sikarondia enginzo yabene.
+w'Isamba abere akasubulha ekiro kyakabiri, akasangana wa'Ngoko inyanemukwesa omusenyi akarondia enginzo. Neryo enginzo muyithabanika. W'Isamba mwawulhuka neriyabakulha akana kawuma okwathwana thwe'ngoko. Neryo kyalekire bulikiro erisamba likabya likabanika ahali esyangoko, sikasangawa isinemukwesa sikarondia enginzo yabene.
 
 ##
-W'ankoko akabya akalhangira ekitsutsu kyebipupa bya W'isamba, neryo yikapwirira otwana twayo, tubisame omwabithi kusangwa Isamba akendituheka. Otwana nato tikabugha tuthi, "nethu situli bachiru, tukenditibitha".
+wa'Ngoko akabya akalhangira ekitsutsu kyebipupa bya w'Isamba, neryo akapwirira othwana thwiwe, thubisame omwabithi kusangwa w'Isamba akendithuheka. Othwana natho thukabugha thuthi, "nethu sithuli bakyiro, thukendithibitha".
 
 ##
 * License: [CC-BY]

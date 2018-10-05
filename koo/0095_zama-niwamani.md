@@ -4,31 +4,31 @@
 Mughalha wethu omulere salibotsera lhuba. Ngabuka lhuba kusangwa ngawithe amani.
 
 ##
-Ninjye ngaleka omwisi inyingira.
+Ningye ngaleka omwisi inyingira.
 
 ##
-"Uli nyunyuzi yaghe yomwanjyacha", mama akabugha.
+"Uli ngununu yaghe yomwangyakya", mama akabugha.
 
 ##
 Ngayinabaya, sindiyisunza buwathikya.
 
 ##
-Ngaumira amaghetse mabisi haima na sabuni yabururu.
+Ngaumira amaghetse mabisi haima n'esabbuni ey'ebbururu.
 
 ##
-Mama akinyibukaya, "Kauleke eribirirwa ameno", Ngasubamo "eyihi sinangabirirwa nahake".
+Mama akanyibukaya, "Kauleke eribirirwa ameno", Ngasubamo "eyihi sinangabirirwa nahake".
 
 ##
-Ngabya nabirinaba, ngaramukaya sokulhu haima nasongali, neryo inabasunzira ekiro kibuya.
+Ngabya nabirinaba, ngaramukaya sokulhu haima na'songali, neryo inabasunzira ekiro kibuya.
 
 ##
-Hatya ngalimuyambalya, "ngali mukulhu hatya mama", ngabugha.
+Hathya ngalimuyambalya, "ngali mukulhu hathya mama", ngabugha.
 
 ##
-Hatya ngalimufunga amapese kandi nerikundika esyangetha syaghe.
+Hathya ngalimufunga amapese kandi nerikundika esyangetha syaghe.
 
 ##
-Ngalhangira ndi abanabethu abanzubireko, bakakwama ebiraghiro
+Ngalhangira nyithi abanabethu abanzubireko, bakakwama ebilhaghiro.
 
 ##
 Omwamasomo awosi ngakolha ndeke.

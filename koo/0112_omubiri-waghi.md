@@ -1,28 +1,28 @@
 # Omubiri Waghi
 
 ##
-Ngatibitha nawo.
+Ngathibitha nawo.
 
 ##
-Ngayitsiada nawo
+Ngayitsiada nawo.
 
 ##
-Ngahotholha nawo
+Ngahotholha nawo.
 
 ##
-Ngaziha nawo
+Ngaziha nawo.
 
 ##
-Ngayisumbanga nawo
+Nanganayitsiandanga nawo.
 
 ##
-Ngasamba omupira nawo
+Ngasamba omupira nawo.
 
 ##
-Ngabulirana nawo
+Ngabulirana/ngatswa nawo.
 
 ##
-Aliryo sinangawulhuka nawo
+Aliryo sinangawulhuka nawo.
 
 ##
 * License: [CC-BY-NC]

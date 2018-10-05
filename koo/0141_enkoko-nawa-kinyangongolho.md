@@ -1,44 +1,44 @@
 # Enkoko nawa Kinyangongolho
 
 ##
-Enkoko nawa Kinyangongolho babya banywani. Aliriryo ibakabera amalingwata. Kiro kighuma mubatwamo erisatha akapira bangalhangira oyuwasi kubo nganindi.
+Engoko nawa Kinyangongolho babya banywani. Aliriryo ibakabera amalingwatha. Kiro kighuma mubathwamo erisatha akapira bangalhangira oyuwasi kubo nganindi.
 
 ##
-Neryo mubaghenda omwakisambiro kyomupira. Wankoko amathibitha kutsibu, kyongo wakinyangongolho amamusingya erithibitha. Wankoko mwapika kutsibu hali, kyonga kinyangongolho iyo mwapika ibwa hali kutsibu. Neryo wankoko amatsuka eriyitsumanga neriyibughanganisya.
+Neryo mubaghenda omwakisathiro kyomupira. Wangoko amathibitha kutsibu, kyonga wakinyangongolho amamusingya erithibitha. Wangoko mwapika kutsibu hali, kyonga kinyangongolho iyo mwapika ibwa hali kutsibu. Neryo wangoko amatsuka eriyitsumanga neriyibughanganisya.
 
 ##
-Neryo bamatwamu erisatha esya peneti. Eritsuka Kinyangongolho mwatsuka omwagolo. Wankoko mwateba golo nguma. Omurundi wakabiri, Wankoko nayo amaya omwagola.
+Neryo bamathwamu erisatha esya peneti. Eritsuka Kinyangongolho mwatsuka omwagolo. Wangoko mwateba golo nguma. Omurundi wakabiri, Wangoko nayo amaya omwagola.
 
 ##
-Kinyangongolho amapika neryo amateba egolo. Kandi amatasachanga neryo amateba, kandi amakolesya n'omutwe neryo amateba, erilebya kinyangongolho inyamabiriteba esyagol itano.
+Kinyangongolho amapika neryo amateba egolo. Kandi amatasakyanga neryo amateba, kandi amakolesya n'omuthwe neryo amateba, erilebya kinyangongolho inyamabiriteba esyagolo ithano.
 
 ##
-Wankoko amatsuruma kwanamathalemwa, nerisingwa nabi. Kinyangongolho amakwama kyasekerera munywani wiwe ahabweritasingwa.
+Wangoko amatsuruma kwanamathalemwa, nerisingwa nabi. Kinyangongolho amakwama kyasekerera munywani wiwe ahabwerithasingwa.
 
 ##
-Neryo wa Nkoko nekinigha kinene, amatanda obunu neryo amasokolha nerimera wa Kinyangongolho.
+Neryo wa'Ngoko nekinigha kinene, amathanda obunu neryo amasokolha nerimera wa Kinyangongolho.
 
 ##
-Wankoko abere anemughenda akasuba eka, amasangana mama wa kinyangongolho. Mama wakinyangongolho amabulya wa Nkoko, "wanabwene omwana waghe kinyangongolho?" Wankoko mwayihunira. Mama wa Kinyangongolho neryo amatsuka eribya nobulighe.
+wa'Ngoko abere anemughenda akasuba eka, amasangana mama wa kinyangongolho. Mama wakinyangongolho amabulya oko, "wanabwene omwana waghe kinyangongolho?" Wankoko mwayihunira. Mama wa Kinyangongolho neryo amatsuka eribya nobulighe.
 
 ##
-Neryo mama wa Kinyangongolho mwowa akalenge kake ikanemubugha kati, " mama unzunire". Mama we Kinyangongolho amahulikirira ndeke, eriyowa akalenge ikakalwa omwanda ya wa Nkoko.
+Neryo mama wa Kinyangongolho mwowa akalenge kake ikanemubugha kati, "mama unzunire". Mama we Kinyangongolho amahulikirira ndeke, eriyowa akalenge ikakalhwa omwanda ya wa'Ngoko.
 
 ##
-Mama wa Kinyangongolha mwabirikira, "mwanawange, kolesaya amaghezi awembaghane," Ebinyangongolho bikabeha kutsibu neryo ibyalhuma omonda. Wankoko neryo akendilwalha omonda.
+Mama wa Kinyangongolho mwabirikira, "mwanawange, kolesaya amaghezi awembaghane," Ebinyangongolho bikabeha kutsibu neryo ibyalhuma omonda. wa'Ngoko neryo akendilhwalha omonda.
 
 ##
-Wankoko mwatsuka erisalha, nerituruka. Abirisalha kandi inyadola ebisalho, neryo esyatsihya nerikoholha, kinyangongolho kikabeha.
+wa'Ngoko mwatsuka erisalha, nerituruka. Abirisalha kandi inyadola ebisalho, nerithwa esyatsihya nerikoholha, ekinyangongolho kikabeha.
 
 ##
-Wankoko mwakoholha kutsibu nerisalha kuhika ahasalira ekinyangongolho. Neryo mama wa Kinyangongolho haima n'omwana wiwe muba kulhulhukira omwa muti eribisama Wankoko.
+wa'Ngoko mwakoholha kutsibu nerisalha kuhika ahasalira ekinyangongolho. Neryo mama wa Kinyangongolho haima n'omwana wiwe muba kulhulhukira omwa muthi eribisama wa'Ngoko.
 
 ##
-Neryo irilhwiririra naho, Wankoko, na Wakinyangongolho bwabiribya buyighu.
+Neryo erilhwiririra naho, wa'Ngoko, na wa'Kinyangongolho bwabiribya buyighu.
 
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Magriet Brink
+* Illustration: Winny Asara
 * Translation: Amos Mubunga Kambere
 * Language: koo

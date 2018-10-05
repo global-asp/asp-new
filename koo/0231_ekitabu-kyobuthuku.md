@@ -13,7 +13,7 @@ Obuthuku nihunga.
 Obuthuku nibithu.
 
 ##
-Obuthuku numbeho.
+Obuthuku nimbeho.
 
 ##
 Embulha yawire.

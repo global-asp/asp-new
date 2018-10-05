@@ -1,40 +1,40 @@
 # Tom omusuburi w'ameeru
 
 ##
-Tom akaheka endemere y'ameeru
+Tom akaheka endemere y'ameeru.
 
 ##
-Tom akaghenda omwakathale eriyaulya ameeru
+Tom akaghenda omwakathale eriyaghulya ameeru.
 
 ##
-Abandu omwakathale bakaulha ebitunda
+Abandu omwakathale bakaghlha ebitunda.
 
 ##
-Aliriryo sihali oyukawulha okwa ameeru a'Tom. Bakatwamo eriyaulha okwabandi bakali.
+Aliriryo sihali oyukawulha okwa ameeru a'Tom. Bakathwamo eriyaghulha okwabandi bakali.
 
 ##
-Omwa kyaro kyethu hano abaghole sibabakaulhaya e'bighuma, kutse amatunda. "ibwa iwe ulimulhumeki?" abandu bakayibulhaya.
+Omwa kyalo kyethu hano abaghole sibobakaghulhaya e'bighuma, kutse amatunda. "ibwa iwe ulimulhumeki?" abandu bakayibulhaya.
 
 ##
-Kyonga Tom iyo salitwika mwamukulho. Akahatikana inyanemubirikira ati, "bathami mughule okwamasukali ayi, erire kandi akasiha kutsibu".
+Kyonga Tom iyo salithwika mwamukulho. Akahathikana inyanemubirikira athi, "bathami mughule okwamasukali aya, erire kandi akasiha kutsibu".
 
 ##
-Omughule mughuma akimaya kisaki kighuma erulhusya okwalhughale. Akasamalira amasukale ndeke.
+Omughole mughuma akimaya kisaki kighuma erilhusya okwalhughale. Akasamalira amasukali ndeke.
 
 ##
-Omughole akaulha amasukali.
+Omughole akaghulha amasukali.
 
 ##
-Neryo nabandi bandu bamasa okwa kameza ka Tom. Bakaulha ameeru neriryawu.
+Neryo nabandi bandu bamasa okwa kameza ka Tom. Bakaghulha ameeru neriryawu.
 
 ##
-Katambi kake neryo olhughale lwamasighalha busa, Tom akatsuka eribara esy'ambulho.
+Katambi kake neryo olhughale lhwamasighalha busa, Tom akatsuka eribara esy'ambulho.
 
 ##
-Neryo Tom akaulha a sabuni, n'esukali, haima n'omugati. Mwahirabyo okwalhughale lwiwe.
+Neryo Tom akaghulha esabbuni, n'esukali haima n'omugati. Mwahirabyo okwalhughale lhwiwe.
 
 ##
-Tom akaheka olhughale lwiwe okwamutwe neryo akaghenda eka.
+Tom akaheka olhughale lhwiwe okwamuthwe neryo akaghenda eka.
 
 ##
 * License: [CC-BY]

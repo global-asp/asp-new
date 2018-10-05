@@ -4,7 +4,7 @@
 Kera kera habya omuyi mughuma owabya ikere n'obutseme.
 
 ##
-Isibalilwa kutse eritsumangana. Abana ibakawatikaya ababuthi babo eka kandi n'omwirima.
+Isibalilhwa kutse eritsumangana. Abana ibakawathikaya ababuthi babo eka kandi n'omwirima.
 
 ##
 Aliryo isibalikiriribawa erighenda hakuhi nomuliro.
@@ -19,19 +19,19 @@ Neryo omughuma okwabalhwana abya inyanzire erighenda okwamwisi.
 Nimwanabya anzire erighenda okwamwisi, baghalha babu mubamuhabulha ambu sikiwene, kusangwa omwisi akanyeghaya enimba.
 
 ##
-Obuthuku butebwabya buli, neryo mw'anyegha okwamwisi.
+Obuthuku buthebwabya buli, neryo mw'anyegha okwamwisi.
 
 ##
-Ikwa abana abenimba mubahunerera bakalhangira mughalha wabubo akany'enga neribumbutuka.
+Ikwa abana abenimba mubahunerera bakalhangira mughalha wabubo akany'enga neribbumbutuka.
 
 ##
-Abasighala mubatwa obwenge. Enimba eyabumbutukira ahisi mubatwamu erikolha ekinyonyi.
+Abasighalha mubathwa obwenge. Enimba eyabbumbutukira ahisi mubathwamu erikolha ekinyonyi.
 
 ##
-Mubathwalha ekinyonyi kighalhakyabubo okw'akitwa.
+Mubathwalha ekinyonyi kighalhakyabubo okw'akithwa.
 
 ##
-Neryo eryuba mulyalenga, ekinyonyi nakyo mukyaulhuka nerimba kuhikya omwankyakya.
+Neryo eryuba mulyalenga, ekinyonyi nakyo mukyaghulhuka neryimba kuhikya omwangyakya.
 
 ##
 * License: [CC-BY]
