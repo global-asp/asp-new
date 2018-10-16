@@ -1,4 +1,4 @@
-# Ekifubiro.
+# Ekifubiro
 
 ##
 Kiro Kighuma, mama mwasa nebighuma.

@@ -1,9 +1,7 @@
 # Erithuhulia ly'omunyabukyi
 
 ##
-Lhuno lhwolhughano lhwa Ngende, Omunyabukyi, haima n'omulwana omweru iya Gingile.
-
-Kiro kiwuma Gingile abere inyanemuhigha, mwowa omulenge oweribirikira lya Ngede. Neryo obunu bwa Gingile bwamatsuka erisonia sonia, namatande erithogha akalengekania obusihe bw'obukyi. Mwimana nerihulikirira ndeke nerisamalira omwamuthi kuhika ahalhangirira enyonyi omwamisale yomwamuthi eyighulhu. "Chitik-chitik-chitik," akanyonyi mukimba ikanemuyitsiadanga okwa mithahi yomwamuthi. "Chitik-Chitik-Chitik" mukimba ikanemuyitsiadanga okwamithahi nerilebya kati Gingile anamukakwama.
+Lhuno lhwolhughano lhwa Ngende, Omunyabukyi, haima n'omulwana omweru iya Gingile. Kiro kiwuma Gingile abere inyanemuhigha, mwowa omulenge oweribirikira lya Ngede. Neryo obunu bwa Gingile bwamatsuka erisonia sonia, namatande erithogha akalengekania obusihe bw'obukyi. Mwimana nerihulikirira ndeke nerisamalira omwamuthi kuhika ahalhangirira enyonyi omwamisale yomwamuthi eyighulhu. "Chitik-chitik-chitik," akanyonyi mukimba ikanemuyitsiadanga okwa mithahi yomwamuthi. "Chitik-Chitik-Chitik" mukimba ikanemuyitsiadanga okwamithahi nerilebya kati Gingile anamukakwama.
 
 ##
 Habere halhaba kipindi ky'esaha, mubabya ibamabirihika okwamuthi munene owabakahulha mwe fig(omutini). Ngede mwawulhuka neriyawa omwamisale. Neryo amathahumulira okwa muthahe mughuma nerihoriahoria Gingile ngoyukabugha ati, "sibwabunu, as'eno lero, ibwa walindireki?" Gingile mwalhangira esyanzuki ahisi yomuthi, aliriryo mwakwama kyeriyisigha Ngede.
