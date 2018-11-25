@@ -10,7 +10,7 @@ Deux girafes sont allées boire de l'eau.
 Il y a trois bisons et quatre oiseaux. Ils vont tous boire de l'eau.
 
 ##
-Cinq impalas et six porcs sauvages vont boire de l'eau.
+Cinq impalas et six phacochères vont boire de l'eau.
 
 ##
 Sept grenouilles et huit poissons sont dans l'eau.
