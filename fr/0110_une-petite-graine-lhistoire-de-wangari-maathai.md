@@ -7,16 +7,16 @@ Dans un village situé sur les flancs du Mont Kenya en Afrique de l'Est, une pet
 Wangari aimait beaucoup être dehors. Dans le potager de sa famille, elle faisait des trous dans le sol avec sa machette. Elle enfouissait des petites graines dans la terre chaude.
 
 ##
-Son moment favori de la journée était juste après le coucher du soleil. Quand il faisait trop nuit pour voir les plantes, Wangari savait qu'il était l'heure de rentrer à la maison. Pour rentrer, elle devait suivre des sentiers étroits à travers champs et traverser des rivières.
+Son moment préféré de la journée était juste après le coucher du soleil. Quand il faisait trop nuit pour voir les plantes, Wangari savait qu'il était l'heure de rentrer à la maison. Pour rentrer, elle devait suivre des sentiers étroits à travers champs et traverser des rivières.
 
 ##
-Wangari était une enfant intelligente et ne pouvait plus attendre pour aller à l'école. Mais sa mère et son père voulaient qu'elle reste à la maison pour les aider. Quand elle eut sept ans, son grand frère persuada ses parents de la laisser aller à l'école.
+Wangari était une enfant intelligente et avait hâte d'aller à l'école. Mais sa mère et son père voulaient qu'elle reste à la maison pour les aider. Quand elle eut sept ans, son grand frère persuada ses parents de la laisser aller à l'école.
 
 ##
 Elle aimait apprendre ! Wangari apprenait de plus en plus avec chaque livre qu'elle lisait. Elle travaillait si bien à l'école qu'elle fut invitée à étudier aux Etats Unis d'Amérique. Wangari était enthousiaste ! Elle voulait en savoir plus sur le monde.
 
 ##
-A l'université américaine, Wangari apprit plein de nouvelles choses. Elle étudia les plantes et la manière dont elles grandissent. Et elle se rappela comment elle avait grandi : en jouant avec ses frères à l'ombre des arbres dans les magnifiques forêts du Kenya.
+A l'université américaine, Wangari apprit beaucoup de choses nouvelles. Elle étudia les plantes et la manière dont elles grandissent. Et elle se rappela comment elle avait grandi : en jouant avec ses frères à l'ombre des arbres dans les magnifiques forêts du Kenya.
 
 ##
 Plus elle apprenait, plus elle réalisait qu'elle aimait les habitants du Kenya. Elle voulait qu'ils soient heureux et libres. Plus elle apprenait, plus elle se rappelait son foyer africain.
@@ -34,7 +34,7 @@ Avec le temps, les nouveaux arbres se transformèrent en forêts, et les rivièr
 Wangari avait travaillé dur. Partout dans le monde, les gens s'en aperçurent et lui donnèrent un prix renommé. Il s'appelle le Prix Nobel de la Paix et elle fut la première femme africaine à le recevoir.
 
 ##
-Wangari mourut en 2011 mais nous pensons à elle chaque fois que nous voyons un bel arbre.
+Wangari mourut en 2011 mais nous pensons à elle à chaque fois que nous voyons un bel arbre.
 
 ##
 * License: [CC-BY]

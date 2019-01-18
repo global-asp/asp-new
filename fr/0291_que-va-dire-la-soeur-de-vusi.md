@@ -37,7 +37,7 @@ Mais là l'heure du souper la vache s'échappa et retourna chez le fermier. Et V
 « Que dois-je faire ? » s'écria Vusi. « La vache qui s'est enfuie était un cadeau, en échange du foin, que les constructeurs m'ont donné. Les constructeurs m'ont donné le foin, car ils ont cassé le bâton des cueilleurs de fruits. Les cueilleurs de fruits m'ont donné le bâton parce qu'ils ont cassé l'œuf pour le gâteau. Le gâteau était pour le mariage. Maintenant il n'y a pas d'œuf, pas de gâteau, et aucun cadeau ».
 
 ##
-La sœur de Vusi réfléchit un moment, puis elle a dit, « Vusi mon frère, les cadeaux me sont égaux. Je ne me soucie pas non plus du gâteau ! Nous sommes ici tous ensemble, je suis heureuse. Maintenant va mettre sur tes vêtements de fête et célébrons ce jour ! » Et c'est ce que fit Vusi.
+La sœur de Vusi réfléchit un moment, puis elle a dit, « Vusi mon frère, les cadeaux me sont égaux. Je ne me soucie pas non plus du gâteau ! Nous sommes ici tous ensemble, je suis heureuse. Maintenant va mettre tes vêtements de fête et célébrons ce jour ! » Et c'est ce que fit Vusi.
 
 ##
 * License: [CC-BY]

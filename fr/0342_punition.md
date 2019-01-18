@@ -28,7 +28,7 @@ Nous aussi, nous sommes fâchés contre Rahim. Mais Rahim ne regrette rien.
 Rahim ne se sent pas bien.
 
 ##
-Il gémit : « J'ai mal au ventre ! »
+Il gémit: « J'ai mal au ventre ! »
 
 ##
 Maman savait que cela arriverait. Ce sont les fruits qui punissent Rahim !
