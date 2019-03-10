@@ -34,13 +34,13 @@ Quand la nuit tomba ils retournèrent à la maison pour souper. Ils se sont endo
 Le lendemain, le père des enfants est retourné à la ville, les laissant avec Nyar-Kanyada.
 
 ##
-Odongo et Apiyo ont aidé leur grand-mère à faire les tâches ménagères. Ils sont allés chercher de l'eau et du bois de chauffage. Ils ont ramasséles œufs des poules et ont cueilli des herbes aromatiques dans le jardin.
+Odongo et Apiyo ont aidé leur grand-mère à faire les tâches ménagères. Ils sont allés chercher de l'eau et du bois de chauffage. Ils ont ramassé les œufs des poules et ont cueilli des herbes aromatiques dans le jardin.
 
 ##
 Nyar-Kanyada a montré à ses petits-enfants comment faire de l'ugali mou pour manger avec du ragoût. Elle leur a montré comment faire du riz de noix de coco pour manger avec du poisson grillé.
 
 ##
-Un matin, Odongo a mené paîtreles vaches de sa grand-mère. Elles ont couru dans la ferme d'un voisin. Le fermier était fâché envers Odongo. Il a menacé de garder les vaches parce qu'elles avaient mangé ses récoltes. À partir de ce jour-là, le garçon a veillé à ce que les vaches ne fassent pas d'autres bêtises.
+Un matin, Odongo a mené paître les vaches de sa grand-mère. Elles ont couru dans la ferme d'un voisin. Le fermier était fâché envers Odongo. Il a menacé de garder les vaches parce qu'elles avaient mangé ses récoltes. À partir de ce jour-là, le garçon a veillé à ce que les vaches ne fassent pas d'autres bêtises.
 
 ##
 Un autre jour, les enfants sont allés au marché avec Nyar-Kanyada. Elle avait un stand pour vendre des légumes, du sucre et du savon. Apiyo aimait donner le prix des articles aux clients. Odongo emballait ce que les clients achetaient.
@@ -58,8 +58,7 @@ Quand leur père est venu les chercher, ils ne voulaient pas partir. Les enfants
 Odongo et Apiyo l'ont tous les deux embrassée fort et lui on dit au revoir.
 
 ##
-Quand Odongo et Apiyo sont retournés à l'école ils ont raconté leurs histoires de la vie dans le village à leurs amis. Certains enfants croyaient que la vie en ville était bonne. D'autres étaient de l'avis que le village était meilleur. S
-Et surtout, ils étaient tous d'accord que Odongo et Apiyo avaient une grand-mère merveilleuse !
+Quand Odongo et Apiyo sont retournés à l'école ils ont raconté leurs histoires de la vie dans le village à leurs amis. Certains enfants croyaient que la vie en ville était bonne. D'autres étaient de l'avis que le village était meilleur. Et surtout, ils étaient tous d'accord que Odongo et Apiyo avaient une grand-mère merveilleuse !
 
 ##
 * License: [CC-BY]

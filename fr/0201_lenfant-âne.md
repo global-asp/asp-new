@@ -16,7 +16,7 @@ L'enfant arriva bientôt. « Pousse ! » « Apportez des couvertures ! » « De 
 Mais quand ils virent le bébé, tous firent un saut en arrière. « Un âne ?! »
 
 ##
-Tout le monde commença à se disputer. « Nous avions dit que nous garderions mère et enfant en sécurité et c'est ce que nous ferons, » dirent quelques-uns. « Mais ils vont nous porter malchance ! » direntd'autres.
+Tout le monde commença à se disputer. « Nous avions dit que nous garderions mère et enfant en sécurité et c'est ce que nous ferons, » dirent quelques-uns. « Mais ils vont nous porter malchance ! » dirent d'autres.
 
 ##
 Ainsi, la femme se retrouva seule encore une fois. Elle se demanda quoi faire de cet enfant embarrassant. Elle se demanda quoi faire d'elle-même.

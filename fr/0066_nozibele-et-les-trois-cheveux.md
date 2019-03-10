@@ -10,7 +10,7 @@ C'était une journée très chaude, alors elles sont descendues à la rivière p
 Soudainement, elles se sont rendu compte qu'il était tard. Elles se sont dépêchées de rentrer au village.
 
 ##
-Mais quand elles étaient presque arrivées chez elles, Nozibele mit sa main à son cou. Elle avait oublié son collier ! « S'il vous plaît, retournez avec moi ! »supplia-t-elle ses amies. Mais ses amies lui dirent que c'était trop tard.
+Mais quand elles étaient presque arrivées chez elles, Nozibele mit sa main à son cou. Elle avait oublié son collier ! « S'il vous plaît, retournez avec moi ! » supplia-t-elle ses amies. Mais ses amies lui dirent que c'était trop tard.
 
 ##
 Ainsi Nozibele retourna à la rivière toute seule. Elle trouva son collier et se dépêcha de rentrer chez elle. Mais elle se perdit dans le noir.

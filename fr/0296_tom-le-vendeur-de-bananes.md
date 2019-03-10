@@ -13,7 +13,7 @@ Les gens au marché achètent des fruits.
 Mais personne n'achète les bananes de Tom. Ils préfèrent acheter leurs fruits des femmes.
 
 ##
-« Dans notre communauté, seulement les femmes vendent des fruits, » disent les gens . « Quelle sorte d'homme est celui-ci ? » demandent les gens.
+« Dans notre communauté, seulement les femmes vendent des fruits, » disent les gens. « Quelle sorte d'homme est celui-ci ? » demandent les gens.
 
 ##
 Mais Tom ne démissionne pas. Il crie, « Achetez mes bananes ! Achetez mes bananes mûres et sucrées ! »

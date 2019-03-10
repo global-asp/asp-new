@@ -7,7 +7,7 @@ Le jardin de grand-mère était merveilleux – plein de sorgho, de millet et de
 Un jour, je vis un grand panier de paille placé au soleil devant la maison de grand-mère. Quand je lui ai demandé à quoi il servait, pour seule réponse, elle me dit : « C'est mon panier magique. » A côté du panier, il y avait plusieurs feuilles de bananier que grand-mère retournait de temps en temps. J'étais curieuse. « A quoi servent ces feuilles, grand-mère ? » demandai-je. Mais pour seule réponse, elle me dit : « Ce sont mes feuilles magiques. »
 
 ##
-C'était fascinant de regarder grand-mère, les bananes, les feuilles de bananier et le grand panier de paille. Mais grand-mère m'envoya retrouver maman pour aller chercher quelque-chose. « Grand-mère, s'il te plaît, laisse-moi regarder ce que tu prépares... « Ne sois pas têtue, petite, fais ce que je te demande » insista-t-elle. Je partis donc en courant.
+C'était fascinant de regarder grand-mère, les bananes, les feuilles de bananier et le grand panier de paille. Mais grand-mère m'envoya retrouver maman pour aller chercher quelque-chose. « Grand-mère, s'il te plaît, laisse-moi regarder ce que tu prépares... » « Ne sois pas têtue, petite, fais ce que je te demande » insista-t-elle. Je partis donc en courant.
 
 ##
 A mon retour, grand-mère était assise dehors, mais il n'y avait plus ni panier, ni bananes. « Grand-mère, où est le panier, où sont toutes les bananes, et où est ... « Mais pour seule réponse, elle me dit : « Ils sont dans mon lieu magique. » J'étais très déçue.
@@ -28,7 +28,7 @@ Le lendemain, alors que grand-mère était dans le jardin en train de ramasser d
 Le lendemain, c'était le jour du marché. Grand-mère se réveilla très tôt. Elle prenait toujours du manioc et des bananes mûres pour les vendre sur le marché. Ce jour-là, je ne me suis pas dépêchée pour aller lui rendre visite. Mais je n'allais pas pouvoir l'éviter bien longtemps.
 
 ##
-Plus tard ce soir-là, ma mère, mon père et grand-mère m'ont appelée. Je savais pourquoi. Cette nuit là quand je me suis couchée, je savais que je ne pourrais plus jamais voler, ni ma grand-mère, ni mes parents, ni qui que ce soit d'autre.
+Plus tard ce soir-là, ma mère, mon père et ma grand-mère m'ont appelée. Je savais pourquoi. Cette nuit là quand je me suis couchée, je savais que je ne pourrais plus jamais voler, ni ma grand-mère, ni mes parents, ni qui que ce soit d'autre.
 
 ##
 * License: [CC-BY]

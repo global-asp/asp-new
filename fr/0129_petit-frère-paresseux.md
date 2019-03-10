@@ -24,6 +24,6 @@ Pourquoi est-ce que je travaille si fort... ... quand mon frère est en train de
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Alexandra Danahy
 * Language: fr

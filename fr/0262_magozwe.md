@@ -4,7 +4,7 @@
 Dans la ville animée de Nairobi, loin d'un climat familial attentif et aimant, vivait un groupe de jeunes sans-abris. Ils vivaient au jour le jour. Un matin, les garçons remballaient leurs matelas après avoir dormi sur le trottoir tout froid. Pour braver le froid, ils avaient fait un feu à l'aide de détritus. Parmi ces jeunes garçons se trouvait Magozwe. C'était le plus jeune d'entre eux.
 
 ##
-Quand Magozwe perditses parents, il n'avait que cinq ans. Après leur décès, il alla s'installer avec son oncle, mais ce dernier n'avait pas une once d'affection pour Magozwe. Il ne lui donnait pas assez de nourriture et le faisait travailler le très dur.
+Quand Magozwe perdit ses parents, il n'avait que cinq ans. Après leur décès, il alla s'installer avec son oncle, mais ce dernier n'avait pas une once d'affection pour Magozwe. Il ne lui donnait pas assez de nourriture et le faisait travailler le très dur.
 
 ##
 Si Magozwe avait le malheur de se plaindre ou de répliquer, son oncle le frappait. Quand Magozwe demandait s'il pouvait aller à l'école, son oncle le frappait de plus belle, lui disant : « Tu es trop stupide pour apprendre quoi que ce soit ». Après avoir supporté ce traitement pendant trois ans, Magozwe s'enfuit de chez son oncle et commença à vivre dans la rue.
@@ -16,10 +16,10 @@ La vie dans la rue était difficile et la plupart des garçons avaient du mal à
 Un jour, Magozwe fouilla dans la poubelle et trouva un vieux livre. Il le dépoussiéra et le mis dans son sac. Les jours suivants, il prit l'habitude de sortir son livre de son sac et d'en regarder les images. Il ne savait pas lire.
 
 ##
-Les images racontaient l'histoire d'un garçon qui, quand il étaitdevenu grand, devint pilote. Magozwe rêvait qu'il était pilote. Quelquefois, il imaginait qu'il était le garçon dans l'histoire.
+Les images racontaient l'histoire d'un garçon qui, quand il était devenu grand, devint pilote. Magozwe rêvait qu'il était pilote. Quelquefois, il imaginait qu'il était le garçon dans l'histoire.
 
 ##
-Il faisait froid. Magozwe se tenait dans la rue mendiant, quand soudain un homme s'approcha de lui et dit : « Bonjour, je m'appelle Thomas. Je travaille tout près d'ici, dans un endroit où tu pourras manger », dit-il. Il lui montra au loin une maison jaune au toit bleu. « J'espère que tu viendras manger», lui dit-il. Magozwe regarda l'homme, puis la maison, et lui répondit : « Peut-être », puis il s'en alla.
+Il faisait froid. Magozwe se tenait dans la rue mendiant, quand soudain un homme s'approcha de lui et dit : « Bonjour, je m'appelle Thomas. Je travaille tout près d'ici, dans un endroit où tu pourras manger », dit-il. Il lui montra au loin une maison jaune au toit bleu. « J'espère que tu viendras manger », lui dit-il. Magozwe regarda l'homme, puis la maison, et lui répondit : « Peut-être », puis il s'en alla.
 
 ##
 Les mois suivants, le jeune sans-abri avait pris l'habitude de voir Thomas dans les parages. Il aimait parler avec les gens qui vivaient dans la rue. Thomas écoutait les histoires que lui racontaient les gens. Il était sérieux, patient. Il n'était jamais impoli ni irrespectueux. Certains garçons commencèrent à se rendre à la maison jaune et bleue pour avoir un repas à midi.
@@ -34,7 +34,7 @@ Quand ils se rencontraient, Magozwe commençait à raconter son histoire à Thom
 Autour du dixième anniversaire de Magozwe, Thomas lui offrit un nouveau livre. C'était l'histoire d'un jeune villageois qui, quand il fut devenu grand, devint joueur de football. Thomas lut cette histoire à Magozwe maintes et maintes fois, jusqu'au jour où il lui dit : « Je pense qu'il est temps que tu ailles à l'école apprendre à lire. Qu'en penses-tu ? » Thomas lui expliqua qu'il connaissait un endroit où les enfants pouvaient rester et aller à l'école.
 
 ##
-Magozwe pensa à ce nouvel endroit et à l'idée d'aller à l'école. Et si son oncle avait raison, s'il était vraiment trop stupide pour apprendre quoi que ce soit ?» Et si on le battait dans ce nouvel endroit ? Il avait peur. « Peut-être serait-il plus judicieux de rester vivre dans la rue », pensait-il.
+Magozwe pensa à ce nouvel endroit et à l'idée d'aller à l'école. Et si son oncle avait raison, s'il était vraiment trop stupide pour apprendre quoi que ce soit ? Et si on le battait dans ce nouvel endroit ? Il avait peur. « Peut-être serait-il plus judicieux de rester vivre dans la rue », pensait-il.
 
 ##
 Il partagea ses craintes avec Thomas. Avec le temps, Thomas parvint à le rassurer en lui expliquant que la vie là-bas pourrait être meilleure.

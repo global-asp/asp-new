@@ -10,7 +10,7 @@ Après une heure et demie, ils atteignirent un figuier sauvage énorme. Ngede sa
 Alors, Gingile déposa sa lance sous l'arbre, recueilli des brindilles séchées et alluma un petit feu. Une fois que le feu brûlait bien, il mit une longue branche au cœur du feu. Ce bois était connu pour la fumée qu'il créait quand il brûlait. Gingile commença à grimper, tenant entre ses dents le bout froid de la branche qui fumait.
 
 ##
-Bientôt il pouvait entendre le bourdonnement bruyant des abeilles affairées . Elles rentraient et sortaient d'un creux dans le tronc d'arbre - leur ruche. Lorsque Gingile arriva à la ruche il mit le bout fumant de la branche dans le creux. Les abeilles sortirent, fâchées et méchantes. Elles s'envolèrent parce qu'elles n'aimaient pas la fumée - mais pas avant d'avoir piqué douloureusement Gingile !
+Bientôt il pouvait entendre le bourdonnement bruyant des abeilles affairées. Elles rentraient et sortaient d'un creux dans le tronc d'arbre - leur ruche. Lorsque Gingile arriva à la ruche il mit le bout fumant de la branche dans le creux. Les abeilles sortirent, fâchées et méchantes. Elles s'envolèrent parce qu'elles n'aimaient pas la fumée - mais pas avant d'avoir piqué douloureusement Gingile !
 
 ##
 Quand les abeilles furent sorties, Gingile enfonça ses mains dans le nid. Il sortit des poignées de rayons de miele d'abeilles desquelles s'écoulait du miel riche et des larves grasses et blanches. Il mit soigneusement le nid dans la besace qu'il portait sur son épaule et commença à descendre de l'arbre.
