@@ -27,6 +27,6 @@ Ibitunguru bintera kurira iyo bikase.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Patrick Munyurangabo
 * Language: rw

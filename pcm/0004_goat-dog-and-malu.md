@@ -27,6 +27,6 @@ Cow no send if moto dey come or not. Na yanga e dey take waka for road as e no o
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Anthonia Ujene
 * Language: pcm

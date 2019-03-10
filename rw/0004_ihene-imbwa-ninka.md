@@ -27,6 +27,6 @@ Inka yo ntacyo yikanga iyo imodoka ije. Inka ifata akanya kayo ikambu umuhanda k
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Patrick Munyurangabo
 * Language: rw

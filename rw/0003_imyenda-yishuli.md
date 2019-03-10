@@ -27,6 +27,6 @@ Ariko izi nkweto ni shya.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Patrick Munyurangabo
 * Language: rw

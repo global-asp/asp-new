@@ -27,6 +27,6 @@ Nikwa ibwa iyo'ende syalitsomana nimu'angowa omuhumo w'emotoka. Ende yikakyiruka
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Amos Mubunga Kambere
 * Language: koo
