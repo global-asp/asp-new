@@ -1,28 +1,28 @@
-# Je lƐ mlitsakemƆ he wolo
+# Je lɛ mlitsakemɔ he wolo
 
 ##
-Je lƐ mli egbi.
+Je lɛ mli egbi.
 
 ##
-Hulu lƐ naa wa.
+Hulu lɛ naa wa.
 
 ##
-KƆƆyƆƆ miitswa.
+Kɔɔyɔɔ miitswa.
 
 ##
-NugbƆ ewo.
+Nugbɔ ewo.
 
 ##
-FƐi miiye.
+Fɛi miiye.
 
 ##
-NugbƆ miinƐ.
+Nugbɔ miinɛ.
 
 ##
 Kukurudu miishi.
 
 ##
-Mina kwaabuƐtƐ.
+Mina kwaabuɛtɛ.
 
 ##
 * License: [CC-BY-NC]

@@ -1,37 +1,37 @@
-# Tingi kƐ tsinai lƐ
+# Tingi kɛ tsinai lɛ
 
 ##
-Tingi kƐ enaa hi shi.
+Tingi kɛ enaa hi shi.
 
 ##
-EkƐ lƐ kwƐƆ tsinai lƐ anƆ.
+Ekɛ lɛ kwɛɔ tsinai lɛ anɔ.
 
 ##
-Gbi ko lƐ asraafoi lƐ ba.
+Gbi ko lɛ asraafoi lɛ ba.
 
 ##
-AmƐkƐ tsinai lƐ tee.
+Amɛkɛ tsinai lɛ tee.
 
 ##
-Tingi kƐ enaa lƐ jo foi ni amƐyatee.
+Tingi kɛ enaa lɛ jo foi ni amɛyatee.
 
 ##
-AmƐtee yƐ jwƐi amli kƐyashi nyƆƆŋ mli.
+Amɛtee yɛ jwɛi amli kɛyashi nyɔɔŋ mli.
 
 ##
-Ni asraafoi lƐ ba ekooŋ.
+Ni asraafoi lɛ ba ekooŋ.
 
 ##
-Tingi naa kƐ lƐ tee yƐ bai lƐ ashishi.
+Tingi naa kɛ lɛ tee yɛ bai lɛ ashishi.
 
 ##
-Asraafoi lƐ ekome kƐ enane ma enƆ, shi efee diŋŋ.
+Asraafoi lɛ ekome kɛ enane ma enɔ, shi efee diŋŋ.
 
 ##
-Beni jƐmƐ jƆ lƐ, Tingi kƐ enaa lƐ je kpo.
+Beni jɛmɛ jɔ lɛ, Tingi kɛ enaa lɛ je kpo.
 
 ##
-AmƐwamƆ kƐtee shia diŋŋ.
+Amɛwamɔ kɛtee shia diŋŋ.
 
 ##
 * License: [CC-BY]
