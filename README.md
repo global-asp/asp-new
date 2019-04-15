@@ -15,6 +15,7 @@ ISO Code | Name
 am | Amharic
 dag | Dagbani
 fr | French
+gaa | Ga
 koo | Lukhonzo
 luo | Dholuo
 om | Oromo
