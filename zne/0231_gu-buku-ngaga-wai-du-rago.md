@@ -1,32 +1,32 @@
 # Gu buku ngaga wai du rago
 
 ##
-Ti ni uguhe
+Ti ni uguhe.
 
 ##
-Uru ni fafai he gbe
+Uru ni fafai he gbe.
 
 ##
-tini kikihe
+Tini kikihe.
 
 ##
-Tina dia rago dunduko
+Tina dia rago dunduko.
 
 ##
-Tini zezerehe
+Tini zezerehe.
 
 ##
-Tina na awere
+Tina na awere.
 
 ##
-Gumba gudu yore
+Gumba gudu yore.
 
 ##
-mina bi wangu
+Mina bi wangu.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Isaac Monday E. Mangu
-* Language: Zande
+* Translation: Isaac Monday Elisama
+* Language: zne
