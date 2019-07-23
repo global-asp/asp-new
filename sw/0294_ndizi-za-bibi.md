@@ -7,10 +7,10 @@ Bibi alikuwa na bustani nzuri iliyojaa mtama, ulezi na mihogo. Lakini kati ya ma
 Siku moja niliona tenga kubwa limeanikwa juani nje ya nyumba ya bibi. Nilipouliza lilikuwa la nini, jibu pekee nililopata lilikuwa, "Hilo ni tenga langu la maajabu." Pembeni mwa tenga lile kulikuwa na majani ya ndizi ambayo bibi alikuwa akiyageuza kila mara. Nilipatwa na shauku. "Bibi, hayo majani ni ya nini?" niliuliza. Jibu pekee nililopata lilikuwa, "Ni majani yangu ya maajabu."
 
 ##
-Nilikuwa na shauku kubwa kumwangalia bibi, ndizi, majani ya ndizi na tenga kubwa. Lakini bibi alinituma kwenda kwa mama. "Bibi, tafadhali naomba nitazame unavyoandaa …" "Usiwe msumbufu, fanya ulichoambiwa," alisisitiza. Nikaondoka nikikimbia.
+Nilikuwa na shauku kubwa kumwangalia bibi, ndizi, majani ya ndizi na tenga kubwa. Lakini bibi alinituma kwenda kwa mama. "Bibi, tafadhali naomba nitazame unavyoandaa..." "Usiwe msumbufu, fanya ulichoambiwa," alisisitiza. Nikaondoka nikikimbia.
 
 ##
-Niliporudi, bibi alikuwa amekaa nje, ila hakukuwa na tenga wala ndizi. "Bibi, tenga liko wapi, zile ndizi ziko wapi, na …" Jibu pekee nililopata lilikuwa, "Zipo kwenye eneo la maajabu." Ilikuwa inasikitisha.
+Niliporudi, bibi alikuwa amekaa nje, ila hakukuwa na tenga wala ndizi. "Bibi, tenga liko wapi, zile ndizi ziko wapi, na..." Jibu pekee nililopata lilikuwa, "Zipo kwenye eneo la maajabu." Ilikuwa inasikitisha.
 
 ##
 Siku mbili baadaye, bibi alinituma kwenda chumbani kwake kumletea mkongojo. Mara tu baada ya kufungua mlango, nilikaribishwa na harufu kali ya ndizi mbivu. Pembeni mwa chumba kulikuwa na tenga kubwa la maajabu la bibi. Lilikuwa limefichwa na blanketi la zamani. Nikaliinua na kunusa ile harufi nzuri.
