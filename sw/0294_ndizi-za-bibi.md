@@ -19,7 +19,7 @@ Siku mbili baadaye, bibi alinituma kwenda chumbani kwake kumletea mkongojo. Mara
 Sauti ya bibi ilinishtua alipoita, "Unafanya nini? Fanya haraka niletee mkongojo." Nikaharakisha kwenda nje na mkongojo wake. "Unatabasamu nini?" bibi aliuliza. Swali lake likanifanya nigundue kuwa kumbe bado nilikuwa ninatabasamu baada ya kugundua eneo lake la maajabu.
 
 ##
-Siku iliyofuata bibi alipokuja kumtembelea mama yangu, nikakimbilia nyumbani kwake kuangalia ndizi tena. Kulikuwa na vichana vya ndizi zilizoiva. Nikachukua ndizi moja na kuificha kwenye nguo yangu. Baada ya kufunika tenga tena, nikaenda nyuma ya nyumba na harakaharaka nikaila. Ilikuwa ni ndizi tamu ambayo sijawahi kula kamwe.
+Siku iliyofuata bibi alipokuja kumtembelea mama yangu, nikakimbilia nyumbani kwake kuangalia ndizi tena. Kulikuwa na vichane vya ndizi zilizoiva. Nikachukua ndizi moja na kuificha kwenye nguo yangu. Baada ya kufunika tenga tena, nikaenda nyuma ya nyumba na harakaharaka nikaila. Ilikuwa ni ndizi tamu ambayo sijawahi kula kamwe.
 
 ##
 Siku iliyofuata, bibi alipokuwa bustanini akichuma mboga, nikanyemelea ndani kuchungulia ndizi. Karibu zote zilikuwa zimeiva. Nikashindwa kujizuia nikachukua kichane cha ndizi nne. Nilipokuwa nanyata kuelekea mlangoni, nikamsikia bibi akikohoa nje. Nilifanikiwa kuzificha ndizi ndani ya nguo yangu na tukapishana bila ya kugundua.
