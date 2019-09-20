@@ -23,6 +23,7 @@ pcm | Nigerian pidgin
 rw | Kinyarwanda
 so | Somali
 sw | Kiswahili
+tum | Tumbuka
 zne | Zande
 zu | Zulu
 
