@@ -16,6 +16,8 @@ am | Amharic
 dag | Dagbani
 fr | French
 gaa | Ga
+ki | Kikuyu
+kln | Kalenjin
 koo | Lukhonzo
 luo | Dholuo
 om | Oromo
