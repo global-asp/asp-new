@@ -13,6 +13,7 @@ The repo currently includes the following languages, arranged by [ISO 639-1](htt
 ISO Code | Name
 -------- | ----
 am | Amharic
+bem | Icibemba
 dag | Dagbani
 fr | French
 gaa | Ga
@@ -20,6 +21,7 @@ ki | Kikuyu
 kln | Kalenjin
 koo | Lukhonzo
 luo | Dholuo
+ny | Cinyanja
 om | Oromo
 pcm | Nigerian pidgin
 rw | Kinyarwanda
