@@ -4,8 +4,6 @@
 Nalitemwa ukubelenga.
 
 ##
-Kuti na belengela nani
-
 Bushe nani nalabelengela?
 
 ##
