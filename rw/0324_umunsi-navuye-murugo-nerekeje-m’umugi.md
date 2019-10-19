@@ -1,7 +1,7 @@
-# Umunsi navuye murugo nerekeje m'umugi.
+# Umunsi navuye murugo nerekeje m'umugi
 
 ##
-Sitasiyo nto ya bisi mu igiturage cyange yari ihuze n'abantu n'amabisi apakiwe cyane. Kubutaka hari hakiri nindi bintu byo gupakira. abakonvayeri barimo bahamagara amazina yaho bisi zari zigiye.
+Sitasiyo nto ya bisi mu igiturage cyange yari ihuze n'abantu n'amabisi apakiwe cyane. Kubutaka hari hakiri nindi bintu byo gupakira. Abakonvayeri barimo bahamagara amazina yaho bisi zari zigiye.
 
 ##
 "Umugi! Umugi! Ugiye m'uburengerazuba!" Narunvije amukonvayeri avuga. Iyo niyo busi nagombaga gufata.
