@@ -4,7 +4,7 @@
 Umurima wa nyogokuru wari mwiza, wuzuye amasaka, uburo, n'imyumbati. Ariko ibyiza kurushaho byari ibitoki. Nubwo nyogokuru yararafite abuzukuru benshi, mwibanga narinziko ndi umutoneshwa we. Yantumiraga kenshi munzu ye. Kandi yabwiraga amabanga mato. Ariko hari ibanga rimwe atigeze ansangiza: aho yataraga ibitoki.
 
 ##
-Umunsi umwe nabonye igitebo giteretse kuzuba hanze y'inzu ya nyogokuru. Mubajije icyo aricyo, igisubizo cyonyine yampaye ni, "Ni igisabo cya maje." Iruhande rw'igisabo. hari amakoma menshi nyogokuru yuburaga igihe kimwe na kimwe. Narinfite amatsiko. "Aya makoma ni ayiki, nyogoku?" narabajije. Igisubizo cyonyine nabonye ni. "Ni amakoma ya maje zange."
+Umunsi umwe nabonye igitebo giteretse kuzuba hanze y'inzu ya nyogokuru. Mubajije icyo aricyo, igisubizo cyonyine yampaye ni, "Ni igisabo cya maje." Iruhande rw'igisabo. Hari amakoma menshi nyogokuru yuburaga igihe kimwe na kimwe. Narinfite amatsiko. "Aya makoma ni ayiki, nyogoku?" narabajije. Igisubizo cyonyine nabonye ni. "Ni amakoma ya maje zange."
 
 ##
 Narinshishikajwe cyane no kureba nyogokuru, ibitoki, amakoma niigisabo. Ariko nyogokuru yanyohereje gufasha mama, "Nyogoku, mbabarira, undeke ndebe uri gutegura..." "Ntiwinangire, mwana, kora nkuko ubwiwe," arahatiriza. Ngenda nirukanka.
