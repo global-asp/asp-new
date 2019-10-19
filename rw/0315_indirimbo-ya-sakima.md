@@ -19,7 +19,7 @@ Sakima yakundaga kuririmba indirimbo. Umunsi umwe nyine yaramubajije, "Ni hehe w
 Sakima yarasubije, "Ziraza, maa, nzunva mumutwe wange ubundi nkaziririmba."
 
 ##
-Sakima yakundaga kuririmbira mushiki we muto, cyane cyane, iyo yasonzaga. mushiki we yuga indirimbo ye yakundaga. Yahitaga aceceka kubera ijyana ituje.
+Sakima yakundaga kuririmbira mushiki we muto, cyane cyane, iyo yasonzaga. Mushiki we yuga indirimbo ye yakundaga. Yahitaga aceceka kubera ijyana ituje.
 
 ##
 "wakongeye ukayiririmba nanone, Sakima," mushiki we yaramusabaga. Sakima yaremeraga akongera akaririmba kenshi.
