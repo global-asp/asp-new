@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-Mu mugi uhuze wa Nairobi, kure yotwitwabwaho kumuntu murugo, habaga abahungu binzererezi/mayibobo. Bakiraga buri munsi uko uje. Igitondo kimwe, abahungu barimo kuzinga imisambi yabo nyuma yokuryama kuri sima zikonje. Kwirukana ubukonje batwitse imyanda. muri gurupe y'abasore harimo Magozwe. Niwe wari umwana muto.
+Mu mugi uhuze wa Nairobi, kure yotwitwabwaho kumuntu murugo, habaga abahungu binzererezi/mayibobo. Bakiraga buri munsi uko uje. Igitondo kimwe, abahungu barimo kuzinga imisambi yabo nyuma yokuryama kuri sima zikonje. Kwirukana ubukonje batwitse imyanda. Muri gurupe y'abasore harimo Magozwe. Niwe wari umwana muto.
 
 ##
 Ubwo ababyeyi ba Mugozwe bapfaga, yari afite imyaka itanu gusa. Yagiye kubana na nyirarume we. Uyu mugabo ndiyigeze yita ku umwana. Ntiyigeze aha Mugozwe ibiryo bihagije. Yakoreshaga umuhungu imirimo byinshi ikomeye.
