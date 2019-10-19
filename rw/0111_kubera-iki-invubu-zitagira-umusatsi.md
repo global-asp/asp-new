@@ -16,7 +16,7 @@ Invubu yasabye imbabazi urukwavu, "Mbabarira cyane. Sinigeze nkubona. Ihangane u
 Urukwavu rwaragiye gushaka umuriro ruravuga, "genda utwike invubu niva mu amazi kurya ibyatsi. Yarangandagiye!" Umuriro warasubishe, "Ntakibazo, rukwavu, nshuti yange. Nzakora icyo unsabye."
 
 ##
-Nyuma, invubu yaririmo kurya ibyatsi kure hitaruye umugezi ubwo, "Whoosh!" Umuriro wagurumanaga. ibirimi byatangiye gutwika umusatsi w'invubu.
+Nyuma, invubu yaririmo kurya ibyatsi kure hitaruye umugezi ubwo, "Whoosh!" Umuriro wagurumanaga. Ibirimi byatangiye gutwika umusatsi w'invubu.
 
 ##
 Invubu yatangiye kurira iriruka isanga amazi. Umusatsi wose wari watwitswe n'umuriro. Invubu yakomeze kurira, "Umusatsi wange watwitswe n'umuriro! Umusatsi wange wose wagiye! Umusatsi wange mwiza!"
