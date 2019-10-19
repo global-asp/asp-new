@@ -4,7 +4,7 @@
 Kare mu Igitondo kimwe nyirakuru wa Vusi yaramuhamagaye, "Vusi, mbabarira ujyane iri gi ku ababyeyi bawe. Barashaka gukora keke nini y'ubukwe bwa mushiki wawe".
 
 ##
-Munzira ajya kubabyeyi be, Vusi yahuye n'abahungu babiri batoragura imbuto. Umwe yashikuje igi Vusi aritera ku igiti. ryagi rirameneka.
+Munzira ajya kubabyeyi be, Vusi yahuye n'abahungu babiri batoragura imbuto. Umwe yashikuje igi Vusi aritera ku igiti. Ryagi rirameneka.
 
 ##
 "Nibiki mukoze?" Vusi yararize. "Iryo gi ryari iryo gukora keke. Keke yari iy'ubukwe bwa mushiki wange. Niki mushiki wange aribuvuge nimba nta keke y'ubukwe?"
