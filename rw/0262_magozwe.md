@@ -19,7 +19,7 @@ Umunsi umwe ubwo Magozwe yararimo areba mu indobo z'imyanda, yabonye igitabo k'i
 Amashusho yavugaga inkuru y'umuhungu wakuze kuba umutwazi w'indege (umupirote). Magozwe yarotaga yabaye umupirote. Rimwe na rimwe, yategerezaga ko ariwe muhungu mu inkuru.
 
 ##
-Hari hakonje na Magozwe yari ahagaze kumuhanda asabiriza. Umugabo yaraje amusanga. "Bite, nitwa Tomasi. Nkora hafi aha, ahantu ushobora kugira icyo kurya," Umugabo aravuga. Yatunze urutoki ku inzu y'umuhondo n'urusenge rw'ubururu. "Nizeye ko uribugeyo gufata ibiryo?" Yarabashije. Magozwe yarebye umugabo, nyuma areba inzu. "bishoboke,"aravuga, ahita agenda.
+Hari hakonje na Magozwe yari ahagaze kumuhanda asabiriza. Umugabo yaraje amusanga. "Bite, nitwa Tomasi. Nkora hafi aha, ahantu ushobora kugira icyo kurya," Umugabo aravuga. Yatunze urutoki ku inzu y'umuhondo n'urusenge rw'ubururu. "Nizeye ko uribugeyo gufata ibiryo?" Yarabashije. Magozwe yarebye umugabo, nyuma areba inzu. "Bishoboke," aravuga, ahita agenda.
 
 ##
 Mu amezi yakurikiye, abahungu b'inzererezi bamenyereye kubona Tomasi aho. Yakundaga kuvugisha abantu ku mihanda. Tomasi yategaga amatwi inkuru z'ubuzima bw'abantu. Yari yikomereye anihanganye, nta bwirasi cyangwa se kubahuka. Abahungu bamwe batangiye kujya kunzu y'umuhondo n'usenge rw'ubururu gufata ibiryo hagati y'umunsi (saa sita).
