@@ -28,7 +28,7 @@ Sakima yakundaga kuririmbira mushiki we muto, cyane cyane, iyo yasonzaga. Mushik
 Ikigoroba kimwe ubwo ababyeyi be bagarukaga murugo, bari bacecetse. Sakima yaraziko hari ikintu kitari kiza.
 
 ##
-"Ni iki kitari kiza? Sakima yarabajije. Sakima yamenye ko umuhungu w'umugabo w'umukire yabuze. Umugabo yari ababaye cyane anigunze.
+"Ni iki kitari kiza?" Sakima yarabajije. Sakima yamenye ko umuhungu w'umugabo w'umukire yabuze. Umugabo yari ababaye cyane anigunze.
 
 ##
 "Nshobora kumuririmbira. Ashobora kongera akishima." Sakima yabwiye ababyeyi be. Ariko ababyeyi be baramwangiye. "Ni umukire cyane. Uri umwana w'impumbi gusa. Uratekereza ko indirimbo yawe iribumufashe?"
