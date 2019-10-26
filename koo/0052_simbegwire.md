@@ -25,7 +25,7 @@ Kiro kighuma, omwangyakya, Simbagwire mwatselewa erilwa omwa kakyingo kiwe. "Iwe
 Simbagwire mwahithana kutsibu. Neryo amathwamo erithibitha erilhwa omwa muyi. Amaboha othubbulangiti twiwe, amaboha netwalya, neryo amaghenda. Mwakwama olhuyira olhwa thatha wiwe alhabamo ekiro aghenda.
 
 ##
-Obuthuku bwabere bukira, neryo amasamba omwa muthi hakuhi nolhusi, neryo amakolha engyingo yiwe omwamuthi. Abere akayawotsera, amimba olhwimbo: "Maama, maama, maama, muwanzigha. Muwanzigha kandi wamaani subulha. Thatha syakyinyanzire. Mama, ghukendisyasubulha kiro kyahi? Wabirinzigha.
+Obuthuku bwabere bukira, neryo amasamba omwa muthi hakuhi nolhusi, neryo amakolha engyingo yiwe omwamuthi. Abere akayawotsera, amimba olhwimbo: "Maama, maama, maama, muwanzigha. Muwanzigha kandi wamaani subulha. Thatha syakyinyanzire. Mama, ghukendisyasubulha kiro kyahi? Wabirinzigha."
 
 ##
 Omwangyakya ekindi kiro, Simbagwire mwimba olhwimbo lhwiwe kandi. Abaghole babere bakasa erisoya ebisomeko byabo, mubowa olhwimbo lhw'obulighe lhukalhwa omwa muthi. Mubalengekania ambu obundi nirihunga likaghendesaya emithi, neryo mubathatsomana. Aliryo omughuma okwabaghole mwahulikirira olhwimbo lhwandeke.
