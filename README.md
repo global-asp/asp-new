@@ -25,6 +25,7 @@ ny | Cinyanja
 om | Oromo
 pcm | Nigerian pidgin
 rw | Kinyarwanda
+sg | Sango
 so | Somali
 sw | Kiswahili
 tum | Tumbuka
