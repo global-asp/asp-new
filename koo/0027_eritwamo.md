@@ -34,7 +34,7 @@ Thatha waghi mw'aghenda okobuli muyi akabwira abandu athi base omwa lhuhindano.
 Abandu mubasongasongania ahisi y'omuthi munene nerihulikirira.
 
 ##
-Thatha wayi mwahangana inyanimubugha ati, "thutholere erikolera haghuma thwangaghunza ebitsibu byethu.
+Thatha wayi mwahangana inyanimubugha ati, "thutholere erikolera haghuma thwangaghunza ebitsibu byethu."
 
 ##
 Juma, ow'emiaka munani, inyanikere omwa muthi mwabirikira, "naghe nanganawathikya okwibirya".
