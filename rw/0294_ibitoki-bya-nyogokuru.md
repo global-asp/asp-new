@@ -16,7 +16,7 @@ Ngarutse, nyogokuru yari yicaye hanze ariko nta gisabo ntan'ibitoki. "Nyogoku ig
 Iminsi ibiri ishize, nyogokuru yantumye gushaka akabando ke mu icyumba. Nkimara gufungura umuryango, nakiriwe n'impumuro ikomeye y'imineke. Mu icyumba mo imbere niho hari igisabo cya maji cya nyogokuru. Cyari gihijwe neza n'ikirangiti gishaje. Naragitwikuruye nihumereza iyo mpumuro nziza.
 
 ##
-Ijwi rya nyogokuru ryarankanze ubwo yahamagaraga, "Uri gukora iki? Ihute unzanire akabando." Narihuze nsohokana akabando ke. "Uri gusetswa n'iki? Nyogokuru yarabajije. Ikibazo cye cyanteye kumenya ko narinkiri guseka kubera kuvumbura ahantu ha maji he.
+Ijwi rya nyogokuru ryarankanze ubwo yahamagaraga, "Uri gukora iki? Ihute unzanire akabando." Narihuze nsohokana akabando ke. "Uri gusetswa n'iki?" Nyogokuru yarabajije. Ikibazo cye cyanteye kumenya ko narinkiri guseka kubera kuvumbura ahantu ha maji he.
 
 ##
 Umunsi ukurikiye ho ubwo nyogokuru yari yaje gusura mama, nirukankiye munzu ye kureba imineke rimwe nanone. Hari imineke ihiye cyane myinshi. Nafashe umwe ndawuhisha mu ikanzu yange. Ndangije gupfundikira igisabo neza nanone, nagiye inyuma y'inzu ndawurya byihuse. Wari umuneke uryoshye cyane nigeze rya.
