@@ -13,7 +13,7 @@ Abantu kw'isoko bari kugura imbuto.
 Ariko ntan'umwe uri kugura imineke ya Tom. Bariguhitamo kugura imputo z'abagore.
 
 ##
-"Mu muryango mugari wacu, abagore bonyine nibo bagurisha imbuto," abantu baravuga. "Uyu ni mugabo ki? abantu barabaza.
+"Mu muryango mugari wacu, abagore bonyine nibo bagurisha imbuto," abantu baravuga. "Uyu ni mugabo ki?" abantu barabaza.
 
 ##
 Ariko Tom ntago ahara. Arahamagara, "Gura imineke yange! Gura imineke yange iryoshye ihiye!"
