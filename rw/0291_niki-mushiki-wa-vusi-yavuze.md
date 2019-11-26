@@ -37,7 +37,7 @@ Ariko inka yarirukatse isanga umuhinzi mugihe cyamafunguro yanimugoroba. Na Vusi
 "Niki nakora?" Vusi yararize. "Inka yirukatse yari impano, kubw'ibyatsi abubatsi bari bampaye. Abubatsi bampaye ibyatsi kubera ko baciye inkoni nari nahawe n'abasoromyi. Abasoromyi bampaye inkoni kubera ko bamennye igi. Keke yari iy'ubukwe. Ubu ntagi, nta keke, ntan'impano."
 
 ##
-Mushiki wa Vusi yatekereje akanya, arangije aravuga, Vusi musaza wange, ntago nitaye ku mpano. Ntanubwo nitaye kuri keke! Turi hano twese hamwe, ndishimye. Ubu amambara imyenda yawe myiza, twizihize uyu munsi!" Kandi nibyo Vusi yakoze.
+Mushiki wa Vusi yatekereje akanya, arangije aravuga, "Vusi musaza wange, ntago nitaye ku mpano. Ntanubwo nitaye kuri keke! Turi hano twese hamwe, ndishimye. Ubu amambara imyenda yawe myiza, twizihize uyu munsi!" Kandi nibyo Vusi yakoze.
 
 ##
 * License: [CC-BY]
