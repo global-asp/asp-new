@@ -25,7 +25,7 @@ Igitondo kimwe, Simbegwire yatinze guva mu buriri. "Wowe mukobwa w'umunebwe!" At
 Simbegwire yari arakaye cyane. Yanzuye kwiruka agahunga iwabo. Yatwaye ibice by'igirangiti cya nyina, apakira ibiryo, ava mu inzu. Yakurikiye inzira se yafashe.
 
 ##
-Ubwo byageraga nimugoroba, yuriye igiti kirekire hafi yiribi, anakora uburiri mumashami. Ari gusinzira, yarariribye: "maama, maama, maama, waransize. Waransize kandi ntuzagaruka. Dada ntakingunda. Mama, uzagaruka ryari? Waransize.
+Ubwo byageraga nimugoroba, yuriye igiti kirekire hafi yiribi, anakora uburiri mumashami. Ari gusinzira, yarariribye: "maama, maama, maama, waransize. Waransize kandi ntuzagaruka. Dada ntakingunda. Mama, uzagaruka ryari? Waransize."
 
 
 ##
