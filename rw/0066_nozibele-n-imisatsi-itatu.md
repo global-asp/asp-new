@@ -22,7 +22,7 @@ Mu intabwe yabonye urumuri ruva munzu. Yihuse ayisanga, arakomanga ku urugi.
 Atungirwa nuko ari imbwa yafunguye urugi, iravuga, "urashaka iki?" "Nabuze ndashaka aho kuryama," Nozibele yaravuze. "injira cyangwa se nkurume!" Imbwa yaravuze. Nozibele arinjira.
 
 ##
-Imbwa irangije iravuga, "ntekera!" Ariko sindigera ntekera imbwa mbere," Arasubiza. "Teka cyangwa se nkurume!" Imbwa yaravuze. Ubwo Nozibele yatetse ibiryo by'imbwa.
+Imbwa irangije iravuga, "ntekera!" "Ariko sindigera ntekera imbwa mbere," Arasubiza. "Teka cyangwa se nkurume!" Imbwa yaravuze. Ubwo Nozibele yatetse ibiryo by'imbwa.
 
 ##
 Birangije imbwa iravuga, "nkorera uburiri!" Nozibele arasubiza, "sindigera nkora uburiri bw'imbwa." "Nkorera uburiri cyangwa nkurume!" Ubwi Nozibele yakoze uburiri.
