@@ -22,8 +22,7 @@ Elyo kabili, Khalai alalaanda kulupango lwesukulu ati: "We lupango ube uwakosa s
 Khalai nga ainuka lyonse, alaya mukupempula icimuti camacungwa nokucipuusha ati: "Bushe amacungwa yobe nanoomba tayalapya?"
 
 ##
-"The oranges are still green," sighs Khalai. "I will see you tomorrow orange tree," says Khalai. "Perhaps then you will have a ripe orange for me!"
-"Ooh! Amacungwa yacili ayabishi. Nkesa kumonako mailo, limbi nkasanga amacungwa yobe nayapya."
+"Aaaa!" Amacungwa yacili ayabishi, Nkesa kumonako nakabili mailo, limbi nkasangako nangu icungwa limo nalipya.
 
 ##
 * License: [CC-BY]
