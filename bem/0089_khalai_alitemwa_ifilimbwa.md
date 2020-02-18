@@ -1,4 +1,4 @@
-# Khalai alitemwa Ifilimbwa
+# Khalai alitemwa ifilimbwa
 
 ##
 Uyu ni Khalai. Ali nemyaka cinelubali. Mu Cibemba, Ishina lyakwe lipilibula "umuntu umusuma".
