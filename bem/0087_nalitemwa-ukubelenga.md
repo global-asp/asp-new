@@ -1,28 +1,28 @@
-# Nalitemwa Ukubelenga!
+# Nalitemwa ukubelenga!
 
 ##
 Nalitemwa ukubelenga.
 
 ##
-Bushe nani nalabelengela?
+Naani nalaabelengela?
 
 ##
-Nkashi yandi nasendama.
+Nkashi yandi nalaala.
 
 ##
-Bushe nani nalabelengela?
+Naani nalaabelengela?
 
 ##
-Bamayo na bamama bali nemilimo.
+Bamaayo nabamaama bali nencito.
 
 ##
-Bushe nani nalabelengela?
+Naani nalaabelengela?
 
 ##
-Batata na bashikulu bali nemilimo.
+Bataata na bashikulu bali nencito.
 
 ##
-Bushe nani nalabelengela? Nalaibelengela nemwine!
+Naani nalaabelengela? Kanshi nalaibelengelafye nemwine!
 
 ##
 * License: [CC-BY]
