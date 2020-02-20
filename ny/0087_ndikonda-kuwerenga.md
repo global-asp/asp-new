@@ -1,4 +1,4 @@
-# Ndikonda Kuwerenga!
+# Ndikonda kuwerenga!
 
 ##
 Ndikonda kuwerenga.
@@ -7,22 +7,22 @@ Ndikonda kuwerenga.
 Kodi ndizawerengera ndani?
 
 ##
-Mulongosi wanga aligone.
+Mulongo wanga agona.
 
 ##
 Kodi ndizawerengera ndani?
 
 ##
-Amai ndi agogo ali kugwila nchito.
+Amai ndi agogo ndi otangwanika.
 
 ##
 Kodi ndizawerengera ndani?
 
 ##
-Atate ndi asukulu ali kugwila nchito.
+Atate ndi asukulu ndi otangwanika.
 
 ##
-Kodi ndizawerengera ndani? Ndingaziwerengere ndekha.
+Kodi ndizawerengera ndani? Ndingaziwerengere!
 
 ##
 * License: [CC-BY]

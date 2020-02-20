@@ -28,5 +28,5 @@ Naani nalaabelengela? Kanshi nalaibelengelafye nemwine!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Agnes Chileshe Chibamba
+* Translation: Agnes Chileshe Chibamba, Margaret Nambao
 * Language: bem
