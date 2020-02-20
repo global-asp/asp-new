@@ -28,4 +28,5 @@ Aaaa! Amacungwa yacili ayabishi! Nkesa kumonako nakabili mailo. Limbi nkasangako
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
+* Translation: Margaret Nambao, Chibamba Chileshe
 * Language: bem
