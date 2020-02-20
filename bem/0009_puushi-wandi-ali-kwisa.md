@@ -22,7 +22,7 @@ Bushe ali mu bashiketi?
 Bushe ali panse ya ng'anda?
 
 ##
-uyu ali kuno!
+Uyu ali kuno!
 
 ##
 * License: [CC-BY-NC]
