@@ -28,4 +28,5 @@ Khalai nga ainuka lyonse, alaya mukupempula icimuti camacungwa nokucipuusha ati:
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
+* Translation: Margaret Nambao, Chibamba Chileshe
 * Language: bem
