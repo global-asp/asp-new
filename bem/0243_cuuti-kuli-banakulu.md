@@ -65,5 +65,5 @@ Ilyo Odongo na Apiyo baabweleelemo kusukulu bashimikileko abanaabo pamikalile iy
 * License: [CC-BY]
 * Text: Violet Otieno
 * Illustration: Catherine Groenewald
-* Translation: Margaret Nambao
+* Translation: Margaret Nambao, Agnes Chileshe Chibamba
 * Language: bem
