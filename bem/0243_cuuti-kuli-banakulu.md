@@ -6,7 +6,7 @@ Odongo na Apiyo baleeikala nabawishi kukalaale. Balekabila saana ukuya pacuti. T
 ##
 Odongo na Apiyo baali sansamwike saana ilyo inshita yakuya muku tandalila banakulu yafikile nakabili. Ubushiku balaliile ubulendo, baalongele ifipe fyabo ukupekanya ubulendo ubuutali ubwakuya kumushi. Ubushiku ubo, tabaaleele iyo, baaceseshe fye ukulanda palicuti.
 
-## 
+##
 Ubushiku bwakonkelopo uluceelo-ceelo, baimine ubulendo bwakuya kumushi muli motoka yabaawishi. Munshila, bapitile mumpili, bakumenye ne nama shampanga elyo bapitile namu mabala yatii. Munshila balepeenda bamotoka nokwiimba inyimbo.
 
 ##
@@ -26,7 +26,7 @@ Panuma yakwisula ifyabupe, Nyar-Kanyada apaalile abeeshikulu bakwe ukulingana ne
 Panuma yaifi fyonse elyo Odongo na Apiyo baile panse mukwikate fipelebesha neefyuuni.
 
 ##
-Baleniina ifimuti elyo nokusansana  ameenshi ayamuli beemba.
+Baleniina ifimuti elyo nokusansana ameenshi ayamuli beemba.
 
 ##
 Ilyo pafiitile, babweleleemo kung'anda mukulya icakulya cacungulo-bushiku. Ilyo baali tabalapwisha nokulya, baponeene namutulo! 
@@ -41,7 +41,7 @@ Odongo na Apiyo baale afwa banakulu imilimo yonse iya pang'anda. Baaletapa amens
 Banakulu bafundile abeeshikulu baabo ifyakunaya ubwali ubwakuliila no munaani. Alibalangile nefyakwipika umupuunga uwakuliila nesabi ilyakooca.
 
 ##
-Bushiku bumo, Odongo ailemukucema ing'ombe shabanakulu. Ing'ombe shabutukilile mwibala lya bena mupalamano. Umwine webala aafuliilwe Odongo pafyacitiike.  Mukumutinyafye, amwebele ukuti alamupoka ingombe nokusuunga pakumuliila ifisabo fyakwe. Ukufuma apo, umulumendo aaliposeleko amano ukumona ukuti ingombe tashileetele imilandu nakabili.
+Bushiku bumo, Odongo ailemukucema ing'ombe shabanakulu. Ing'ombe shabutukilile mwibala lya bena mupalamano. Umwine webala aafuliilwe Odongo pafyacitiike. Mukumutinyafye, amwebele ukuti alamupoka ingombe nokusuunga pakumuliila ifisabo fyakwe. Ukufuma apo, umulumendo aaliposeleko amano ukumona ukuti ingombe tashileetele imilandu nakabili.
 
 ##
 Ubushiku bumbi, abaana baile na Nyar-Kanyada ku maliketi. Akwete icintamba apo aleshitiisha umusaalu, shuga elyo na sopo. Apiyo atemenwe ukweba abantu umutengo wafintu baleshitisha. Odongo atemenwe ukulonga ifintu ifyo abantu baaleeshita.
@@ -59,7 +59,7 @@ Ilyo bawishi baishile mukubasenda, tabaleefwaya ukubwelelamo. Abaana bapaapaatil
 Odongo na Apiyo bakumbatiile banakulu nokutila shalenipo.
 
 ##
-Ilyo Odongo na Apiyo baabweleelemo kusukulu bashimikileko abanaabo pamikalile iyakumushi. Abana bamo bamweene ukuti ubwikalo bwamukalaale bwawamapo ukucila kumushi.  Bambi nabo bamwene kwati ubwikalo bwakumushi bwawamapo. Nomba panuma, abaana bonse basumiinishe ukuti Odongo na Apiyo baalikwata nakulu uwa mutima uusuma.
+Ilyo Odongo na Apiyo baabweleelemo kusukulu bashimikileko abanaabo pamikalile iyakumushi. Abana bamo bamweene ukuti ubwikalo bwamukalaale bwawamapo ukucila kumushi. Bambi nabo bamwene kwati ubwikalo bwakumushi bwawamapo. Nomba panuma, abaana bonse basumiinishe ukuti Odongo na Apiyo baalikwata nakulu uwa mutima uusuma.
 
 ##
 * License: [CC-BY]
