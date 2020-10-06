@@ -29,6 +29,7 @@ sg | Sango
 so | Somali
 sw | Kiswahili
 tum | Tumbuka
+yo | Yoruba
 zne | Zande
 zu | Zulu
 
