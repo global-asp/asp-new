@@ -28,6 +28,7 @@ rw | Kinyarwanda
 sg | Sango
 so | Somali
 sw | Kiswahili
+ti | Tigrinya
 tum | Tumbuka
 yo | Yoruba
 zne | Zande
