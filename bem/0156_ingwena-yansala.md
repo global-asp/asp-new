@@ -4,13 +4,10 @@
 Ubushiku bumo kwali Ing'wena yali nensala saana.
 
 ##
-Yalefwaya ifyakulya mumutalalila ukwabula ukupanga ichongo.
+Yalefwaya ifyakulya mumutalalila ukwabula ukupanga ichongo. Elyo nomba...
 
 ##
-Elyo nomba
-
-##
-Wiyu! kucheshuko, Ing'wena yaikata icakulya.
+Wiyu!!! Kucheshuko, Ing'wena yaikata icakulya!
 
 ##
 Panuma yakulya, Ing'wena tayaumfwilepo insala nelyo panono elo yalifye iyasekelela nganshi.

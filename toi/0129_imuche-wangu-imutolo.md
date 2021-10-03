@@ -19,10 +19,9 @@ Ndaka kukula imungada
 Ndakasanzya imitiba
 
 ##
-Ino chinzi chendibeleka boobu?
+Ino chinzi chendibeleka boobu...
 
-##
-Kakuli imwana okwesu wile kusobana!
+Kakuli imwana okwesu wile kusobana?
 
 ##
 * License: [CC-BY-NC]

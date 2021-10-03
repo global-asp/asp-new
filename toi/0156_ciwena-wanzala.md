@@ -4,13 +4,10 @@
 Kwakali chiwena wanzala kapati.
 
 ##
-Wakalikuyandaula cakulya asyoonto alimwi katasabili.
+Wakalikuyandaula cakulya asyoonto alimwi katasabili. Kumane...
 
 ##
-Kumane.
-
-##
-POH! Wajata ciwena!
+POH!!! Wajata ciwena!
 
 ##
 Kumane wayo wakakkuta ciwena, alimwi wakakkomana.

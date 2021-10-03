@@ -29,4 +29,4 @@ Namona kakongolo
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
 * Translation: Edina Njovu
-* Language: kaonde
+* Language: kqn

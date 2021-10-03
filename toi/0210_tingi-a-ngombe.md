@@ -30,6 +30,7 @@ Uumwi wabasilumamba wakalyata aakali Tingi, peele Tingi wakaumuna wiii.
 ##
 Nobakaunka basilumamba, Tingi abaneene bakayubuluka.
 
+##
 Mukaumuumu bakasobelela kuya kumaanda
 
 ##

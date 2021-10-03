@@ -19,10 +19,9 @@ Ndimapsyera munyumba.
 Ndimatsuka mbale.
 
 ##
-Chifukwa nchyani ndimagwira ncthitomwaphanvu ine ndekha?
+Chifukwa nchyani ndimagwira ncthitomwaphanvu ine ndekha...
 
-##
-Pamene mphyanga akonda kusewera chabe!
+Pamene mphyanga akonda kusewera chabe?
 
 ##
 * License: [CC-BY-NC]

@@ -19,10 +19,9 @@ Ndapyanga.
 Ukusuka imbale.
 
 ##
-Mulandunshi mbombesesha ifi?
+Mulandunshi mbombesesha ifi...
 
-##
-Elo ninshi munyinane ena aleangalafye!
+Elo ninshi munyinane ena aleangalafye?
 
 ##
 * License: [CC-BY-NC]
