@@ -29,4 +29,4 @@ Unonyi kangweshi kuhasa kumbululuka nachoko.
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Masho Kaloza
-* Language: luvale
+* Language: lue
