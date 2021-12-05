@@ -4,7 +4,7 @@
 Mu mushi waba ku mutentemuko wa lupili ulwa ku Kenya ku kabanga ka Africa, umukashana umwaice aalebomba na banyina mwibala. Ishina lyakwe aali ni Wangari.
 
 ##
-Wangari alitemenwe ukuba panse. Mwibala lya fyakulya ilya lupwa lwabo, aleefukula umushili ukubomfya iccela. Alimbile imbuto mu mushili uwakaba.
+Wangari alitemenwe ukuba panse. Mwibala lya fyakulya ilya lupwa lwabo, aleefukula umushili ukubomfya icela. Alimbile imbuto mu mushili uwakaba.
 
 ##
 Inshita ya kasuba aatemenwe saana lilyafye akasuba kashilawa. Wangari aaleinuka fye nga cakuti kwafita saana icakuti umuntu tekuti amone ifimenwa. Pakuya aalepita mukashila katondo mu mabala no kuciluka imimana.
