@@ -1,8 +1,7 @@
 # Ukusalapo
 
 ##
-Mumushi wandi mwaliba amafya ayengi.
-Twali tantama mumulini pakuti twaingatapa amenshi kuli pompi imo.
+Mumushi wandi mwaliba amafya ayengi. Twali tantama mumulini pakuti twaingatapa amenshi kuli pompi imo.
 
 ##
 Twalelolela ifyakulya ifyakupelwa ukufuma kumbi.
