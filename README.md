@@ -20,6 +20,10 @@ gaa | Ga
 ki | Kikuyu
 kln | Kalenjin
 koo | Lukhonzo
+kqn | Kaonde
+loz | SiLozi
+lue | Luvale
+lun | Lunda
 luo | Dholuo
 ny | Cinyanja
 om | Oromo
@@ -29,6 +33,7 @@ sg | Sango
 so | Somali
 sw | Kiswahili
 ti | Tigrinya
+toi | ChiTonga
 tum | Tumbuka
 yo | Yoruba
 zne | Zande
