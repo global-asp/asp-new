@@ -7,11 +7,11 @@ Andiswa aaletamba abalumendo baleteya umupila wakumakasa. Aalekabila ukuteya nab
 Bakafundisha ba mupila babikile amaboko mumusana. Basosele ukutiila "Pano pa sukulu, abalumendo beka eba suminishiwa ukuteya umupila wakumakasa."
 
 ##
-Abalumendo bamwebele ukutila akaye mukuteya umupila wakuminwe uwa netibo. Ba sosele ukutila umupila wakuminwe uwa netibo ewabakashana.
+Abalumendo bamwebele ukutila akaye mukuteya umupila wakuminwe. Ba sosele ukutila umupila wakuminwe ewabakashana.
 Andiswa aalifulwa.
 
 ##
-Ubushiku bwakonkelepo, isukulu lyali nokuteya ubwangalo umupila wakumakasa uukalamba. Ba kafundisha bamupila baali sakamana pantu kateya wamupila bakwata umukali aalifilwa ukuteya pantu aalilwala.
+Ubushiku bwakonkelepo, isukulu lyali nokuteya ubwangalo  bwamupila wakumakasa uukalamba. Ba kafundisha bamupila baali sakamana pantu kateya wamupila bakwata umukali aalifilwa ukuteya pantu aalilwala.
 
 ##
 Andiswa aalipapata kuli bakafundisha bamupila, "Napapta, lekeni nteye."
