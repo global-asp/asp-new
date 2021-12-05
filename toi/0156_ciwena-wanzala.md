@@ -1,23 +1,23 @@
 # Ciwena wanzala
 
 ##
-Kwakali chiwena wanzala kapati.
+Kaindi kwakali ciwena wakalijisi nzala kapati.
 
 ##
-Wakalikuyandaula cakulya asyoonto alimwi katasabili. Kumane...
+Wakayandaula cakulya cakubendelela a caluumuno. Kumane...
 
 ##
-POH!!! Wajata ciwena!
+Po!!! Ciwena wajata.
 
 ##
-Kumane wayo wakakkuta ciwena, alimwi wakakkomana.
+Kuzwa wao taakanvwa nzala alimwi nakamana wakakomana.
 
 ##
-Amana akafwe nzala alimwi.
+Kusikila akanvwe nzala alimwi.
 
 ##
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Tapiwa k. Sibanda
+* Translation: Chester Mwanza
 * Language: toi
