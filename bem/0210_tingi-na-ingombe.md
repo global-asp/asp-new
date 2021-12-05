@@ -1,10 +1,10 @@
 # Tingi na in'gombe
 
 ##
-Tingi aleeikala naba mbuya wakwe.
+Tingi aleeikala naba nakulu.
 
 ##
-Aaleafwa bambuya wakwe ukusunga in'gombe.
+Aaleafwa banakulu ukusunga in'gombe.
 
 ##
 Bushiku bumo abashilika baishile.
@@ -13,7 +13,7 @@ Bushiku bumo abashilika baishile.
 Baasendele In' gombe no kuya nasho
 
 ##
-Tingi na bambuya wakwe baabutwike.
+Tingi na banakulu baabutwike.
 
 ##
 Baabeleme mu mpanga mpaka bwaila.
@@ -22,16 +22,16 @@ Baabeleme mu mpanga mpaka bwaila.
 Elyo abashilika baishile nakabili.
 
 ##
-Bambuya baafishile Tingi panshi yamabula.
+Banakulu baafishile Tingi panshi yamabula.
 
 ##
-Umo pa bashilika aabikile ulukasa palya pene pali Tingi, koma Tingi aali fye tondolo.
+Umo pa bashilika aabikile ulukasa palya pene pali Tingi, nomba Tingi aali fye tondolo.
 
 ##
-Lintu abashilika baile, Tingi na bambuya wakwe bafisamwike.
+Lintu abashilika baile, Tingi na banakulu bafisamwike.
 
 ##
-Baile ku n,ganda umwatalalila.
+Baile ku n,ganda umutalalila.
 
 ##
 * License: [CC-BY]
