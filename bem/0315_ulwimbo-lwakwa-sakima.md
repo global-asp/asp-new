@@ -43,13 +43,13 @@ Ubushiku bwakonkelepo, Sakima ayebele nkashi yakwe ukumutungulula kung'anda yamu
 Aiminine mwisamba lya nsolokoto nokwamba ukwimba ulwimbo lwakwe. Panono panono, umutwe wamukankaala wayambile ukulanga pansolokoto.
 
 ##
-Aba bomfi baalekele imilimo yabo. Baalekutika to lwimbo lwakwa Sakima ulwawama nganshi. Abaume bamo basosele ukutiila "tapaaba nangu umo uwakwanisha ukutalalika ba bwana. Bushe uyu mulumendo wapofuka alemona kwati kuti abatalalika?"
+Aba bomfi baalekele imilimo yabo. Baalekutika ku lwimbo lwakwa Sakima ulwawama nganshi. Abaume bamo basosele ukutiila "tapaaba nangu umo uwakwanisha ukutalalika ba bwana. Bushe uyu mulumendo wapofuka alemona kwati kuti abatalalika?"
 
 ##
 Sakima alipwishishe ukwimba ulwimbo lwakwe nokupilibuka ati ambeko kumwabo. Nomba umukankaala alifumine panse nokutila "Napapata, imba nakabili."
 
 ##
-Ukutula Ubushiku bulya, abaume babili bafikile nabasenda umuntu pamacila. ba sangile umwana wamukankaala napumwa nokushiiwa kumbali ya musebo.
+Ukutula Ubushiku bulya, abaume babili bafikile nabasenda umuntu pamacila. Ba sangile umwana wamukankaala napumwa nokushiiwa kumbali ya musebo.
 
 ##
 Umukankaala aali uwa nsansa pakumona umwana wakwe nakabili. Aali lambwile Sakima pa kumutalalika kumutima. Asendele umwana wakwe na Sakima ku cipataala mukumona nga kuti Sakima amona nakabili.
