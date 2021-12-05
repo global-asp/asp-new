@@ -10,7 +10,7 @@ Umwishi wa pacibi cakwe wali uwipi.
 Ubusanshi bwakwe bwali ubwipi sana.
 
 ##
-Inchinga yakwe yali iipi
+Inchinga yakwe yali iipi.
 
 ##
 Uyu umwaume ali umutali sana.
