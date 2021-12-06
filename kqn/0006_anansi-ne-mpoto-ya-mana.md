@@ -1,4 +1,4 @@
-# Anasi ne mpoto ya mana
+# Anansi ne mpoto ya mana
 
 ##
 Kimye kya kala, bantu kechi bayukile bintu biji byonse ne. Kechi bayukile bya kubyala bijimwa ne, bya ku sona bivwalo nangwa byakubunda byela. Ka lesa kacheche ka jizhina ja Nyame kajinga mwiulu kokaajinga namana onse apano ntanda. Aye wialamine mana bingi bulongo mu mpoto yanji ya kubumba.
