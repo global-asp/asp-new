@@ -4,13 +4,13 @@
 Kolanga banyama.
 
 ##
-Ing'ombe yamba kuti "moo."
+Ing'ombe yamba kuti, "moo."
 
 ##
 Impongo yamba, "mee, mee."
 
 ##
-Hachi yamba "neeee."
+Hachi yamba, "neeee."
 
 ##
 Ngulube yamba, "gwi, gwi."
@@ -22,7 +22,7 @@ Inkuku yamba, "kwiyo."
 Mubwa wamba, "huhu."
 
 ##
-Mulimi wamba, "Shiii!"
+Mulimi wamba, "shiii!"
 
 ##
 * License: [CC-BY-NC]

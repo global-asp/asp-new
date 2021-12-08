@@ -7,7 +7,7 @@ Mukulana wangu mushonto ulacelwa koona. Ndilafwambana kubuka, nkambo ndimukali.
 Ndime ndijalwida zuba.
 
 ##
-Baama bamba kuti, "Ulinyenyezi yangu yakumaca"
+Baama bamba kuti, "Ulinyenyezi yangu yakumaca".
 
 ##
 Ndilasamba endike, siyandi lugwasho lulilonse.
@@ -22,7 +22,7 @@ Bamama balandiyezya, "Utalubi kucumba meno." Ndaingula ndati "Peepe, kutali ndim
 Ndamana kusamba, ndilanzya bahanene akubambila kuti babe abuzuba bubotu.
 
 ##
-Ndamana ndalisamika, "Ndimupati lino baama"
+Ndamana ndalisamika, "Ndimupati lino baama".
 
 ##
 Inga ndajala nkopela akwanga mabbusu.

@@ -1,7 +1,7 @@
 # Tingi A Ngo´mbe
 
 ##
-Tingi wakalikukkala mumunzi abaneene bakwe
+Tingi wakalikukkala mumunzi abaneene bakwe.
 
 ##
 Antoomwe abaneene bakwe, bakavwubide ng'ombe zyibakali kweembela.
@@ -31,7 +31,7 @@ Uumwi wabasilumamba wakalyata aakali Tingi, peele Tingi wakaumuna wiii.
 Nobakaunka basilumamba, Tingi abaneene bakayubuluka.
 
 ##
-Mukaumuumu bakasobelela kuya kumaanda
+Mukaumuumu bakasobelela kuya kumaanda.
 
 ##
 * License: [CC-BY]

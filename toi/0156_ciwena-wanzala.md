@@ -4,7 +4,7 @@
 Kaindi kwakali ciwena wakalijisi nzala kapati.
 
 ##
-Wakayandaula cakulya cakubendelela a caluumuno. Kumane...
+Wakayandaula cakulya cakubendelela a caluumuno. Kumane ...
 
 ##
 Po!!! Ciwena wajata.
