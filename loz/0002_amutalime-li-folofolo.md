@@ -4,25 +4,25 @@
 Amutalime li folofolo.
 
 ##
-Komu ibulelanga kuli, "Moo".
+Komu ibulelanga kuli, "moo".
 
 ##
-Kapuli kabulelanga kuli, "Mee, mee".
+Kapuli kabulelanga kuli, "mee, mee".
 
 ##
-Pizi ibulelanga kuli, "Neeee".
+Pizi ibulelanga kuli, "neeee".
 
 ##
-Kulube ibulelanga, "Griiii".
+Kulube ibulelanga, "griiii".
 
 ##
 Kuhu ibulelanga kuli, "kukulukuuu".
 
 ##
-Nja ibulelanga kuli, "Hu hu"
+Nja ibulelanga kuli, "hu hu"
 
 ##
-Mulimi ubulelanga kuli, "Shiiiii".
+Mulimi ubulelanga kuli, "shiiiii".
 
 ##
 * License: [CC-BY-NC]
