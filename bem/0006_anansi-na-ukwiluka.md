@@ -17,7 +17,7 @@ Inshita yonse iyi, umwana umulumendo uwakwa Anansi aliminine mwisamba lyamuti al
 Bwangu bwangu afika napamulu wacimuti. Nomba atontonkaya ati, "ninebofye nfwile nakwata ukukwiluka konse, nomba umwana wandi acenjelapo ukuncila!" Anansi epakufulwa sana. Aposa nenongo panshi yacimuti.
 
 ##
-Yatobaika pamushili. Efyo cilaonse asendeleko ukwiluka. Ukufuma apo, efyo abantu baishibe ukulima, ukupikula nokufula ifishimbi nafimbipo ifyo abantu baishiba ukucita
+Yatobaika pamushili. Efyo cilaonse asendeleko ukwiluka. Ukufuma apo, efyo abantu baishibe ukulima, ukupikula nokufula ifishimbi nafimbipo ifyo abantu baishiba ukucita.
 
 ##
 * License: [CC-BY]

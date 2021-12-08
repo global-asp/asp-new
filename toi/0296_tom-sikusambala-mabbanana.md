@@ -1,7 +1,7 @@
 # Tom Sikusambala Mabbanana
 
 ##
-Tom wanyamuna mabbanana apide mucinzuma
+Tom wanyamuna mabbanana apide mucinzuma.
 
 ##
 Tom uunka kumusika mukusambala mabbanana.

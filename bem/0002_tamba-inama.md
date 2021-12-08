@@ -4,25 +4,25 @@
 Tamba inama.
 
 ##
-Ing'ombe aiti, "Moo."
+Ing'ombe aiti, "moo."
 
 ##
-Imbushi aiti, "Meh, Meh."
+Imbushi aiti, "meh, meh."
 
 ##
-Ihoshi aliti, "Neei."
+Ihoshi aliti, "neei."
 
 ##
-Inkumba aiti, "Ng'a, ng'a."
+Inkumba aiti, "ng'a, ng'a."
 
 ##
-Inkoko aiti, "Ko, ko, ko."
+Inkoko aiti, "ko, ko, ko."
 
 ##
-Imbwa aiti, "Bwa, bwa."
+Imbwa aiti, "bwa, bwa."
 
 ##
-Shibulimi ati, "Shii."
+Shibulimi ati, "shii."
 
 ##
 * License: [CC-BY-NC]

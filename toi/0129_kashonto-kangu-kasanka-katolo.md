@@ -19,7 +19,7 @@ Ndapyanga ansi.
 Ndasanzya mbale.
 
 ##
-Ncinzi ncendibelekela canguzu... 
+Ncinzi ncendibelekela canguzu ... 
 
 ... kakuli mushonto wangu wiide kusobana?
 

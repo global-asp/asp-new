@@ -16,7 +16,7 @@ Bakali kujata ncito zyonse masiku. Nkambo bakali pangidwe abunzuka.
 Pesi umwi wabasankwa wakalikuyandishisha kuti aunke muzuba.
 
 ##
-Bumwi buzuba kuyandishisha kwakakomena. Bakulana bakwe bakamucenjezya...
+Bumwi buzuba kuyandishisha kwakakomena. Bakulana bakwe bakamucenjezya ...
 
 ##
 Pesi bakacelwa. Wakasungunuka muzuba ipya.

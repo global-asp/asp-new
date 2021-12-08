@@ -7,10 +7,10 @@ Eyi delesi njilanvwu.
 Eyi juzi njipati.
 
 ##
-Eyi BBeeke Njipati
+Eyi BBeeke Njipati.
 
 ##
-Eyi ntambo yamunkanya nji...
+Eyi ntambo yamunkanya nji ...
 
 ##
 Eyi heete njishonto.
