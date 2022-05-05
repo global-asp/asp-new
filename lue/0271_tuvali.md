@@ -1,23 +1,23 @@
 # Tuvali
 
 ##
-Mavoko avali amandende nakukwata
+Mavoko avali amandende nakukwata.
 
 ##
-Vipamba vivali vyavindende nakwasa
+Vipamba avali yayindende nakupanta.
 
 ##
-Amandende meso avali nakumona
+Meso Avali amandende nakumona.
 
 ##
-Amandende matwitwi avali nakwivwa
+Matwitwi avali amandende nakwivwa.
 
 ##
-Kaha cheka nawa mavoko azangi avali nakukumbachila
+Kaha Cheka mavoko azangi amandende nakukumbachila.
 
 ##
 * License: [CC-BY-NC]
 * Text: Carole Bloch
 * Illustration: Richard MacIntosh
-* Translation: Masho Kaloza
+* Translation: Kaloza Masho
 * Language: lue

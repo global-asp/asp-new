@@ -1,32 +1,32 @@
 # Kakahya
 
 ##
-Tala Kakahya
+Tala kakahya!
 
 ##
-Kocha
+Kakahya kakuwema.
 
 ##
-Kakahya kakutelekesa
+Kakahya kechi kuteleka.
 
 ##
-Kakahya kechi kuhana kuzuma
+Kakahya kechi Kuhana kuzuma.
 
 ##
-Kakahya kechi kuhana mweji
+Kakahya kechi kuhana mweji.
 
 ##
-Tala kakahya
+Tala kakahya!
 
 ##
-Kakahya kamwaza
+Kakahya kamwaza.
 
 ##
-Kaha cheka kangolo chikuma
+Kaha cheka kakalemu.
 
 ##
 * License: [CC-BY]
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
-* Translation: Masho Kaloza
+* Translation: Kaloza Masho
 * Language: lue

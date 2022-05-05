@@ -4,22 +4,22 @@
 Ngwakwimba.
 
 ##
-Nakubayibisa.
+Wapwevo naku bayibisa.
 
 ##
 Ngwakusakwilila.
 
 ##
-Nakulyolola.
+Wapwevo nakulyolola.
 
 ##
-Nakusanyika.
+Walunga nakusanyika.
 
 ##
-Ngwakukumbulula.
+Ngwakwitava.
 
 ##
-Nakwivwilila.
+Wapwevo nakwivwilila.
 
 ##
 Wakulinga yika?
@@ -28,5 +28,5 @@ Wakulinga yika?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Masho Kaloza
+* Translation: Kaloza Masho
 * Language: lue

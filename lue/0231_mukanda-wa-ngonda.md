@@ -1,10 +1,10 @@
 # Mukanda wa ngonda
 
 ##
-Chinomu
+Ku nomu
 
 ##
-Musana wa zumu
+Kwazumu
 
 ##
 Kuli peho
@@ -13,10 +13,10 @@ Kuli peho
 Kuli mavwi
 
 ##
-Kwatutu
+Kwa tutu
 
 ##
-Kwakunoka
+Yakunoka
 
 ##
 Kuli muveso
@@ -28,5 +28,5 @@ Ngwamono kongolo
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Masho Kaloza
+* Translation: Kaloza Masho
 * Language: lue
