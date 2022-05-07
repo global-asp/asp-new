@@ -1,32 +1,32 @@
-# Buku la zanyengo
+# Buku ya nyengo
 
 ##
 Ndikouma
 
 ##
-Dzuwa la thentha
+Dzuwa ndilotentha
 
 ##
-Kuli mphepo ya mkuntho
+Mphepho ikugunda
 
 ##
-Kuli mitambo
+Kuli makumbi
 
 ##
-Ndikodzidzila
+Ndikozizira
 
 ##
-Kulikugwa mvula
+Mvula ilokwa
 
 ##
-Kulikugunda kwamvula
+Kuli mphezi
 
 ##
-Ndiona utawaleza
+Ndili kuona utawaleza
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Jessy Sakala
+* Translation: David Sani Mwanza
 * Language: ny
