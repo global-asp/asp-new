@@ -41,5 +41,4 @@ Wangari wafwili muchaaka cha 2011, ilan'ga tutweshi kumushin'ganyeka impinji yez
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
 * Translation: Oscar Zangata
-
 * Language: lun

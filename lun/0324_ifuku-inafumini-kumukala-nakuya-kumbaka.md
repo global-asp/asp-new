@@ -53,5 +53,4 @@ Adin'ga nakufunta kumukala adin'ga nakwinzheshamu swayi. Ken'ga yitachiki chen'g
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
 * Translation: Oscar Zangata
-
 * Language: lun

@@ -4,7 +4,7 @@
 Kunyima yamafuku, kwadin'ga chisaka chawahilila.
 
 ##
-Hiyedin'ga nakudizun'gishaku. akwashilen'ga anvwali zhawu ku maha.
+Hiyedin'ga nakudizun'gishaku. Akwashilen'ga anvwali zhawu ku maha.
 
 ##
 Ilan'ga hiyayitezheli kuya kwakamwihi na kesiku.

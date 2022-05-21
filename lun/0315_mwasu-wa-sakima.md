@@ -59,5 +59,4 @@ Iyala da maheta watiyili kuwaha hakumona mwanindi weyala chen'gi. Wafweteli Saki
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
 * Translation: Oscar Zangata
-
 * Language: lun

@@ -7,7 +7,7 @@ Ifuku dimu, mama wasendeli nyikabu yayivulu nankashi.
 "Tukadaku nyikabu ifukwinyi?" twehwili. "Tukuda nyikabu wufuku," nindi mama.
 
 ##
-Manakwami Rahim wachifwa. Watompan'ga nyikabu yezhima. wadan'ga yayivulu.
+Manakwami Rahim wachifwa. Watompan'ga nyikabu yezhima. Wadan'ga yayivulu.
 
 ##
 "Tala zheliliyi Rahim!" manakwami wamunyanya wabidikili. "Rahim wamanya na chifwa," nahoshi.
@@ -31,10 +31,10 @@ Rahim watachikili kutiya kukata.
 "mwivumu dami mudi yilonda," nindi Rahim.
 
 ##
-Mama welikili nindi izhi zhikumwekana. mukabu wunakubabesha Rahim!
+Mama welikili nindi izhi zhikumwekana. Mukabu wunakubabesha Rahim!
 
 ##
-Chihahitili kapinji, Rahim wadanakeneni kudi etu. "Hinikamba kekala na chifwa chen'giku," wadishikili. kaha nawa twamukuhweleleli.
+Chihahitili kapinji, Rahim wadanakeneni kudi etu. "Hinikamba kekala na chifwa chen'giku," wadishikili. Kaha nawa twamukuhweleleli.
 
 ##
 * License: [CC-BY]
