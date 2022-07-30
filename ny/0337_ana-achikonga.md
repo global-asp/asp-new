@@ -1,4 +1,4 @@
-# Ana achikonga (Wax)
+# Ana achikonga
 
 ##
  Tsiku lina, kunali banja lina lokondwera.
