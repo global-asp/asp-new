@@ -26,6 +26,7 @@ lue | Luvale
 lun | Lunda
 luo | Dholuo
 ny | Cinyanja
+old | Kichaga
 om | Oromo
 pcm | Nigerian pidgin
 rw | Kinyarwanda
