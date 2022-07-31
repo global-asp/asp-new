@@ -28,5 +28,5 @@ Themba wabeya nsuki yanji.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath, Ingrid Schechter
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

@@ -37,5 +37,5 @@ Mute pakusama, aye watumbikile saaya na kwimba.
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

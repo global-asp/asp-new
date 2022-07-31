@@ -19,5 +19,5 @@ Ne maboko abiji abotemwe aku kumbachilakoo!
 * License: [CC-BY-NC]
 * Text: Carole Bloch
 * Illustration: Richard MacIntosh
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

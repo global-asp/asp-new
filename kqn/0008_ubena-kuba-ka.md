@@ -28,5 +28,5 @@ Ubena kuba ka?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

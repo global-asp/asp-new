@@ -28,5 +28,5 @@ Njimi amba "Shhh!"
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

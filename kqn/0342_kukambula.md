@@ -40,5 +40,5 @@ Pa kupita kimye, Rahim walombele lulekelo lwamambo." ke nkabwezhapo ne bwitemwe 
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

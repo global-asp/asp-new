@@ -19,5 +19,5 @@ Kufika nejuba jikwabo jakunvwa nzala.
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

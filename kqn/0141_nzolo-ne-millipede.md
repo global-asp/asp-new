@@ -40,5 +40,5 @@ Kufuma popo, banzolo ne bena Milliped kebalwanyi.
 * License: [CC-BY]
 * Text: Winny Asara
 * Illustration: Magriet Brink
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

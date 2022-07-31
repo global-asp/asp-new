@@ -52,5 +52,5 @@ Bonse babijikile najiwi jimo,"Twalinga kukingya ngikajilo yetu." Kufumato ajojub
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

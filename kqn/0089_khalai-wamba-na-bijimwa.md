@@ -28,5 +28,5 @@ Khalai inge wabwela kufuma kusukulu, upempula kichi kwama orange." Ma orange yob
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

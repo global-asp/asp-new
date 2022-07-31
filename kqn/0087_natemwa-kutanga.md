@@ -28,5 +28,5 @@ Nsa kutangila bang'anyi? Nsa kwitangila amimwene!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

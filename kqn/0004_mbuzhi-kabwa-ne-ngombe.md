@@ -28,5 +28,5 @@ Pano Ng'ombe aye kechi wakamwane inge motoka ibena kwiya. Ng'ombe wenda ne kipal
 * License: [CC-BY]
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser, Ingrid Schechter
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

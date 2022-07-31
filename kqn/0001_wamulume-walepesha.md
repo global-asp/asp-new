@@ -39,5 +39,5 @@ Wa shilenzubo yanji nekuya nakwikala mungye. Waikajile myaka yavula.
 * License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

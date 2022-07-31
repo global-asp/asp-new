@@ -46,7 +46,7 @@ Waimene muunshi ya windo umo mukatampe nekutendeka kwiimba lwiimbo yeatemenwe. P
 Bamingilo balekele byo baubilenga. batelekele ku lwiimbo lwakwa Sakima wawaama biingi. Pano shetu umo waambile amba, "Kafwako nangwa umo wakonsheshe kutekenesha ba bosi. Nanchi awe mwanyike mputa walanguluka amba wakoonsha kwiba tekeneshanyi?"
 
 ##
-Sakima wapwishishe kwimba kabiji wa alukile amba ayenga. Kabiji uno shetu munoonshi walupukile lubilo ne kwamba amb,"Nasansapo, imba jikwabo."
+Sakima wapwishishe kwimba kabiji wa alukile amba ayenga. Kabiji uno shetu munoonshi walupukile lubilo ne kwamba amb, "Nasansapo, imba jikwabo."
 
 ##
 Pakyonkakya kimye, bashetu babiji baishile saka basenda muntu pamakila. Bataine mwana wauno munoonshi bamupuma kabiji bamusha ne kunsa ya mukwakwa.

@@ -22,5 +22,5 @@ Mpoto yaponene panshi ne kulajika. Mana afumine mu mpoto aile ku muntu yense. Ku
 * License: [CC-BY]
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

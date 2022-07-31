@@ -28,5 +28,5 @@ Nzovu umo ubena kutoma mema ne bokwe.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

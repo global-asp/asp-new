@@ -28,5 +28,5 @@ Mipolo ilupuka ingembena kuchibaula kanyenze.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle, Ingrid Schechter
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

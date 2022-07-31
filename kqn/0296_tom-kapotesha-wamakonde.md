@@ -40,5 +40,5 @@ Tom wasenda ne kipe kyanji pamutwe waya ne kuya kunzubo.
 * License: [CC-BY]
 * Text: Humphreys Odunga
 * Illustration: Zablon Alex Nguku
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

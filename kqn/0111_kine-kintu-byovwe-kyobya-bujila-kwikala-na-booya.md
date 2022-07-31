@@ -28,5 +28,5 @@ Kalulu wasangalele pakumona amba booya bwa kyovwe bonse bwapya. Kufikatu ne jale
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn

@@ -28,5 +28,5 @@ Bantu bonse baunvwine bulongo. Kufuma tu pajubajo, bana bakaji bebaswishishe kut
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Ruth Kapamba & Mwitila Ntabo
+* Translation: Ruth Kapamba, Mwitila Ntabo
 * Language: kqn
