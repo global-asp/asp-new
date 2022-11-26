@@ -1,28 +1,28 @@
 # Thupi Langa
 
 ##
-Ndimanga nalo
+Ndimanga nalo.
 
 ##
-Ndingajumphe nalo
+Ndingajumphe nalo.
 
 ##
-Ndingavine nalo
+Ndingavine nalo.
 
 ##
-Ndinganyaye nalo
+Ndinganyaye nalo.
 
 ##
-Ndingasewere nalo
+Ndingasewere nalo.
 
 ##
-Ndingamenye m'pira nalo
+Ndingamenye m'pira nalo.
 
 ##
-Ndingathawe nalo
+Ndingathawe nalo.
 
 ##
-Koma siningauluke nalo
+Koma siningauluke nalo.
 
 ##
 * License: [CC-BY-NC]

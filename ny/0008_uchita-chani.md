@@ -1,28 +1,28 @@
 # Uchita Chani?
 
 ##
-Ndiimba
+Ndiimba.
 
 ##
-Abaibisa
+Abaibisa.
 
 ##
-Ndiomba m'manja
+Ndiomba m'manja.
 
 ##
-Atambasula manja
+Atambasula manja.
 
 ##
-Aitana
+Aitana.
 
 ##
-Ndiyankha
+Ndiyankha.
 
 ##
-Amvesera
+Amvesera.
 
 ##
-Uchita chani
+Uchita chani.
 
 ##
 * License: [CC-BY]

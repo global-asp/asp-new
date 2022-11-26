@@ -1,7 +1,7 @@
 # Tsiku lamene ndinanyamukila panyumba kuyenda kumzinda (tauni).
 
 ##
-Poimilila mabasi ag'ono kumunzi kwathu
+Poimilila mabasi ag'ono kumunzi kwathu.
 
 ##
 

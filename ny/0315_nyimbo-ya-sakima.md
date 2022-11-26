@@ -52,7 +52,6 @@ Sakima anasiliza kuimba nyimbo yake ndipo anatembenuka kufuna kubwelela kunyumba
 Pa nthawi yomweyo, amuna awiri anabwela apo anyamula munthu. Anali anapeza mwana wa bambo wolemelayo atamenyedwa ndi kusiyidwa pambali pa mseu.
 
 ##
-
 Bambo wolemela anakondwela kwambiri kuona mwana wake. Anapasa mphaso kwa Sakima powatonthoza. Anapeleka mwana wao ndi Sakima ku chipatala kuti Sakima akayambe kuonanso.
 
 ##

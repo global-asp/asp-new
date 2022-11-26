@@ -4,10 +4,10 @@
 M'ngono wanga amacedwa kugona.Ndimauka m'mamawa cifukwa ndine wa ngwilo!
 
 ##
-Ndine ndimatsegulako kuti dzuwa lilowe
+Ndine ndimatsegulako kuti dzuwa lilowe.
 
 ##
-''Ndiwe nthanda yanga,'' amatelo amai kundiwuza.
+"Ndiwe nthanda yanga," amatelo amai kundiwuza.
 
 ##
 Ndimadzisamba ndekha matsiku onse, sindifunanso thandidzo ai.
@@ -16,13 +16,13 @@ Ndimadzisamba ndekha matsiku onse, sindifunanso thandidzo ai.
 Sindimaganiza zakuti madzi ndiyodzidzila, kapena sopo wa kamtambo wocapila dzobvala.
 
 ##
-Amai amandikumbutsa kuti "osayiwala kutsuka mano"Ndimawayanka kuti "ine ai, sindingaiwale ai!"
+Amai amandikumbutsa kuti "osayiwala kutsuka mano." Ndimawayanka kuti "Ine ai, sindingaiwale ai!"
 
 ##
 Ndikamalidza kusamba, ndimapatsa moni agogo amuna ndi alongo awo atate anga.Ndimawafunila tsiku labwino.
 
 ##
-Ndipo ndimabvala ndekha.''Ndine wamkulu tsopano amama,'' ndimawaudza.
+Ndipo ndimabvala ndekha."Ndine wamkulu tsopano amama," ndimawaudza.
 
 ##
 Ndimanga mabatani komanso nthambo za nsapato ndekha.

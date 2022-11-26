@@ -1,28 +1,28 @@
 # Kuphika
 
 ##
-Ndimashuwa mbatatisi
+Ndimashuwa mbatatisi.
 
 ##
-Ndimacheka khabici
+Ndimacheka khabici.
 
 ##
-Ndimachosa zakunja za kaloti
+Ndimachosa zakunja za kaloti.
 
 ##
-Ndimasuka kayela
+Ndimasuka kayela.
 
 ##
-Ndimacheka matanga
+Ndimacheka matanga.
 
 ##
-Ndimacheka ndio za sipinachi
+Ndimacheka ndio za sipinachi.
 
 ##
-Amai amacheka anyensi
+Amai amacheka anyensi.
 
 ##
-Anyensi imandichosesa misozi ngati yachekedwa
+Anyensi imandichosesa misozi ngati yachekedwa.
 
 ##
 * License: [CC-BY-NC]

@@ -22,7 +22,7 @@ Adabisala kuthengo mpaka usiku.
 Kenako asirikaliwo anabwerera.
 
 ##
-Agogo adabisa Tingi pansi pamasamba
+Agogo adabisa Tingi pansi pamasamba.
 
 ##
 M'modzi wa asirikali adaika phazi lake pa iye, koma iye adakhala chete.

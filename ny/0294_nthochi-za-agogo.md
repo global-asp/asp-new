@@ -10,7 +10,7 @@ Tsiku lina, ndinaona nswanda ili pa dzuwa panja pa nyumba ya agogo. Pamene ndina
 Chinali chosangalasa kuona agogo anga, nthochi, mayani a nthochi ndi nswanda yaikulu. Koma agogo anandituma kutipita kwa amai anga. "Agogo, chonde, lekani ndikhale nainu pamene mukonzeka..." "Osachita nthota, mwana, chita zomwe ndakuuza," anakakamiza. Ndinanyamuka ndi liwiri.
 
 ##
-Pamene ndinabwelera, agogo anali khale panja koma analibe nthochi . "Agogo, kodi nswanda ili kuti, nthozhi zonse zili kuti, ndipo ali kuti..."Koma yankho yomwe anandipatsa ndi yakuti, "zonse zili mu malo anga amasenga." Zinali zokhumudwitsa
+Pamene ndinabwelera, agogo anali khale panja koma analibe nthochi . "Agogo, kodi nswanda ili kuti, nthozhi zonse zili kuti, ndipo ali kuti..."Koma yankho yomwe anandipatsa ndi yakuti, "zonse zili mu malo anga amasenga." Zinali zokhumudwitsa.
 
 ##
 Patapita masiku awiri, agogo anandituma kukatenga ndodo yao kuchoka ku chipindi chao chogonamo. Pamene ndinasegula chiitseko, ndinamva nthochi kununkhira. Mukati mwa chipinda munali nswanda ya masenga ya agogo. Inali yobisika ndi gombeza wakale. Ndinasegula ndipo ndinamva kunkhira kokoma.

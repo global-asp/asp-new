@@ -1,28 +1,28 @@
 # Tsitsi
 
 ##
-Thuli alo ndi tsitsi yaifupi
+Thuli alo ndi tsitsi yaifupi.
 
 ##
-Ana ali ndi tsitsi yaitali
+Ana ali ndi tsitsi yaitali.
 
 ##
-Keti ali ndi tsitsi yaitali koposa
+Keti ali ndi tsitsi yaitali koposa.
 
 ##
-Zama wamanga tsitsi yake
+Zama wamanga tsitsi yake.
 
 ##
-Baba ali ndi ndevu
+Baba ali ndi ndevu.
 
 ##
-Zanele wasakula tsitsi yake
+Zanele wasakula tsitsi yake.
 
 ##
-Thabo wajuwa tsitsi yake
+Thabo wajuwa tsitsi yake.
 
 ##
-Themba wagela tsitsi yake
+Themba wagela tsitsi yake.
 
 ##
 * License: [CC-BY-NC]

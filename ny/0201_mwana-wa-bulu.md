@@ -4,13 +4,13 @@
 Kanali kamwana kakakazi kang'ono komwe kanaona chinthu cha maonekedwe odabwisa patali.
 
 ##
-Pamane chinthu chinabwela pafupi, anaona kuti anali mzimai ome anali ndi mimba yaikulu
+Pamane chinthu chinabwela pafupi, anaona kuti anali mzimai ome anali ndi mimba yaikulu.
 
 ##
 Mwamanyazi koma mopanda mantha, kamwana kayenda pafupi ndi mzimai. "Tifunika kukhala nao pamozi," anthu a kamwana kakazi anavomekezana. "Tizamusunga ndi mwana wake bwino-bwino.
 
 ##
-Mwana anali pafupi kubadwa. "Kankha!" "Bwelesani zovimba!" "Water!" "kankhaaaa!!!"
+Mwana anali pafupi kubadwa. "Kankha!" "Bwelesani zovimba!" "Water!" "Kankhaaaa!!!"
 
 ##
 Koma pamene anaona mwana wakhanda, aliyense anabwelera m'mbuyo ndi kudabwa. "Bulu?!"

@@ -1,28 +1,28 @@
 # Onani Zinyama
 
 ##
-Onani zinyama
+Onani zinyama.
 
 ##
-Ng'ombe zinena kuti "moo"
+Ng'ombe zinena kuti "moo".
 
 ##
-Mbuzi zinena kuti "meh, meh"
+Mbuzi zinena kuti "meh, meh".
 
 ##
-Kavalo/Hosi inena kuti "nei"
+Kavalo/Hosi inena kuti "nei".
 
 ##
-Nkhumba inena kuti "mmmmm"
+Nkhumba inena kuti "mmmmm".
 
 ##
-Nkhuku inena kuti "kokoliko"
+Nkhuku inena kuti "kokoliko".
 
 ##
-Galu anena kuti " Hu, hu, hu"
+Galu anena kuti "hu, hu, hu".
 
 ##
-Mulimi anena (shhh"
+Mulimi anena "shhh".
 
 ##
 * License: [CC-BY-NC]

@@ -1,7 +1,7 @@
 # Nkhuku ndi Nkhwazi
 
 ##
-Panali-panali, nkhuku ndi nkhwazi anali paubwenzi. Anakhala mumutendere ndi nyoni zina. Kulibe kanyoni kamene kanali kumbululuka
+Panali-panali, nkhuku ndi nkhwazi anali paubwenzi. Anakhala mumutendere ndi nyoni zina. Kulibe kanyoni kamene kanali kumbululuka.
 
 ##
 Tsiku limodzi, kunali njala kwamene anali kukhala. Nkhwazi anali kuyenda kutali kuti apeze cakudya. Anabwelera olema kwambiri. "Kufunikira njila ina yapafupi mumayendedwe" Nkhwazi inatelo.

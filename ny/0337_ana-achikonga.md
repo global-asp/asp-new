@@ -1,7 +1,7 @@
 # Ana achikonga
 
 ##
- Tsiku lina, kunali banja lina lokondwera.
+Tsiku lina, kunali banja lina lokondwera.
 
 ##
 Sanali kuyambana. Anali kuthandizila makolo ao panyumba ndi kumunda.

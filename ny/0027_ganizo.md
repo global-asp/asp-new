@@ -10,7 +10,7 @@ Tinayembekezera zakudya zopasiwa ndi ena.
 Tinakhoma manyumba anthu mwamsanga chifukwa choopa akawalala.
 
 ##
-Ana ambiri analeka sukulu
+Ana ambiri analeka sukulu.
 
 ##
 Atsikana anasewenza maganyu m'midzi ina.
@@ -37,7 +37,7 @@ Anthu anasonkhana pansi pa mtengo ukulu ndipo anamvesera.
 Atate anga anaima nati, "Tifunika kusewenzera pamozi kuti tithese mavuto athu."
 
 ##
-Wa zaka zisanu ndi zitatu, Juma, omwe anakhala ma nthambi ya mtengo anakuwa nati "Ndingathandize ndi kusesa"
+Wa zaka zisanu ndi zitatu, Juma, omwe anakhala ma nthambi ya mtengo anakuwa nati "Ndingathandize ndi kusesa".
 
 ##
 Mzimai umozi anati "azimai angasewenze pamozi ndi ine kuti tibyale zakudya."

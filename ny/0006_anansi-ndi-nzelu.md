@@ -7,7 +7,7 @@ Matsiku amakedzana, anthu sanali kudziwa ciliconse. Sanadziwe kubzala mbeu, mwin
 Tsiku lina, Nyame anaganiza kupatsa Anansi poto ya nzelu. Nthawi iliyonse Anansi anayangana mupoto, anaphunziramo cinthu cimodzi catsopano. Anali okondwera kwambiri.
 
 ##
-Maganizo a utani anabwera muli Anansi, "Poto yanzelu ndizaisugilira bwinobwino pamwamba pa mtengo. Mwakuti inde ndekha ndikhale ndi nzelu!". Anatenga nthambo itali nakumangilira poto pamala. Anayamba kukwela mtengo. Koma cinali covuta kukwela cifukwa poto inali kumukhumya kumyendo nthawi yonse.
+Maganizo a utani anabwera muli Anansi, "Poto yanzelu ndizaisugilira bwinobwino pamwamba pa mtengo. Mwakuti inde ndekha ndikhale ndi nzelu!" Anatenga nthambo itali nakumangilira poto pamala. Anayamba kukwela mtengo. Koma cinali covuta kukwela cifukwa poto inali kumukhumya kumyendo nthawi yonse.
 
 ##
 Pamene zonsezi zinali kucitika, mwana mwamuna mung'ono wa Anansi anali kutamba pansi pacimtengo imilire. Iye anati, "Kodi sicizakhala capafupi kukwela mtengo ngati mwamangilira poto kumusana?" Anansi anayesa kumangilira poto ya nzelu kumusana ndipo iye anakwela mtengo kosavutika.

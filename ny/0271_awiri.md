@@ -1,19 +1,19 @@
 # Awiri
 
 ##
-Timanja tiwiri togwira
+Timanja tiwiri togwira.
 
 ##
-Timendo tiwiri tochaira
+Timendo tiwiri tochaira.
 
 ##
-Timenso tiwiri toyang'anira
+Timenso tiwiri toyang'anira.
 
 ##
-Timatu tiwiri tomverera
+Timatu tiwiri tomverera.
 
 ##
-Ndi timanja tiwiri tokumbatira
+Ndi timanja tiwiri tokumbatira.
 
 ##
 * License: [CC-BY-NC]

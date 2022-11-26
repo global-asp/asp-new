@@ -22,7 +22,7 @@ Khalai akamba ndi chitseko chakusukulu. "Chonde, kulani olimba ndiponso osalola 
 Pamene Khalai abwelera kunyumba, ayendera mtengo walalanje. "Kodi malalanje ako apsya kale?". Afunsa Khalai.
 
 ##
-Malalanje akalibe kupya," anena Khalai. "Mwina, uzandikhalira ndi lalanje lakupya
+Malalanje akalibe kupya," anena Khalai. "Mwina, uzandikhalira ndi lalanje lakupya".
 
 ##
 * License: [CC-BY]

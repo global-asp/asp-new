@@ -13,13 +13,13 @@ Kodi ali pamwamba pa kabati?
 kodi ali kumbuyo kwa mpando?
 
 ##
-Kodi ali kumbuyo kwa motaila vinthu?
+Kodi ali pafupi ndi motaila zinyalala?
 
 ##
-Kodi ali padela la nswanda/dengo?
+Kodi ali mkati mwa nswanda/dengo?
 
 ##
-Kodi ali panja pa nyumba?
+Kodi ali pabwalo pa nyumba?
 
 ##
 Uyu ali apa!

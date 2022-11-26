@@ -1,28 +1,28 @@
 # Buku ya nyengo
 
 ##
-Ndikouma
+Ndikouma.
 
 ##
-Dzuwa ndilotentha
+Dzuwa ndilotentha.
 
 ##
-Mphepho ikugunda
+Mphepho ikugunda.
 
 ##
-Kuli makumbi
+Kuli makumbi.
 
 ##
-Ndikozizira
+Ndikozizira.
 
 ##
-Mvula ilokwa
+Mvula ilokwa.
 
 ##
-Kuli mphezi
+Kuli mphezi.
 
 ##
-Ndili kuona utawaleza
+Ndili kuona utawaleza.
 
 ##
 * License: [CC-BY-NC]
