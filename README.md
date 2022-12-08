@@ -26,6 +26,7 @@ loz | siLozi
 lue | Luvale
 lun | Lunda
 luo | Dholuo
+ng | Oshindonga
 ny | Cinyanja
 old | Kichaga
 om | Oromo
