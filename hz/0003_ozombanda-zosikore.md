@@ -28,5 +28,5 @@ Nu inḓa ozongaku nḓa ozombe.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Angelika Tjoutuku & Asnath Mundjindjiri
+* Translation: Angelika Tjoutuku, Asnath Mundjindjiri
 * Language: hz

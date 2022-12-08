@@ -28,5 +28,5 @@ Omuṱuta u tja "Tjtj."
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Angelika Tjoutuku & Asnath Mundjindjiri
+* Translation: Angelika Tjoutuku, Asnath Mundjindjiri
 * Language: hz

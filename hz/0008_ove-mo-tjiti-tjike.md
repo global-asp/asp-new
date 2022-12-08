@@ -28,5 +28,5 @@ Ove mo tjiti tjike?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Angelika Tjoutuku & Asnath Mundjindjiri
+* Translation: Angelika Tjoutuku, Asnath Mundjindjiri
 * Language: hz

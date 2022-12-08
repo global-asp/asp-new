@@ -28,5 +28,5 @@ Oko okonga!
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath, Ingrid Schechter
-* Translation: Angelika Tjoutuku & Asnath Mundjindjiri
+* Translation: Angelika Tjoutuku, Asnath Mundjindjiri
 * Language: hz

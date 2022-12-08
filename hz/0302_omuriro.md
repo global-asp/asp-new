@@ -28,5 +28,5 @@ Nu u nomasa.
 * License: [CC-BY]
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
-* Translation: Angelika Tjoutuku & Asnath Mundjindjiri
+* Translation: Angelika Tjoutuku, Asnath Mundjindjiri
 * Language: hz
