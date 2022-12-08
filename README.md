@@ -17,11 +17,12 @@ bem | Icibemba
 dag | Dagbani
 fr | French
 gaa | Ga
+hz | Otjiherero
 ki | Kikuyu
 kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
-loz | SiLozi
+loz | siLozi
 lue | Luvale
 lun | Lunda
 luo | Dholuo
