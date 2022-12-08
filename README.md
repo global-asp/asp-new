@@ -19,6 +19,7 @@ fr | French
 gaa | Ga
 hz | Otjiherero
 ki | Kikuyu
+kj | Oshikwanyama
 kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
