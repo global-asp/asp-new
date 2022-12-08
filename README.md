@@ -23,6 +23,7 @@ kj | Oshikwanyama
 kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
+ktz | Ju|’hoansi
 loz | siLozi
 lue | Luvale
 lun | Lunda
