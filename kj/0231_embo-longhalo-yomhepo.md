@@ -1,13 +1,13 @@
 # Embo longhalo yomhepo
 
 ##
-Okwa nyika oshikukuta.
+Okwa kukuta.
 
 ##
-Etango tali xwike.
+Etango ota li xwike.
 
 ##
-Okwa nyika omhepo.
+Oku na omhepo.
 
 ##
 Okuna olulemo.
@@ -16,17 +16,17 @@ Okuna olulemo.
 Okwa talala.
 
 ##
-Otaku lokwa.
+Ota ku lokwa.
 
 ##
-Okuna omungungumo.
+Okuna omingungumo.
 
 ##
-Ondiwete outa wodula.
+Ondi wete outa wodula.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Fritz David
+* Translation: Bertha Haimbodi
 * Language: kj

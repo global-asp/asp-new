@@ -13,7 +13,7 @@ Oha ndi ngwangwana ngeenge handi danauka nookaume kange.
 Oha ndi kala ndi udite nai ngeenge tate tati kena oimaliwa.
 
 ##
-Oha ndi kala ndi udite ohole ngeenge meme ta papatelenge
+Oha ndi kala ndi udite ohole ngeenge meme ta papatelenge.
 
 ##
 * License: [CC-BY-NC]
