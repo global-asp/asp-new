@@ -4,10 +4,10 @@
 Tom okwa humbata oshimbamba shoombanana dha pya nawa.
 
 ##
-Tom oku uka komatala a ka landithe omambanana.
+Tom oku uka kehala lyomalandithilo a ka landithe omambanana.
 
 ##
-Aantu ohaa landa iiyimati pomatala.
+Aantu pehala lyomalandithilo ohaa landa iiyimati.
 
 ##
 Ashike kapwa li nando ogumwe a landa omambanana gaTom. Oya li ya panda okulanda iiyimati kaakulukadhi.
