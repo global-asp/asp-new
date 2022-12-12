@@ -1,4 +1,4 @@
-# Olutu lwandje.
+# Olutu lwandje
 
 ##
 Ohandi tondoka.
@@ -19,7 +19,7 @@ Ohandi ndjomboka.
 Ohandi thanga.
 
 ##
-Ohandi fadhuka po.
+Ohandi matuka ondapo.
 
 ##
 Ashike ihandi vulu nando okutuka.
