@@ -1,22 +1,22 @@
 # Okamwamememati okananyalo
 
 ##
-Onda penduka e tandi tema omulilo.
+Ohandi penduka e tandi tema omulilo.
 
 ##
-Onda fulukitha omeya.
+Ohandi fulukitha omeya.
 
 ##
-Onda panda iikuni.
+Ohandi panda iikuni.
 
 ##
-Onda pilula mombiga.
+Ohandi pilula mombiga.
 
 ##
-Onda kombo egumbo.
+Ohandi kombo egumbo.
 
 ##
-Onda yogo iiyaha.
+Ohandi yogo iiyaha.
 
 ##
 Omolwashike ndi na okulonga nuudhiginini manga omumwamememati ta dhana owala?
