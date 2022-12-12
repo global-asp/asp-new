@@ -28,5 +28,5 @@ Ni komu ainataba mota ni haifita. Komu inganga nako aitula mukwakwa bakenisakuli
 * License: [CC-BY]
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser, Ingrid Schechter
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

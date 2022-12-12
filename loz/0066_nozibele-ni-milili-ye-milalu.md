@@ -43,5 +43,5 @@ Nja sehilemuha kuli Nozibele na bapala niyona mwa ngana. Kikaho sehi matatela kw
 * License: [CC-BY]
 * Text: Tessa Welch
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

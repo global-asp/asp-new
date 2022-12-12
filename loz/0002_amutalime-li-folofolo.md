@@ -28,5 +28,5 @@ Mulimi ubulelanga kuli, "shiiiii".
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

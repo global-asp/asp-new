@@ -35,5 +35,5 @@ Haili muluti wa Mbande haubonahalanga fafasi, Nasikuku wa fanga mamela kwa tu ci
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

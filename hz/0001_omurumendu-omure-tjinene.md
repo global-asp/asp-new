@@ -37,5 +37,5 @@ Eye wa isa ondjuwo ye na katura mehwa enene. Neye wa hupa ozombura ozengi tjinen
 * License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

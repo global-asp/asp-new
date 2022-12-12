@@ -28,5 +28,5 @@ Nikabalela bo man'gi? Nakona kuipalela isalina.
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

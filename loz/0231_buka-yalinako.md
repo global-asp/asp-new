@@ -28,5 +28,5 @@ Ni bona nambwa mutalati.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

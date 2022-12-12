@@ -19,5 +19,5 @@ Mbi rimuna okusuverwa mama tje rivaranga mu ami.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle, Ingrid Schechter
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

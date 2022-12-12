@@ -52,5 +52,5 @@ Seluhua ka linzwi lilin'gwi luli; "luswanela kutisa zwelopili mwa bupilo mwaluna
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

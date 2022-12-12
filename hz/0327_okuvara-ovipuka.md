@@ -28,5 +28,5 @@ Ondjou imwe mai nu omeva pu na ongeyama.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

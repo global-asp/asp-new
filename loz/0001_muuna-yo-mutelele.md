@@ -37,5 +37,5 @@ Nasihile ndu yahae ni kuyoina mwa mushitu wo mutuna. Napilile lilimo zen'gata.
 * License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

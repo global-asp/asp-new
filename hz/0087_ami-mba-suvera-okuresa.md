@@ -28,5 +28,5 @@ Hapo me resere uṋe? Naa opuwo me riresere omuini!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

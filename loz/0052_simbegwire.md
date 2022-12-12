@@ -57,5 +57,5 @@ Sunda yetatama, BO Anita bamema Simbegwire ni likezeli zahehe, ni bomahe babainy
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

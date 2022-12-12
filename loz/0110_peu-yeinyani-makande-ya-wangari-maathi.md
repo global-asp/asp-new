@@ -40,5 +40,5 @@ Wangari natimezi mwa 2021, kono lwamupulanga nako kaufela alubona kota yende.
 * License: [CC-BY]
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

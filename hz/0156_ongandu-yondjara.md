@@ -19,5 +19,5 @@ Ngandu tji ya ṱondjara rukwao.
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

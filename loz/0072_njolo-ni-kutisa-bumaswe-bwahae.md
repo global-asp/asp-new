@@ -37,5 +37,5 @@ Cwale, bana ba Gingile abahutwa makande ya Ngede babanga kutekanganga ka nyunywa
 * License: [CC-BY]
 * Text: Zulu folktale
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

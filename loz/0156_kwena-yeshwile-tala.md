@@ -19,5 +19,5 @@ Kufita yatoutwa tala hape.
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

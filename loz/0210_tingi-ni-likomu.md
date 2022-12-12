@@ -37,5 +37,5 @@ Bananahela kwa ndu kakukuza kokutuna.
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

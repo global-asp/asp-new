@@ -43,5 +43,5 @@ Mulwani wa Vusi anahana hainyani, Kona abulela ,anina taba ni limpo. Aninataba n
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

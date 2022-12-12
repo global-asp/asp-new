@@ -28,5 +28,5 @@ Tou ilin'gwi inwa mezi ni Tau.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

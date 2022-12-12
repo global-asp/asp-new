@@ -36,5 +36,5 @@ Nata yamanzibwani lizazileo, nenibizizwe ki boma, bondate ni bokuku. Nenizibile 
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

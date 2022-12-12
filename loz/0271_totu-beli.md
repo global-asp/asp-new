@@ -19,5 +19,5 @@ Ni mazoho ya mabeli yalatana ya kopane mwa MBANDO!
 * License: [CC-BY-NC]
 * Text: Carole Bloch
 * Illustration: Richard MacIntosh
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

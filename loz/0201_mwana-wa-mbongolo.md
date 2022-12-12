@@ -68,5 +68,5 @@ Mbongolo ya mwanan ni bo mahe bahula amoho mi banani linzila zeshutana shutana z
 * License: [CC-BY]
 * Text: Lindiwe Matshikiza
 * Illustration: Meghan Judge
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

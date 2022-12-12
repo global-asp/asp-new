@@ -40,5 +40,5 @@ Nieza lika ze kaufela zende ka zazi ni zazi. Kono sika silisin'gwi senilata ahul
 * License: [CC-BY]
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

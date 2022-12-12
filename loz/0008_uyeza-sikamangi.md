@@ -28,5 +28,5 @@ Uyeza sikaman'gi?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

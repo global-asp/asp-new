@@ -37,5 +37,5 @@ Ovo va honena konganda kumwi.
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
-* Translation: Angelika U. T. Tjouṱuku & Asnath Mundjindjiri
+* Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
 * Language: hz

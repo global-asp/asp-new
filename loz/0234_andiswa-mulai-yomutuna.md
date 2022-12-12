@@ -31,5 +31,5 @@ Batu nebatabezi ahulu. Kuzwela zazi leo, basizani neba lumelezwi ku laha mbola.
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

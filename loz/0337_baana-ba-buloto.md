@@ -37,5 +37,5 @@ Lizazi alipazula, afufa inge ahopela mwa liseli la kakusasani.
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz

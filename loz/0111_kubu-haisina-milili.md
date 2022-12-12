@@ -28,5 +28,5 @@ Shakame neitabile kubona milili ya Kubu inge icisizwe. Mi nikacenulee, kasabo ya
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: Christabel Songiso and Akombelwa Muyangana
+* Translation: Christabel Songiso, Akombelwa Muyangana
 * Language: loz
