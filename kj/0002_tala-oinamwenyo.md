@@ -4,25 +4,25 @@
 Tala oinamwenyo.
 
 ##
-Ongobe taiti, "Moo".
+Ongobe taiti, "Moo."
 
 ##
-Oshikombo tashiti, "Meh, meh".
+Oshikombo tashiti, "Meh, meh."
 
 ##
-Onghambe taiti, "Hii, hii".
+Onghambe taiti, "Hii, hii."
 
 ##
-Oshingulu tashiti, "Ooi, ooi".
+Oshingulu tashiti, "Ooi, ooi."
 
 ##
-Oxuxwa taiti, "Koo kook".
+Oxuxwa taiti, "Koo kook."
 
 ##
-Ombwa taiti, "Woof".
+Ombwa taiti, "Woof."
 
 ##
-Omunahambo tati, "Shhh".
+Omunahambo tati, "Shhh!"
 
 ##
 * License: [CC-BY-NC]
