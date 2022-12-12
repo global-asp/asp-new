@@ -19,7 +19,7 @@ Meme nakuku oyi ipyakidhila.
 Olye tandi leshele ko?
 
 ##
-Tate nakuku oyi ipyakidhila.
+Tate nakuku gwomusamane oyi ipyakidhila.
 
 ##
 Olye tandi leshele ko? Otandi ileshele ngame mwene!
