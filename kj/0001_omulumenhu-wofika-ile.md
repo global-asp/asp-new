@@ -1,7 +1,7 @@
 # Omulumenhu wofika ile
 
 ##
-Etemo laye olina omupini muxupi
+Etemo laye olina omupini muxupi.
 
 ##
 Oshivelo shonduda yaye oshali shixupi.
