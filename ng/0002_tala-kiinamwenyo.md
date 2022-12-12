@@ -4,22 +4,22 @@
 Tala kiinamwenyo.
 
 ##
-Onzinzi ohayi ti, "Buu".
+Onzinzi ohayi ti, "Buu."
 
 ##
-Oshikombo ohashi ti, "Mee, mee".
+Oshikombo ohashi ti, "Mee, mee."
 
 ##
-Okakambe ohaka ti, "Hihihihi".
+Okakambe ohaka ti, "Hihihihi."
 
 ##
-Oshingulu ohashi ti, "Nkoi nkoi".
+Oshingulu ohashi ti, "Nkoi, nkoi."
 
 ##
-Ondjuhwa ohayi ti, "Kokokoko".
+Ondjuhwa ohayi ti, "Kokokoko."
 
 ##
-Ombwa ohayi ti, "Gwawu".
+Ombwa ohayi ti, "Gwawu."
 
 ##
 Omunafaalama oha ti, "Shhhh."
