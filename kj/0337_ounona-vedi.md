@@ -10,16 +10,16 @@ Mokukala kwavo iha va lu. Ndele voo oha va yakula ovakulunhu vavo moilonga aishe
 Ashike ka kwali va pitikwa oku ehena popepi nomundilo.
 
 ##
-Oilonga yavo aishe okwali have ilongo oufiku shaashi voo ovamewa medi.
+Oilonga yavo aishe okwali have ilongo oufiku shaashi voo ovamewa medi!
 
 ##
-Ashike okamati kamwe okali ka djuulukwa okuya pokamutenya pondje .
+Ashike okamati kamwe okali ka djuulukwa okuya pokamutenya pondje.
 
 ##
-efiku limwe ehalo lokuya pondje ola kula neenghono. Ovamwainamati ove mukumaida eheshininge.
+Efiku limwe ehalo lokuya pondje ola kula neenghono. Ovamwainamati ove mukumaida eheshininge...
 
 ##
- Akutu nani okunghililo oleya la laata! Okwa hengumungapo koupy wetango.
+Akutu nani okunghililo oleya la laata! Okwa hengumungapo koupy wetango.
 
 ##
 Ounona vedi okwali va nyemata mokumona omumwayinamati ta hengumukapo.
