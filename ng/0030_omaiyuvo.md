@@ -13,7 +13,7 @@ Ohandi ngwangwana uuna tandi dhana nookuume kandje.
 Ohandi yemata uuna tate a ti ke na iimaliwa.
 
 ##
-Ohandi uvu ohole uuna nda papatelwa mumeme.
+Ohandi uvu ohole uuna nda papatelwa kumeme.
 
 ##
 * License: [CC-BY-NC]
