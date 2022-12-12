@@ -1,4 +1,4 @@
-# Omuzalo gwosikola.
+# Omuzalo gwosikola
 
 ##
 Ohema ndjika onde.
@@ -22,7 +22,7 @@ Iikamusino mbika iihupi.
 Ihe oongaku ndhika oompe.
 
 ##
-.... onda gwana mo nawa.
+... onda gwana mo nawa.
 
 ##
 * License: [CC-BY-NC]
