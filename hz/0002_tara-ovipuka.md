@@ -22,7 +22,7 @@ Ohunguriva i tja "Kurukukuu."
 Ombwa i tja "Hau, hau."
 
 ##
-Omuṱuta u tja "Tjtj."
+Omuṱuta u tja "Tjtj!"
 
 ##
 * License: [CC-BY-NC]
