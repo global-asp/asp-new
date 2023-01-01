@@ -7,7 +7,7 @@ Etemo lye efupi unene.
 Omweelo gwondunda ye omufupi unene.
 
 ##
-Ombete ye ohupi noonkondo.
+Ombete ye ofupi noonkondo.
 
 ##
 Ombasikela ye ofupi noonkondo.
@@ -19,19 +19,19 @@ Omulumentu nguka omule unene!
 Okwa ningi omupini gwetemo omuleeleka.
 
 ##
-Okwa ningi iikulo yomweelo gwondunda iileele.
+Okwa ningi iikulo yomweelo gwondunda iileeleeka.
 
 ##
-Okwa ningi ombete ondeendeka.
+Okwa ningi ombete ondeendeeka.
 
 ##
-Okwa landa ombasikela ondeendeka.
+Okwa landa ombasikela ondeendeeka.
 
 ##
-Oha kuutumba koshipundi oshileeleka. Oha li nolufoloko oluleeleka.
+Oha kuutumba koshipundi oshileeleeka. Oha li nolufoloko oluleeleeka.
 
 ##
-Okwa thigi po egumbo lye a ka kale mokuti okunene. Okwa kala moka oomvula oodhindji.
+Okwa thigi po egumbo lye a ka kale mokuti okunene. Okwa kala moka oomvula odhindji.
 
 ##
 * License: [CC-BY]
