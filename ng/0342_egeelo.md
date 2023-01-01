@@ -28,11 +28,9 @@ Natse wo otwa li twa geela Rahim. Ashike Rahim ka li e na ko nasha.
 Rahim okwa tameke okweehama.
 
 ##
-"Epunda lyandje otali luluma,"Rahim osho a nongona.
+"Epunda lyandje ehama "Rahim osho a nongona.
 
-##
-Meme okwa adhika nale a shi tegelela,
-kutya iiyimati otayi ka kutha Rahim oshityani!
+Meme okwa adhika nale a shi tegelela, kutya iiyimati otayi ka kutha Rahim oshityani!
 
 ##
 Konima Rahim okwe tu pe ombili. "Itandi kala we nando olumwe omufukedhi ngaaka," osho a uvaneke. Naatuhe otwa li twe mu itaala.
