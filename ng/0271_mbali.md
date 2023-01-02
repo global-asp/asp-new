@@ -1,4 +1,4 @@
-# Mbali.
+# Mbali
 
 ##
 Uuke uyali tawu kwata.
