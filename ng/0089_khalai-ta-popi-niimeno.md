@@ -19,7 +19,7 @@ Posikola Khalai okwa popitha omuti gu li mehalandjandja. "Muti ngoye iitayi yoye
 Khalai ta popi nuumeno mboka wa ninga po olugumbo lwosikola. "Kokeni mwa thita nawa opo aantu aawinayi yaa vule okuthawa nokuya meni mosikola."
 
 ##
-Khai sho a shuna kegumbo, okwa yi komuti gwomalemune nokwa pula, "Ano omalemune goye inaga pya natango?"
+Khalai sho a shuna kegumbo, okwa yi komuti gwomalemune nokwa pula, "Ano omalemune goye inaga pya natango?"
 
 ##
 "Omalemune natango omagongwa," Khalai osho a keme. "Otandi galuka ishewe ongula."Khalai osho a lombwele omuti. "Ngiika otandi adha wu nine ndje elemune lya pya!"
