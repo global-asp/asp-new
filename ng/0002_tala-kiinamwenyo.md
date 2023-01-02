@@ -13,7 +13,7 @@ Oshikombo ohashi ti, "Mee, mee."
 Okakambe ohaka ti, "Hihihihi."
 
 ##
-Oshingulu ohashi ti, "Nkoi, nkoi."
+Oshingulu ohashi ti, "Oinki oinki."
 
 ##
 Ondjuhwa ohayi ti, "Kokokoko."
@@ -22,7 +22,7 @@ Ondjuhwa ohayi ti, "Kokokoko."
 Ombwa ohayi ti, "Gwawu."
 
 ##
-Omunafaalama oha ti, "Shhhh."
+Omunafaalama oha ti, "Shhhh!"
 
 ##
 * License: [CC-BY-NC]
