@@ -28,5 +28,6 @@ Mi ho g≠uing!aung!aunu
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Cwi Debe
+* Translation: Sylvia
+
 * Language: ktz
