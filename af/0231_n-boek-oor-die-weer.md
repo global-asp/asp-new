@@ -1,4 +1,4 @@
-# 'n Boek oor die weer
+# 'n boek oor die weer
 
 ##
 Dit is droog.
@@ -7,10 +7,10 @@ Dit is droog.
 Die son is warm.
 
 ##
-Dit is winderig.
+Die wind waai.
 
 ##
-Dit is bewolk.
+Dis bewolk.
 
 ##
 Dit is koud.
@@ -28,5 +28,5 @@ Ek sien 'n reënboog.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Willemien
+* Translation: Willemien Wannberg
 * Language: af
