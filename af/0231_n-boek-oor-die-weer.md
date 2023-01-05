@@ -1,13 +1,13 @@
-# 'n boek oor die weer
+# Boek oor die weer
 
 ##
-Dit is droog.
+Dis droog.
 
 ##
 Die son is warm.
 
 ##
-Die wind waai.
+Dit is winderig.
 
 ##
 Dis bewolk.
@@ -19,10 +19,10 @@ Dit is koud.
 Dit reën.
 
 ##
-Die donderweer dreun.
+Daar is donderweer.
 
 ##
-Ek sien 'n reënboog.
+Ek sien die reënboog.
 
 ##
 * License: [CC-BY-NC]
