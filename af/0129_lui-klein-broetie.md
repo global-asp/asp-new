@@ -1,10 +1,10 @@
-# Lui klein broetie
+# Lui klein boetie
 
 ##
 Ek word wakker en maak vuur.
 
 ##
-Ek kook water..
+Ek kook water.
 
 ##
 Ek kap die vuurmaakhout.
