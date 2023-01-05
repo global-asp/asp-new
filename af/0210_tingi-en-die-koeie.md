@@ -22,7 +22,7 @@ Hulle het in die bosse weggekruip tot donker.
 Net toe het die soldate teruggekom.
 
 ##
-Ouma het gou vir Tingi onder die blare weggesteek .
+Ouma het gou vir Tingi onder die blare weggesteek.
 
 ##
 Een van die soldate het reg op hom getrap, maar hy het doodstil gebly.
