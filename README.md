@@ -30,6 +30,7 @@ loz | siLozi
 lue | Luvale
 lun | Lunda
 luo | Dholuo
+naq | Khoekhoe
 ng | Oshindonga
 ny | Cinyanja
 old | Kichaga
