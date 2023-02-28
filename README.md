@@ -24,6 +24,7 @@ kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
 ktz | Ju|’hoansi
+kua | Kuanyama
 loz | siLozi
 lue | Luvale
 lun | Lunda
