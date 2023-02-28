@@ -74,4 +74,4 @@ Ozina tava mu tantere, “Elisigo tupu lya kara pokatji koge nomuntu gokutwika l
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
 * Translation: Karl Nairenge
-* Language: kwn ["Ruk" - to be confirmed]
+* Language: kwn
