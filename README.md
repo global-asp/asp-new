@@ -25,6 +25,7 @@ koo | Lukhonzo
 kqn | Kaonde
 ktz | Ju|’hoansi
 kua | Kuanyama
+kwn | Kwangali
 loz | siLozi
 lue | Luvale
 lun | Lunda
