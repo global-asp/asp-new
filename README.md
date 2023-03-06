@@ -12,6 +12,7 @@ The repo currently includes the following languages, arranged by [ISO 639-1](htt
 
 ISO Code | Name
 -------- | ----
+af | Afrikaans
 am | Amharic
 bem | Icibemba
 dag | Dagbani
@@ -26,7 +27,8 @@ kqn | Kaonde
 ktz | Ju|’hoansi
 kua | Kuanyama
 kwn | Kwangali
-loz | siLozi
+loz-na | siLozi (Namibia)
+loz-zm | siLozi (Zambia)
 lue | Luvale
 lun | Lunda
 luo | Dholuo
