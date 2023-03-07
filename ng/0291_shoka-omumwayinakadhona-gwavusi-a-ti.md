@@ -1,7 +1,7 @@
 # Shoka omumwayinakadhona gwaVusi a ti
 
 ##
-Ongula yesiku limwe yinakulu ya Vusi okwe mu ithana kuye. Okwe mu pe eyi e te mu lombwele ta ti: "Vusi, taamba eyi ndika e to li fala kaakuluntu yoye . Oya hala aniwa okuteleka oshikuki oshinene shohango yamumwanyoko."
+Ongula yesiku limwe yinakulu yaVusi okwe mu ithana kuye. Okwe mu pe eyi e te mu lombwele ta ti: "Vusi, taamba eyi ndika e to li fala kaakuluntu yoye . Oya hala aniwa okuteleka oshikuki oshinene shohango yamumwanyoko."
 
 ##
 Mondjila okuya kaakuluntu ye Vusi okwa tsakaneke uumati wa li tawu likola iiyimati. Okamati kamwe oka kutha ko eyi kuVusi e take li umbile mekota lyomiti. Eyi nolya tatuka.
@@ -23,7 +23,7 @@ Mondjila okwa adha mo ishewe aasamane yaali taa tungu ondunda. "Natu longithe po
 Aatungi oya li ye eta ohenda sho ya teya oshiti. "Katu na shoka tatu vulu we okuninga kombinga yoshikuki, ashike taamba omwiidhi nguka gwokukumba wu faalele mumwanyoko." Omulumentu gumwe osho a ti kuye. Vusi okwa tsikile nondjila ye.
 
 ##
-Mondjila okwa adha mo omunafaalama e na ongombe. "Omwiidhi omwaanawa ngiini ngono, iho pendje ko wo ohuto? "Ongombe tayi pula. Omwiidhi ogwa li omutoye unene nongombe oye gu li po sigo ye gu mana po aguhe!
+Mondjila okwa adha mo omunafaalama e na ongombe. "Omwiidhi omwaanawa ngiini ngono, iho pe ndje ko wo ohuto? "Ongombe tayi pula. Omwiidhi ogwa li omutoye unene nongombe oye gu li po sigo ye gu mana po aguhe!
 
 ##
 "Owa ningi ihe ngiini ngawo?" Vusi oshi a ti neyeme.
@@ -38,7 +38,7 @@ Pethimbo lyuulalelo ongombe oya fadhuka po e tayi shuna komunafaalama. Vusi okwa
 
 ##
 "Nena otandi ningi ihe ngiini?" Vusi osho a ti neyeme.
-"Ongombe ndjoka ya fadhuka po oyo ya li omagano nde yi pewa peha lyomwiidhi. Aatungi ya pendje omwiidhi sho ya teya po oshiti shoka nda pewa kaakongi yiiyimati. Aakongi yiiyimati ye shi pendje sho ya tatula po eyi lyoshikuki. Oshikuki shoka sha li shohango. Nena kapu na we eyi, kapu na oshikuki no kapu na we omagano."
+"Ongombe ndjoka ya fadhuka po oyo ya li omagano nde yi pewa peha lyomwiidhi. Aatungi ya pe ndje omwiidhi sho ya teya po oshiti shoka nda pewa kaakongi yiiyimati. Aakongi yiiyimati ye shi pe ndje sho ya tatula po eyi lyoshikuki. Oshikuki shoka sha li shohango. Nena kapu na we eyi, kapu na oshikuki nokapu na we omagano."
 
 ##
 Omumwayina gwaVusi okwa dhiladhila e ta ti: "Vusi mumwameme, ngame kandi na unene sha nomagano! Itandi ipula wo noshikuki! Atuheni opo tu lyeni mpaka, onda nyanyukwa. Inda wu ka zale oonguwo dhoshituthi e to ya tu tyapuleni esiku ndika!" Na Vusi osho a ningi.
