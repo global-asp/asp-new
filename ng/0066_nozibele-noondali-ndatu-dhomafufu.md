@@ -25,12 +25,12 @@ Okwa li a kumwa sho ombwa oyo ya egulula omweelo, e tayi mu pula tayi ti: "Owa h
 
 ##
 "Telekela ndje!"Ombwa osho ye mu lombwele. "Inandi telekela nale oombwa,"Nozibele ta yamukula.
-"Teleka ngele hasho otandi ku li,"ombwa tayi yamukula.
+"Teleka, ngele hasho otandi ku li,"ombwa tayi yamukula.
 Nozibele okwa teleke.
 
 ##
 Ombwa tayi lombwele natango Nozibele: "Yala ombete yandje"
-"Inandi yalela nale ombwa ombete",Nozibele ta yamukula.
+"Inandi yalela nale ombwa ombete," Nozibele ta yamukula.
 "Yala ombete, ngele hasho otandi ku li", ombwa nayo tayi yamukula wo. Nozibele ta yala ombete.
 
 ##
@@ -40,13 +40,13 @@ Kehe esiku Nozibele oku na okuteleka, okukomba nokuyogela ombwa. Esiku limwe omb
 Ombwa sho ya yi, mbalambala Nozibele okwa kutha oondali ndatu dhomafufu komutse gwe. Efufu limwe okwe li tula kohi yombete yombwa, limwe okwe li tula konima yomweelo nalimwe okwe li tula moshigunda. Okwa fadhuka po a dhiginina e ta yi kegumbo.
 
 ##
-Ombwa sho ya galuka oya tameke okukonga Nozibele. "Nozibele owu li peni? "Osho ya pula.
-"Ongame nguka kohi yombete", efufuf lyotango tali yamukula.
-"Ongame nguka konima yomweelo", efufu etiyali tali yamukula.
-"Ongame nguka ndi li moshigunda,"efufu etitatu tali yamukula wo.
+Ombwa sho ya galuka oya tameke okukonga Nozibele. "Nozibele owu li peni?" Osho ya pula.
+"Ongame nguka kohi yombete," efufu lyotango tali yamukula.
+"Ongame nguka konima yomweelo," efufu etiyali tali yamukula.
+"Ongame nguka ndi li moshigunda," efufu etitatu tali yamukula wo.
 
 ##
-Ombwa oya mono kutya Nozibele okwe yi kotokele. Oya tondoka ya landula Nozibele sigo okomukunda gwawo. Ashike aamati aamwayina yaNozibele oya adhika ye yi langela ya tya iitago iinene. Ombwa oya piluka e tayi fadhuka po okuza kesiku ndyoka, inayi monika we tuu nando.
+Ombwa oya mono kutya Nozibele okwe yi kotokele. Oya tondoka ya landula Nozibele sigo okomukunda gwawo. Ashike aamati aamwayina yaNozibele oya adhika ye yi langela ya tya iitago iinene. Ombwa oya piluka e tayi fadhuka po. Okuza kesiku ndyoka, inayi monika we tuu nando.
 
 ##
 * License: [CC-BY]
