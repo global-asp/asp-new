@@ -16,7 +16,7 @@ Ombasikela ye ofupi noonkondo.
 Omulumentu nguka omule unene!
 
 ##
-Okwa ningi omupini gwetemo omuleeleka.
+Okwa ningi omupini gwetemo omuleeleeka.
 
 ##
 Okwa ningi iikulo yomweelo gwondunda iileeleeka.
