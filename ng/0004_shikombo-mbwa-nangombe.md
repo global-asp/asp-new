@@ -1,4 +1,4 @@
-# Oshikombo, Ombwa nOngombe
+# Oshikombo, ombwa nongombe
 
 ##
 Oshikombo, ombwa nongombe oya li ookuume aanene. Esiku limwe oya yi molweendo nokatekisa.
@@ -7,13 +7,13 @@ Oshikombo, ombwa nongombe oya li ookuume aanene. Esiku limwe oya yi molweendo no
 Sho ya thiki hoka ya li yu uka, omuhingi okwe ya pula ofuto. Ongombe oya futu omwaalu gwa gwana po.
 
 ##
-Ombwa oya futu iimaliwa ya pitilila oshoka kaya li yi na iimaliwa ya topoka.
+Ombwa oya futu iimaliwa ya pitilila, oshoka kaya li yi na iimaliwa ya topoka.
 
 ##
 Omuhingi okwa adhika andola a pe ombwa oshendja yayo, sho oshikombo otashi fadhuka po inaashi futa nando osha.
 
 ##
-Omuhingi okwa uvu nayi, sho oshikombo inaashi futa. Okwa hingi e ta yi no inaa gandja we oshendja kombwa.
+Omuhingi okwa uvu nayi, sho oshikombo inaashi futa. Okwa hingi e ta yi no inaa gandja we oshendja yombwa.
 
 ##
 Okuza mpoka sigo onena ombwa ohayi tidha iihauto, opo yi tale ngele tayi mono mo omuhingi ngoka inee yi pa oshendja yayo.
