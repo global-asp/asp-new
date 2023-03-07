@@ -1,7 +1,7 @@
 # Khalai ta popi niimeno
 
 ##
-Nguka oKhalai. Oku na oomvula heyali. Edhina lye otali ti 'ngoka omwaanawa' melaka lye lyoShimbukushu.
+Nguka oKhalai. Oku na oomvula heyali. Edhina lye otali ti 'ngoka omwaanawa' melaka lye lyOshimbukushu.
 
 ##
 Khalai okwa penduka e ta popitha omuti gwomalemune. Alikana, muti ngoye gwomalemune koka e to tu pe omalemune ogendji ga pya nawa.
