@@ -22,13 +22,13 @@ Ihandi tila omeya omatalala nenge wo tuu ezimba lyothewa yolwaala lwegulu.
 Sho nda mana okwiiyoga onda ka popitha kuku omusamane namemegona nonde ya halele esiku ewanawa.
 
 ##
-Ondii zaleke ngaye mwene.
+Ondi izaleke ngame mwene.
 
 ##
 Ohandi vulu okupata oombandi dhohema yandje nokumanga omiya dhoongaku dhandje.
 
 ##
-Ohandi kundaneke aluhe okamwaamememati kushoka sha ningwa kosikola.
+Ohandi kundaneke aluhe okamwamememati kushoka sha ningwa kosikola.
 
 ##
 Ohandi ningi aluhe nawa miinyangadhalwa yandje yosikola.
