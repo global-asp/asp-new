@@ -4,7 +4,7 @@
 Tala kiinamwenyo.
 
 ##
-Onzinzi ohayi ti, "Buu."
+Onzinzi ohayi ti, "Buuuu."
 
 ##
 Oshikombo ohashi ti, "Mee, mee."
