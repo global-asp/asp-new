@@ -7,7 +7,7 @@ Omukunda gwetu ogu na omikundu odhindji. Ohatu tsu omukweyo omule gu oka kondung
 Ohatu hupu mokuhawala iikulya mbyoka ya gandjwa kaasihenda.
 
 ##
-Ohatu pata omagumbo getu kuyele omulwa aafuthi.
+Ohatu pata omagumbo getu kuyele omolwa aafuthi.
 
 ##
 Aanona oyendji oya thiga po osikola.
@@ -25,7 +25,7 @@ Uuna ombepo tayi pepe, oombapila niiyagaya yilwe ohayi kala ya hakela komiti nok
 Aantu ohaa tetwa kiitandu yomakende ngoka ga umbwa umbwa.
 
 ##
-Esiku limwe ondungu yetu yomeya oya pwine po niikwatelwa yetu oya li yaa na sha.
+Esiku limwe ondungu yetu yomeya oya pwine po, niikwatelwa yetu oya li yaa na sha.
 
 ##
 Tate okwa hiya egumbo negumbo koshigongi shomukunda.
@@ -34,13 +34,13 @@ Tate okwa hiya egumbo negumbo koshigongi shomukunda.
 Aantu oya gongala kohi yomuti omunene ya pulakene.
 
 ##
-Tate okwa thikama e te ya lombwele ta ti: "Otwa pumbwa okulongela kumwe opo tu kuthe opo omikundu ndhoka tu na.
+Tate okwa thikama e te ya lombwele ta ti: "Otwa pumbwa okulongela kumwe opo tu kuthe po omikundu ndhoka tu na."
 
 ##
 Juma, okamati koomvula hetatu hoka ka li ka kuutumba koshitayi shomuti oka igidha,"Ngame otandi vulu okukwatha mokwoopaleka."
 
 ##
-"Aakulukadhi otaa vulu okulonga pamwe nangame tu kune iimeno tu mone iipalutha." omukulukadhi gumwe osho a ti.
+"Aakulukadhi otaa vulu okulonga pamwe nangame tu kune iimeno tu mone iipalutha," omukulukadhi gumwe osho a ti.
 
 ##
 Omusamane gumwe wo okwa thikama e ta ti: "Aasamane otaa ka hupa ondungu."
