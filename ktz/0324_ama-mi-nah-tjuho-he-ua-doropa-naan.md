@@ -1,4 +1,4 @@
-# /Ama mi n//ah tju/ho he ua doropa n!a'an .
+# /Ama mi n//ah tju/ho he ua doropa n!a'an
 
 ##
 Kobe ma n/ui n!om tsaua e tju/ho te ha sa ku n!aoh g/a'ain ge. Kxa/ho tasa ‡hai g//a /'an ka n!ao. Touts hin ku !'au koa besi ku n‡au ll'a ka !usi.
