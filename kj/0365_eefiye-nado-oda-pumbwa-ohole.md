@@ -1,93 +1,91 @@
 # Eefiye nado oda pumbwa ohole
 
 ##
- Keshe efiku Hilifa oha penduka ongula yakula ta longekidile ina oshuumbululwa shongula. Ina okwa kala ta yehama na Hilifa okwali ena oku lihonga nghene ena oku fila oshisho ina nayemwene. Omafimbo amwe ngeenge ina a ombokelwa unene ita dulu okupenduka, Hilifa oha tema omundilo,a ndjeneke omeva oku ninga otee. Oha twaalele ina otee ndele ta longekida okatete.Omafimbo amwe ina okwali ha kala ehena eenghono ita dulu nokulya. Hilifa okwali ha kala a limbililwa molwa ina.Xe okwa xulako nale konima yeedula mbali, paife ina oye ta yehama. Ina okwa utama unene ngaashi naana xe ali. 
+Ongula keshe Hilifa oha penduka diva opo a ka longekide oshuumbululwa shaina. Ina okwa kala efimbo lile ta vele. Hilifa okwe lihonga okufila ina oshisho naye mwene. Hilifa okwa kala ha ningile ina otee (okafe) eshi iha dulu vali okupenduka. Oha twaalele ina otee noku mu telekela oshimbobo. Omafimbo amwe ina okwa kala a nghundipala ita dulu okulya. Hilifa okwa kala a limbililwa kombinga yaina. Xe okwa fya nale eedula mbali da pita, ndele paife ina oye vali ou ta vele unene. Ina okwa li a utama naanaa ngaashi xe.
 
 ##
-Ongula yefiku limwe okwa pula ina tati, “Meme hano meme? Onaini to kalapo nawa? Iho teleke bali. Ove i holongo vali mepya ile u wapaleke eumbo. I ho longekidilenge vali okabaki kokosikola ile u koshe omudjalo wange wokofikola.” Ina okwa tala okamati okanyasha, a lulilwa te lipula kutya ote ka lombwele shike. Ota dulu ngaa oku udako? “Hilifa mumwange, ouna ashike eedula omuwoyi ndele oho filenge oshisho , Ame oha ndi yehama unene. Oho udu moradio ta popiwa omukifi ha u ifanwa o AIDS. Ondina nee omukifi oo,” ina osho ati. Hilifa okwa kala oule wominute donhumba “Ta shiti naave oto fi ngaashi tate? Hilifa ta pula ina. “ Kapena epango lomukifi wo AIDS” ina osho ati.
+Ongula yefiku limwe okwa pula ina ta ti, "Oshike hano meme? Onaini to ti po xwepo? Iho teleke vali. Iho dulu vali okulonga mepya ile okuwapaleka eumbo. Iho longekidile nge vali okabaki kange koikulya ile u koshe omudjalo wange wofikola..." "Hilifa mumati wange, u na ashike eedula omugoi, mumati wange, ndele oho file nge nawa oshisho." Ta tale nawa omonamati ehe shii kutya ote mu lombwele shike. Ota udu ko ngoo mbela? "Ame ohandi vele. Owa uda moradio kutya ope na omukifi oo hau ifanwa oAIDS. Ame ondi na omukifi oo," osho emu lombwela. Hilifa okwa kala a mwena manga okafimbo. "Tashi ti kutya naave oto fi ngaashi tate?" "Kape na eveluko komukifi woAIDS."
 
 ##
-Hilifa okwa enda tai kofikola ena omalipulo eli moule. Ka kwali ta dulu oku kufa ombinga meenghundwa nomomaudano nookaume kaye eshi ta va ende pamwe. “Oshike sha puka?” vakwao ove mu pula. Ashike Hilifa ka kwali ta dulu oku nyamukula, oitya ya ina oya li tai kwelengedja natango momatwi aye, “kapena epango, ka pena epango”. Okwali te li pula kutya ote ke li fila oshisho ngahelipi ngeenge ina okwa fi , ota ka kala hadi peni? Ota ka kufa peni oimaliwa yokulanda oikulya?
+Hilifa okwa ya kofikola. Iha dulu okupopya ile okudanauka nawa pamwe navakwao. "Oshike hano?" tave mu pula. Ashike Hilifa ka li ta dulu okunyamukula, eshi tashi kwelengedja momatwi aye, oitya yaina, "Ihau veluka. Ihau veluka.'' Ote ke lifila mbela oshisho ngahelipi ngeenge ina a fi, a limbililwa. Ota ka kala peni? Ota ka hanga peni oimaliwa yoikulya? Hilifa walked to school thoughtfully. He couldn't join in the chatter and games of his friends as they walked along. "What's wrong?" they asked him. But Hilifa couldn't answer, his mother's words were ringing in his ears, "No cure. No cure." How could he look after himself if his mother died, he worried. Where would he live? Where would he get money for food?
 
 ##
-Hilifa okwa kala omutumba poshitaafula shaye. Yee okwali ta fengaafenga oshitaafula osho sha li sha kulupa, “ka pena epango. Ka pena epango.” Omulongi Nelao okwali a fikama pu Hilifa tati, “ Hilifa, Hilifa, Oto endele ngaa pamwe nafye? Hilifa fikama, onda pula epulo ta liti ngahelipi?” Hilifa okwa nyongama a tala keemhadi date. “ Enyamukulo ito limono po pedu opo!” osho emu lombwela ta hanyauka. “Magano, lombwela Hilifa enyamukulo”. “ Hilifa okwali afya ohoni shaashi omulongi Nelao ine mu lombwela nale ne hanyeno.
+Hilifa ta kala omutumba pokataafula kaye. Ta nyotaanyota oshitaafula ye ta diladila, "Ihau veluka, ihau veluka." "Hilifa, Hilifa, ou li ngoo pamwe nafye hano?" Hilifa ta petuka. Mee Nelao okwe mu fikamena. ‘'Hilifa fikama! Onda ti ngahelipi?" Hilifa okwa tala peemhadi daye. "Ito mono enyamukulo opo to tale! Magano, lombwela Hilifa enyamukulo." Hilifa okwa li a fya ohoni shaashi, mee Nelao ka li e mu hanyaukila nale ngaho.
 
 ##
-Hilifa okwa kala ta kondjo nomadilaadilio. Pefimbo lokafudo oha kala omutumba mongulu yofikola. “oha ndi vele medimo.”osho a lombwela ookaume kaye oipupulu. Enyamukulo laye ka lali naana loipupulu unene shaashi nande ka kwali ta vele shili medimo omadilaadilo eli momutwe waye okwali ta e mupiyaaneke ta a ingaana afa onyiki ya handuka. Omulongi Nelao okwe mu konaakona nelimweneno. Okwe mu pula kutya oupyakadi ouli peni. “Kapenasha,” osho a nyamukula. Omulongi Nelao mokupwilikina Hilifa momatwi aye omwa uda eloloko nelimbililo mondaka ya Hilifa. Omesho aye okwa didilika outile wakula oo Hilifa ta kendabala oku holeka.
+Hilifa ka li te shi endifa nawa ongula. Pefimbo lokafudo okwa kala e li omutumba mongulu. "Ohandi vele medimo," ta fufya ookaume kaye. Ashike kasha li oipupulu, unene okwa li ngoo ta vele shili opamwe nelimbililo. Mee Nelao ote mu tongolola kanini nakanini. Okwe mu pula kutya oshike sha puka. "Kape na sha," Hilifa ta nyamukula. Omatwi aye okwa uda eloloko nelimbililo mondaka yaye. Omesho aye okwa mona outile oo kwali ta kendabala neenghono okuholeka.
 
 ##
-Eshi Hilifa okwali ta kendabala oku longa oinyangadalwa yomwaalu ashike eenomola okwali ta di ta nukauka momutwe waye. Ka kwali naana ta dulu oku koneka noku valula efimbo lile. Hilifa okwa sholola. Ponhele yokudilaadila oilongwa okwa kala noku dilaadila ina. Eenyala daye oda tameka oku faneka osho shili momadilaadilo aye . Okwa faneka efano la ina a nangala mombete yaye. Okwa faneka yoo vali efano laye mwene a fikama pombila ya ina 
+Hilifa eshi kwa li ta kendabala okuvala omuvalu, eenomola oda li tadi tanauka momutwe waye. Ita dulu okutwikila okuvalula nokonima ina hala vali. Ponhele yaasho okwa kala ta dilaadila ina. Okwa hovela okufaneka ina eshi e li mombete. Ote lifaneke a fikamena ombila yaina. "Omwoongeli woilonga yomuvalu, kwafe nge u ongele omambo aeshe," osho mee Nelao a ti meendelelo. Hilifa okwa mona osho a faneka membo laye, ndee ta kendabala ngeno a pombole mo efano, ashike efimbo ola pwa ko. Omwoongeli womambo okwa twala nale embo kumee Nelao.
 
 ##
-Omuhongi Nelao okwa tala omafano oo a fanekwa ku Hilifa. Eshi ofikola ya pitamo novanafikola ta vai komaumbo okwa ifana Hilifa, “Hilifa ila onda hala oku popya  naave.  oupyakadi ouli peni?” Okwe mu pula noukeka.”Meme ota vele. Okwa lombwelange kutya okuna o AIDS. Hilifa okwa pula omulongi “meme otafi? Omulongi Nelao okwa nyamukula kutya keshishi,. Hilifa okwa twikila noku hokolola “meme ota vele neenghono woo omukifi kauna epango.” Oitya oyo kapena epango, ka pena epango”oye munyematifa ndele ta tameke oku kwena.Omulongi Nelao okwa ti: “Hilifa inda keumbo oha ndi uya ndi talelepo nyoko.
+Mee Nelao ta tale osho sha fanekwa kuHilifa. Eshi ounona tava i komaumbo, okwa ufana Hilifa. "Hilifa ila kwaame, onda hala ndi popye naave." "Oshike sha puka?" mee Nelao ta pula. "Meme ota vele, okwa lombwela nge kutya oku na oAIDS. Ota fi?" "Kandi shi shii Hilifa, ashike nge mboli oku na ombuto ota vele kape na ouhaku wayo." Oitya oyo, "Ita veluka. Ita veluka." Oya kwenifa Hilifa. "Inda keumbo, Hilifa" mee Nelao ta ti," Ohandi ya ndi talele po meme woye."
 
 ##
-Hilifa eshi a ya keumbo okwa hanga ina ta teleke omusha. “Onde ku telekela nena, Hilifa, ashike paife onda loloka. “Onda hala u file oshisho oihape moshikunino ndele to twala omatama amwe kofitola, ota ve ke tu landifila omatama.” Hilifa eshi a mana okulya omusha okwa ya kepya loihape. Okwali ta tale omaluvali oihape a shena nawa,ngaashi oluvala li tilyana lomatama neendungu,oluvala li twima omafo lomakunde neembidi,omafo oikapa nomafo omapungu male male. Okwa tekela oshikunino ndele ta likola omatama aa a pya oo omatilyana opo e atwale kofitola. “Mbela oshikunino ota shi kakala ngahelipi ngeenge meme okwa fi?” okwe li pula nelimbililo.
+Hilifa eshi e uya meumbo okwa hanga ina ta longekida omusha. "Onde ku telekela nena Hilifa, ashike paife onda loloka. Tonatela oshikunino shoikwambidi ndele to kufa omanyoto u twale kofitola. Otave ke tu landifila." Konima yomusha, Hilifa okwa ya koshikunino. Okwa tala komaluvala a hapa nawa oikwambidi, nomanyoto a tilyana nawa neendungu, omakunde male a ngelina nawa nombidi yospinasi, omafo a ngelina nawa oihakautu nomapungu. Okwa tekela oshikunino ndee ta tona ondjato i yadi omanyoto ndele te a twala kofitola. "Oshikunino shavo otashi ka kala ngahelipi mbela ngeenge ina okwa fi?" osho te lipula.
 
 ##
-Konima eshi Hilifa aya omuhongi Nelao okwe uya keumbo lavo. Okwa uhalamo efimbo lile meumbo ta popi na ina. Okwa pula Hilifa tati, “ Meme Ndapanda, oho nu ngaa omiti do AIDS?” Ina ya Hilifa okwa nyamukula tati,”konima eshi omushamane wange a xulifa okwali nda fya ohoni oku ya ko ndokotola. Onda kala ndina etimaumbwile kutya ame ka ndina omukifi. Eshi nee nda tameka oku vela onda ya kondokotola ndeele ta lombwelenge kutya kapena vali ekwafo lasha, shaashi ina ndi ya ko diva. Nande ondi pewe omiti, ita di kwafelesha vali”’. Omuhongi Nelao okwa lombwela meme Ndapanda osho ena oku ninga opo a kwafele Hilifa.
+Mee Nelao okwa fika diva eshi Hilifa a ya. Okwa kala efimbo lile ta popi nameme waHilifa. Te mu pula, "Meme Ndapanda, oho nu tuu omiti doAIDS?" "Konima eshi omushamane wange a fya, onda kala nda fya ohoni okuya kundokotola," ta lombwele mee Nelao. "Onde lipula kutya pamwe inandi kwatwa ngaa kombuto. Eshi nda tameka okuyehama ndele handi i ku ndokotola, okwa lombwela nge kutya efimbo ola pwa po. Omiti itadi kwafa nge vali." Mee Nelao okwa lombwela meme Ndapanda osho e na okuninga a kwafele Hilifa.
 
 ##
-Hilifa eshi e uya keumbo, ina okwe mu pula tati:, Hilifa mumwange onda hala u twalenge ndi ke li ufe momaulu. Oto dulu oku yambididange?” Hilifa okwa kwata okwooko kwa ina ndele te li kolele kuye. Okwali ta va ende va yuka kombinga oku kuna omiti dile domakiya. Ina okwe mupula tati,  “oto dimbulukwa eshi kwali ha mudana etanga lokeemhadi apa namumwanyoko  Kanuu? Okwali wa  lyatela etanga momuti ndele tali hakele momakiya. Xo okwali eli kwelumuna eshi kwali te kukufilemo etanga”.
+Eshi Hilifa e ya keumbo meme Ndapanda okwe mu pula ta ti, "Hilifa mumati wange, onda hala tu ka ende naave. Oto kwafele nge?" Hilifa ta kwata ina mokwooko opo a shiive a yaamene kuye. Ova ya fiyo openo la kula, "Oto dimbulukwa ngoo fiku mwa li tamu denge okatanga naKunuu? Owa lyatele okatanga ndee taka hakele meno omo. Xo okwa kwenyununinwe komakiya eshi e ke mu kufila mo."
 
 ##
-“Tala, oshixwa osho shomandjebele. Inda u katone omandjebele neembe tu twaalele keumbo”. Manga Hilifa ta tona eembe, ina okwa ti, “ oto dimbulukwa ngaa  eshi kwali u mushona wa lile eembe ndele to pona noiti ndele to ningi omafiku wa kwatwa kombato”. Hilifa okwe shi dimbulukwa ndele ta  nyamukula ta yolo tati,  “eeeee, ndee edimo lange okwali ta li veeeeeeele”.
+"Tala, oixwa yomandjebele. Inda u ka tone ko amwe u twaalele keumbo." Eshi Hilifa kwa li ta tona omadjebele, ina okwe mu pula, "Oto dimbuluka eshi wa li u munini, owa li ho li eembe noiti yado. Owa kala oule woshivike ino ya koixwa." "Eheeno, edimo lange ola li li udite oudjuu," Hilifa teshi dimbuluka ta yolo.
 
 ##
-Eshi va shuna meumbo ina ya Hilifa okwali a loloka neenghono. Hilifa okwa ninga o tee. Meme Ndapandula okwa kufa okapakete koshi yombete nde tati:” Hilifa eshi oshoye. Mokapakete omu omuna oinima oyo tai ke ku kwafela oku dimbulukwa apa wadja. 
+Eshi va fika keumbo, ina yaHilifa ta ningile ina otee. Meme Ndapanda ta kufa okapakete kamwe ka li koshi yombete. "Hilifa aka okoye. Mokapakete mu omu na oinima oyo tai ku kwafele okudimbuluka apa wadja."
 
 ##
-Okwa kufa oidimbulukifo mokapakete kooshimwe nooshimwe. “  Eli efano la xo eku yambuta. Oove wali omumati waye woshiveli. Eli efano eshi nda faneka eshi ndeku twala u ka talelepo oonyokokulu, okwali va hafa neenghono. Eli efano eshi wa kuka eyoo loye lotete. Oto dimbulukwa ngaa eshi wali to kwena, ndele ha ndi ku udanekele kutya oto ka mena omayoo mahapu natango? Ei ombadi nda pele kuxo eshi twa hombola konima yodula imwe.
+Okwa kufa oidimbulukifo mokapakete kooshimwe-nooshimwe. "Eli efano laxo e ku humbata. Oove oshiveli shaye. Eli efano loye wa fanekwa eshi kwa li twe ku twala kooxokulu nanyokokulu, nova li va hafa. Eli eyoo loye lotete e li wa kuka. Oto dimbuluka eshi wa li to kwena nonda li handi ku kumaida kutya omayoo mahapu otaa ka mena. Ei ombadi nda pewelwe kuxo eshi twa hombola oule wodula imwe."
 
 ##
-Hilifa okwa papatela okapakete ndele ta meke oku kwena. Ina okwa papatela Hilifa ndele ta ilikana , “Omwene neku a  mene yee na kla pamwe naave. ina okwa twikila tati: Hilifa mumwange, oushsishi nawa kutya oha ndi vele neenghono ndee okwa xupa ashike efimbo lixupi opo ndi landule xo. Ina ndi hala u kale wa nyemata.  Dimbulukwa kutya ondi ku hole. Ove to dimbulukwa yoo nghene xo kwali ekuhole.”
+Hilifa okwa kala e kwete okapakete ndele ta tameke okukwena. Meme Ndapanda okwe mu papatela ndele tava indile, "Omwene ne ku amene ye ne ku xupife." Okwa kala emu papatela eshi ta popi. "Hilifa mumati wange, ou shi shii kutya ame ohandi vele neenghono, nohandi ka kala pamwe naxo moule wokafimbo kaxupi. Inandi hala u nyike oluhodi. Dimbuluka kutya ondi ku hole naxo oku ku hole."
 
 ##
-Ina okwa twikila, “ xokulu Kave ou ha di kOshakati ohe tu tumine oimaliwa ngeenge  a mona. Okwa lombwelange kutya ote ke kufila oshisho. Onde mulombwela kombinga kombinga yonghalo yange. Ota mu kakala ha mu i koskola na Kanuu omonamati oo naye eli mondodo oninhe omo yoo naave u li. Ota ve ke kufila oshisho” Hilifa okwa nyamukula ina tati: “ ondi hole tatekulu Kave na meme Muzaa, natango ondi hole vali oku danauka na Kanuu. Meme ngeenge ove kufile oshisho oto veluka?” Ina okwa nyamukula tati: “ahawe mumwange, ita ndi veluka , owa filange oshisho nawa, ondi udite etumba oku kala ndina omumwangemati muwa.
+Ina ta twikile, "Xokulu Kave wokOshakati okwa kala he tu tumine oinima iwa nge e na sha. Okwa lombwela nge kutya ote ke ku fila oshisho. Onde mu lombwela nale kombinga yonghalo yoye. Oto kala ho i kofikola naKunuu omonamati waye. Kunuu oku li mOndodo onhine ngaashi ove. Otave ke ku fila oshisho." "Ondi hole tatekulu Kave nameekulu Muzaa," Hilifa ta ti. "Ondi hole okudanauka naKunuu. Oto kala nawa ngeenge tave ku file oshisho?" "Ahawe mumati wange, itandi kala vali nawa. Owa fila nge nawa oshisho. Onda pandula eshi ndi na omumati muwa ngaashi ove."
 
 ##
-Ongula yefiku la landulako kofikola  omuhongifikola Nelao okwali ta longo kombinga yo HIV no AIDS. 
-Ovahongwa okwali ta monika va tila. Oha va udu ashike  omukifi ou mo radio ndele komaumbo avo  ka pena nande omunhu umwe eva lombwelasha. “Omukifi oha u di peni” Magano ta pula. “Oha u kwata ovanhu ngahelipi?” Hidipo ta pula.  Omuhongifikola Nelao okwa fatulula kutya omukifi wo HIV oyo ombuto. Omunhu ngeenge oku na o ombuto yo HIV mohonde yaye oha monika ena oukolele, nongegenge okwa tameke oku ehama ngaho  oha kutiwa okuna  AIDS.  
+Ongula yefiku la landula kofikola mee Nelao okwe va longa kombinga yoHIV noAIDS. Ovanafikola ova li va tila. Ova uda ombuto ya tya ngaho moradio, ashike kape na ou e shi kundafana keumbo. "Ohau di peni?" Magano ta pula. "Ohau kwata ovanhu ngahelipi?" Hidipo ta pula. Mee Nelao okwa fatulula kutya oHIV edina lombuto. Ngeenge omunhu oku na ombuto mohonde, natango oha monika e na oukolele. "Ohatu ti ove na omukifi woAIDS ngeenge va tameke okuvela."
 
 ##
-Hefolo  Nelao okwa fatululila ovahongwa omikalo dimwe nghene omunhu ta dulu oku kwatwa kombuto yo HIV.  “Omunhu ena o HIV ota dulu oku ta ndavelifa ombuto ngeenge eehonde  da kwatafana. Ina mulongifa okambi ile okalikushifo kokomayoo kamwe. Ngeenge ha tu tyuulwa momatwi otu na oku longifa eengwiya noumbi va yela voo ova koshoka,” hefolo osho ati.
+Mee Nelao okwa fatulula omikalo dimwe odo omunhu ta dulu okukwatwa kombuto. "Ngeenge omunhu oku na ombuto yoHIV ile oAIDS, ohatu dulu okukwatwa kombuto tai di mohonde yaye. Inatu longifeni oumbi ile oulikushifo vamwe naye. Ngeenge hatu li tyuuleni komatwi natu longifeni oumbi neengwiya da fulukifwa momeva. Ngeenge otwe li tu ndele hatu di ohonde, alushe natu lombwele ovakulunhu va wapaleke poipute yetu, otu na okumanga oipute nomalapi ma yela."
 
 ##
-Hefolo Nelao okwa u likila ova longwa ekalata ndele tatii: “Edi odo omikalo adishe odo ta di dulu oku tandavelifa ombuto yo HIV. Ombuto yo HIV i hai tandavele oku dilila mokulongifa okandjuwo ile okalikoshelo.   Natango ombuto ihaidi  mokulipapatela, oku lifipa komilungu noshoyoo okuliminika novanhu vakweni. Kashina oudjuu oku longifa okakopi nokayaxa  kamwe nomunhu ena ombuto yo HIV. Ombuto ei iha dulu oku i pewa komunhu ta kolola, ta tu onisha. Eemwe neemhombo nosho yoo oipuka ikwao ihai tandavelifa ombuto yo HIV.” 
+Opo nee okwe va ulikila efano. "Edi adishe omikalo odo to dulu okulongifa opo uha kwatwe koHIV. Ito kwatwa koHIV ngeenge to longifa okandjuwo ile okalikoshelo kamwe nomunhu e na ombuto, okulipapatela, okulihupita nokuminika nomunhu ou e i na nasho kashi na oshiponga. Oshi li nawa okulongifa okakopi ile okayaxa kamwe nomunhu e na oHIV ile oAIDS. Ove ito mono ombuto komunhu ta kolola ile tatu onhisha. Navali, ito i mono okudilila moku lika keemwe, eena ile eemhombo."
 
 ##
-“Ngeenge owa kwatwa kombuto ouna oku ninja ngahelipi?” Magano tapula. Iyaloo, owa pumbwa oku lifila oshisho , ouna yoo okulya oikulya ihapu youkolele <Translate and delete English text: "What do you do if you've got it?" asked Magano. "Well, you must take care of yourself and eat lots of healthy food. Look at our food chart," she said. "Who can remember what food is good for you?" she asked.>
+"Oto ningi ngahelipi ngeenge wa kwatwa koHIV/AIDS?" Magano ta pula. "Iyaa, ou na oku likwata nawa ove to li oikulya i na oukolele. Taleni komafano oikulya yetu," mee Nelao ta ti. "Olye ta dimbuluka oikulya oyo iwa kuye?" natango mee Nelao ta pula.
 
 ##
-<Translate and delete English text> When Hilifa got home he told his mother what he had learned at school that day. "Ms. Nelao told us about HIV and AIDS and how to look after someone who's ill. Magano and Hidipo are going to help me with my chores and we will do our homework together," he told her.
+Eshi Hilifa a fika keumbo okwa lombwela ina eshi ve lihonga kofikola. "Mee Nelao okwe tu lombwela kombinga yoHIV/AIDS, nonghee tu na oku fila oshisho omunhu ta vele. Magano naHidipo otava ka kwafela nge koilonga yange yomeumbo opo nee hatu ningi oshipewalonga shange," Hilifa ta lombwele ina.
 
 ##
-<Translate and delete English text> That afternoon Magano came and helped Hilifa to fetch water. Hidipo helped him to gather firewood. Then they sat and did their homework in the shade of the marula tree.
+Omutenya oo Magano okwe uya a kwafe Hilifa oku ka eta omeva. Hidipo okwe va kwafela okukonga oikuni, ndele tava kala omutumba momuti womwoongo tava longo oipewalonga yavo.
 
 ##
-<Translate and delete English text> Ms. Nelao had also told Hilifa's neighbours that he was looking after his mother. They had promised to help him. Every night a different neighbour came with hot food for them to eat. Hilifa always gave them some vegetables from the garden.
+Mee Nelao okwa lombwela vali ovashiinda shooHilifa kutya oye ta tonatele ina onghee ova udaneka ve mu kwafe. Oufiku keshe umwe womovashiinda shavo ohe uya noikulya ipyu opo va lye. Hilifa keshe efimbo ohe va pe oikwambidi ya dja moshikunino.
 
 ##
-<Translate and delete English text> On the last day of the school term Hilifa was very happy. He ran home to show his mother his report card. He ran into the yard calling, "Mum. Mum. Look at my report card. I have got 'A', 'A', and more 'A's'." Hilifa found his mother lying in bed. "Mum!" he called. "Mum! Wake up!" She didn't wake up.
+Mefiku laxuuninwa loshikako shofikola Hilifa okwa li a hafa. Okwa lotokela keumbo a ka ulikile ina odjapo yaye. Okwa lotokela mohofa yavo ta ifana, "Meme, meme, tala kondjapo yange eshi nda mona mo ‘A', ‘A', noo ‘A' vahapu." Hilifa okwa hanga ina a nangala kombete. "Meme," ta ifana. "Meme, penduka!" Ina penduka.
 
 ##
-<Translate and delete English text> Hilifa ran to the neighbours. "My Mum. My Mum. She won't wake up," he cried. The neighbours went home with Hilifa and found Meme Ndapanda in her bed. "She is dead, Hilifa," they said sadly.
+Hilifa okwa tondokela kovashiinda ta ingida. "Meme yange, Meme ita penduka," Hilifa ta kwena. Ovashiinda ova ya keumbo looHilifa nova hanga meeNdapanda a nangala kombete yaye. "Okwa fya, Hilifa," ovashiinda tava ti noluhodi.
 
 ##
-<Translate and delete English text> Very quickly the news spread that Meme Ndapanda was dead. The house was full of family, neighbours and friends. They prayed for Hilifa's mother and sang hymns. They talked about all the good things they knew about her.
+Meendelelo onghundana oya tandavela nokutya meeNdapanda okwa fya. Eumbo okwa li liyadi ovakwapata, ovashiinda nookahewa. Ova indilila meme waHilifa, vo tava imbi omaimbilo. Ova li tava popi oinima aishe iwa ve shii kombinga yaye.
 
 ##
-<Translate and delete English text> Aunt Muzaa cooked for all the visitors. Uncle Kave told Hilifa that they would take him back to Oshakati after the funeral. His Grandfather told him stories about his mother when she was a little girl.
+Inakulu Muzaa okwa telekela ovaenda aveshe. Xekulu Kave okwe mu lombwela kutya otava ka ya naye kOshakati konima yepako. Xekulu (ou a dala ina) okwe mu hokololela omahokololo kombinga yaina eshi a li okaana kokadona.
 
 ##
-<Translate and delete English text> At the funeral Hilifa went to the front of the church and told everyone about his mother. "My mother loved me and looked after me very well. She told me to study hard so that I could get a good job. She wanted me to be happy. I will study hard and work hard so that she can be proud of me."
+Pepako Hilifa okwa ya komesho yongeleka ndele ta lombwele keshe umwe kombinga yameme waye. "Meme okwa li e hole nge nokwa li ha file nge oshisho nawa. Okwa lombwela nge opo ndi lihonge nda mana mo ndi ka mone oilonga iwa. Okwa hala ndi kale nda hafa. Ohandi lihongo nda mana mo opo a kale e uditile nge etumba."
 
 ##
-<Translate and delete English text> After the funeral Uncle Kave and Aunt Muzaa helped Hilifa to pack his things to take to Oshakati. "Kunuu is looking forward to having a new friend," they told him. "We will care for you like our own son." Hilifa said goodbye to the house and got into the taxi with them.
+Konima yepako, Xekulu Kave na inakulu Muzaa ove mu kwafa okupakela oinima ei ta i nayo kOshakati. "Kunuu ote ke shi hafela unene okukala e na kaume mupe," tave mu lombwele. "Ohatu ke ku fila oshisho ngaashi hatu file oshisho okamonamati ketu." Hilifa okwa lekela eumbo ndele ta i navo noTaxi.
 
 ##
 * License: CC BY-NC-SA
 * Text: Kandume Ruusa, Sennobia-Charon Katjiuongua, Eliaser Nghitewa
 * Illustration: Jamanovandu Urike
-* Translation: Bertha Haimbodi
-* Language: kj
+* Language: kua

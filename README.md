@@ -25,7 +25,6 @@ kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
 ktz | Ju|’hoansi
-kua | Kuanyama
 kwn | Kwangali
 loz-na | siLozi (Namibia)
 loz-zm | siLozi (Zambia)
