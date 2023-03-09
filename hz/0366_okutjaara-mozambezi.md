@@ -89,4 +89,4 @@ Nu Mama,” Chaze wa meṱameṱa. Ami hi nakuvanga kutja Maria ma kare ponganda
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
 * Translation: Angelika Tjouṱuku, Asnath Mundjindjiri
-* Language: ng
+* Language: hz
