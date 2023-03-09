@@ -54,4 +54,4 @@ Oshivike sha landulako, Anita okwa teleka ndee ta ifana i fana Simbegwire , vamw
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
 * Translation: Bertha Haimbodi
-* Language: kua
+* Language: kj
