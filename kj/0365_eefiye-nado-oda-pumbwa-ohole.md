@@ -88,4 +88,4 @@ Konima yepako, Xekulu Kave na inakulu Muzaa ove mu kwafa okupakela oinima ei ta 
 * License: CC BY-NC-SA
 * Text: Kandume Ruusa, Sennobia-Charon Katjiuongua, Eliaser Nghitewa
 * Illustration: Jamanovandu Urike
-* Language: kua
+* Language: kj

@@ -65,4 +65,4 @@ Eshi Ondongo na Apiyo vaalukila kofikola ova hepaulila ookaume kavo numbi onghal
 * Text: Violet Otieno
 * Illustration: Catherine Groenewald
 * Translation: Fritz David
-* Language: kua
+* Language: kj

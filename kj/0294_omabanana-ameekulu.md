@@ -35,4 +35,4 @@ Konima yefimbo konguloshi onda ifanwa ku tate na meme, oshoyo Meekulu. Okwali nd
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
 * Translation: Fritz David
-* Language: kua
+* Language: kj

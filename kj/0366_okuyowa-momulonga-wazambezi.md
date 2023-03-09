@@ -89,4 +89,4 @@ Mee Sibungo okwa popya nounona aveshe ta ti, "Ntwala okwa konga ondunge iwa yoku
 * License: CC BY-NC-SA
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
-* Language: kua
+* Language: kj

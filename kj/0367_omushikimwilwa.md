@@ -73,4 +73,4 @@ Ina okwe mu lombwela, “Eyooloko alike olo li li pokati koye nomupofi olo eli k
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
 * Translation: Aletta Shikukumwa
-* Language: kua
+* Language: kj

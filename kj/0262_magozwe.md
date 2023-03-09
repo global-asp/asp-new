@@ -53,4 +53,4 @@ Magozwe okwali eli omutumba moluumbo keumbo loluvala lishunga noipeleki i twima 
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
 * Translation: Bertha Haimbodi
-* Language: kua
+* Language: kj
