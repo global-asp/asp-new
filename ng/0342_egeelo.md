@@ -10,7 +10,7 @@ Esiku limwe meme okwe ya niiyimati oyindji.
 Omumwamememati Rahim okwa li omufukedhi. Okwa lolo oshiyimati kehe. Okwa li iiyimati oyindji unene sha pitilila.
 
 ##
-"Tala shoka Rahim a ningi!" okamwamememati osho ka igidha. "Rahim omutsni unene ye okwiihole," osho nda ti.
+"Tala shoka Rahim a ningi!" okamwamememati osho ka igidha. "Rahim omutsini unene ye okwiihole," osho nda ti.
 
 ##
 Meme okwa li a geela Rahim.
@@ -19,7 +19,7 @@ Meme okwa li a geela Rahim.
 Natse wo otwa li twa geela Rahim. Ashike Rahim ka li e na ko nasha.
 
 ##
-"Ito geele Rahim?"okamwamememati taka pula.
+"Meme, ito geele Rahim?" okamwamememati taka pula.
 
 ##
 "Rahim ote shi mono ngashingeyi," meme osho a ti nekunkililo.
@@ -28,9 +28,10 @@ Natse wo otwa li twa geela Rahim. Ashike Rahim ka li e na ko nasha.
 Rahim okwa tameke okweehama.
 
 ##
-"Epunda lyandje ehama "Rahim osho a nongona.
+"Epunda lyandje otali ehama," Rahim osho a nongona.
 
-Meme okwa adhika nale a shi tegelela, kutya iiyimati otayi ka kutha Rahim oshityani!
+##
+Meme okwa adhika nale e shi tegelela, kutya iiyimati otayi ka kutha Rahim oshityani!
 
 ##
 Konima Rahim okwe tu pe ombili. "Itandi kala we nando olumwe omufukedhi ngaaka," osho a uvaneke. Naatuhe otwa li twe mu itaala.

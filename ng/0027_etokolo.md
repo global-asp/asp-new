@@ -37,7 +37,7 @@ Aantu oya gongala kohi yomuti omunene ya pulakene.
 Tate okwa thikama e te ya lombwele ta ti: "Otwa pumbwa okulongela kumwe opo tu kuthe po omikundu ndhoka tu na."
 
 ##
-Juma, okamati koomvula hetatu hoka ka li ka kuutumba koshitayi shomuti oka igidha,"Ngame otandi vulu okukwatha mokwoopaleka."
+Juma, okamati koomvula hetatu hoka ka li ka kuutumba koshitayi shomuti oka igidha, "Ngame otandi vulu okukwatha mokwoopaleka."
 
 ##
 "Aakulukadhi otaa vulu okulonga pamwe nangame tu kune iimeno tu mone iipalutha," omukulukadhi gumwe osho a ti.

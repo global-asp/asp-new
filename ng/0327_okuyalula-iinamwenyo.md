@@ -19,12 +19,12 @@ Oongolo heyali otadhi matuka dhu uka komeya.
 Omafuma gahetatu noohi omugoyi ota dhi yogo momeya.
 
 ##
-Onkoshi yimwe oya kumba. Oya hala okunwa.Olye ngoka a tila onkoshi? 
+Onkoshi yimwe oya pumbu. Oya hala okunwa. Olye ngoka a tila onkoshi?
 
 ##
 Ondjamba yimwe otayi nu omeya pamwe nonkoshi.
 
-##y
+##
 * License: CC BY
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen

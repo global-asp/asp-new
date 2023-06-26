@@ -31,7 +31,7 @@ Wangari okwa dhiladhila mbala shoka e na okuninga. Okwa longo aakulukadhi okukun
 Konima yethimbo, omiti ndhoka dha kunwa odha koko e tadhi ningi okuti. Omilonga nadho wo odha tameke okukunguluka omeya. Etumwalaka lyaWangari lya taandele miilongo iikwawo wo muAfrika. Monena oomiliyona dhomiti odha mene okuza mokankenya kaWangari.
 
 ##
-Wangari okwa longo nuudhiginini. Aantu muuyuni oya ndhindhilike iilonga ye nuupenda we nokwa pewa epapa lyesimaneko. Epapa ndika olya li lya ithanwa "Nobel Peace Prize", epapa lyesindano.
+Wangari okwa longo nuudhiginini. Aantu muuyuni oya ndhindhilike iilonga ye nuupenda we nokwa pewa epapa lyesimaneko. Epapa ndika olya li lya ithanwa "Nobel Peace Prize," epapa lyesindano.
 
 ##
 Wangari okwa si momuvo 2011, ashike ethimbo kehe tatu tala omiti omiwanawa, otatu mu dhiladhila.

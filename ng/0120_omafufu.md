@@ -19,7 +19,7 @@ Baba oku na oombenzi.
 Zanele okwa kamula omafufu ge.
 
 ##
-Thambo okwa teta omafufu ge.
+Thabo okwa teta omafufu ge.
 
 ##
 Themba okwa kulula ko omafufu ge.

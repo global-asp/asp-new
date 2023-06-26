@@ -1,6 +1,6 @@
 # Ondjuxwa Nongoongololo
 
-## 
+##
 Ondjuxwa naNgoongololo oya li ookuume, ihe oya li haya patathana. Esiku limwe oya tokola ya dhane etanga lyokoompadhi ya tale ngoka a li omudhani dhingi.
 
 ##
@@ -13,7 +13,7 @@ Oya tokola ya ye koopelendi. Tango Ngoongololo oye a li omukwati. Ondjuxwa oya t
 Ongoongololo oya thanga etanga noya tula mo. Ongoongololo oya lele netanga noya tula mo natango. Ongoongololo oya dhenge etanga nomutse noya tula mo ishewe. Ongoongololo oya tula mo ookola ntano.
 
 ##
-Ondjuxwa oya li ya geya omolwashoka inayi sindana. Okwa li a thigwa po unene. Ngoongololo okwa li ta yolo noonkondo sho kuume ke a li ti inomo unene. 
+Ondjuxwa oya li ya geya omolwashoka inayi sindana. Okwa li a thigwa po unene. Ngoongololo okwa li ta yolo noonkondo sho kuume ke a li ti inomo unene.
 
 ##
 Ndjuxwa okwa li a geya noonkondo. Okwa ekama okana kwa pwa ko nokwa nina po ongoongololo.
@@ -22,7 +22,7 @@ Ndjuxwa okwa li a geya noonkondo. Okwa ekama okana kwa pwa ko nokwa nina po ongo
 Ndjuhwa mokushuna kegumbo, okwa tsakanene nayina yaNgoongololo. Yina yaNgooongololo okwe mu pula, "Ino mona po okamwandje mpono?" Ndjuhwa ina yamukula, nayina okwa li a limbililwa.
 
 ##
-Yina yaNgoongololo oku uvu okawi okashona taka igidha taka ti: “Meme kwathela ndje!" Yina yaNgoongololo Okwa tala tala koombinga adhihe e ta pulakene nawa. Ewi olya li tali zi mondjuhwa.
+Yina yaNgoongololo oku uvu okawi okashona taka igidha taka ti: "Meme kwathela ndje!" Yina yaNgoongololo Okwa tala tala koombinga adhihe e ta pulakene nawa. Ewi olya li tali zi mondjuhwa.
 
 ##
 Yina yaNgoongololo okwa igidha pombanda, "Longitha oonkondo dhoye mumwandje." Oongoongololo ohadhi vulu okuninga ezimba lya nika nayi nomulyo wo omwiinayi. Ondjuhwa oya tameke tayi ehama.

@@ -7,16 +7,16 @@ Okakadhona okashona oko ka mono tango eholoko ekumumithi ndyoka lya li okakako o
 Efano ndika olya tameke okuhedha popepi, nokakakadhona oka vulu okudhimbulula kutya nani osha li omukulukadhi ngoka a li metegelelo evalelwapeni lyaa na siku inaa li valwa.
 
 ##
-Nomukumo ashike onuuhwenge, okakadhona okashona oka hedha komukulukadhi. "Natu mu kaleke putse," aakwawo yokakakadhona osho ya tokola. "Otatu mu sile oshimpwiyu pamwe nokanona ke"
+Nomukumo ashike onuuhwenge, okakadhona okashona oka hedha komukulukadhi. "Natu mu kaleke putse," aakwawo yokakakadhona osho ya tokola. "Otatu mu sile oshimpwiyu pamwe nokanona ke."
 
 ##
-Ethimbo lyokanona lyokuvalwa olya thikana. "Ikema" "Eteni omakumbyatha!" "Omeya!" "Kema wa dhiginina!"
+Ethimbo lyokanona lyokuvalwa olya thikana. "Ikema!" "Eteni omakumbyatha!" "Omeya!" "Kema wa dhiginina!"
 
 ##
-Ihe sho ya mono okanona hoka ka valwa, kehe gumwe okwa hedha kokule nonkumwe! "Okandoongi??!!"
+Ihe sho ya mono okanona hoka ka valwa, kehe gumwe okwa hedha kokule nonkumwe! "Okandoongi?!"
 
 ##
-Oya tameke okupatathana. "Otwa uvanene okusila yina nokanona ke oshimpwuyu, na osho tu na okuninga," yamwe osho ya ti. " Mbaka otaye tu etele oshipwe!"yalwe taa yi mo ishewe.
+Oya tameke okupatathana. "Otwa uvanene okusila yina nokanona ke oshimpwuyu, na osho tu na okuninga," yamwe osho ya ti. "Mbaka otaye tu etele oshipwe!" yalwe taa yi mo ishewe.
 
 ##
 Omukiintu okwi iyadha e li oye awike natango. Okwa li a limbililwa nkene ta ningi nokanona ke haka okakumithi. Okwa li wo a limbililwa nkene ta hupu ye mwene.
@@ -34,7 +34,7 @@ Ongeyo nondjahi oya mbwimbwitile momwenyo gwokandoongi haka. Kaka li taka vulu o
 Ndoongi okwa li a sa ohoni. Okwa fadhuka po e ta yi kokule ngaashi ta vulu.
 
 ##
-Sho a ka ziguka metondoko lye, ka li e shi mpoka e li nokwa li uusiku nokwa luudha. "Oooih! oooih!" Ewi lye olye mu galukile "Oooih. oooih!" Okwa li awike. Okwi igonyo e ta kotha oomposi dhaashi oombwanawa.
+Sho a ka ziguka metondoko lye, ka li e shi mpoka e li nokwa li uusiku nokwa luudha. "Oooih! oooih!" Ewi lye olye mu galukile "Oooih. Oooih!" Okwa li awike. Okwi igonyo e ta kotha oomposi dhaashi oombwanawa.
 
 ##
 Ndoongi okwa penduka e ta mono omulumentu omukokele omukumithi e mu tongolola. Okwa tala momeho gomulumentu nokwa tameke okumona omukumo omupe.
@@ -46,10 +46,10 @@ Ndoongi okwa yi e ta kala pomukokele, ngoka e mu longo omikalo odhindji nkene e 
 Esiku limwe omulumentu okwa pula Ndoongi e mu fale kondungu yondundu.
 
 ##
-Muulelela mokati kiikogo ayehe oya kotha. Ndoongi okwa yaguma aniwa yina ta alukwa nokwa li te mu ithana. Naasho a papudhuka moomposi....
+Muulelela mokati kiikogo ayehe oya kotha. Ndoongi okwa yaguma aniwa yina ta alukwa nokwa li te mu ithana. Naasho a papudhuka moomposi...
 
 ##
-...iikogo nakuume ke omukokele, oya nena po.
+... iikogo nakuume ke omukokele, oya nena po.
 
 ##
 Ndoongi okwa tseya shoka e na okuninga.

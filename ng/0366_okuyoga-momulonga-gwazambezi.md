@@ -4,10 +4,10 @@
 Osha li Osoondaha ethimbo lyomutenya. Uukadhona uugundjuka muLusese owa li wa gongala momuti omunene gwomusikili moCaprivi.
 
 ##
-Omawi gawo omanyanyukwi oga li taga uvika momukunda aguhe, sho taya ithana ookuume kawo. "Nakamwu, onde ku tegelela." "Endelela, Chaze." "Silume! Ila!"
+Eigidho eshambukwi lyomawi gawo olya li tali uvika momukunda aguhe, sho taya ithanathana nookuume kawo. "Nakamwu, onde ku tegelela." "Endelela, Chaze." "Silume! Ila!"
 
 ##
-Maria okwa li ta kongo Ntwala. Ntwala ohe ya fala Osoondaha kehe ya ka yoge. "Ntwala! Ntwalee! Ntwalaa! Ntwaloo!" ta ithana.
+Maria okwa li ta kongo Ntwala. Ntwala ohe ya fala Osoondaha kehe ya ka yoge. "Ntwala! Ntwalee! Ntwalaa! Ntwalee!" ta ithana.
 
 ##
 Ntwala okwi igidha okuziilila kombinga handiyaka yomukunda, "Ongame nguka! Onde ku tegelela!" Uukadhona auhe tawu tondoka wu ke mu konge.
@@ -67,13 +67,13 @@ Ntwala okwa lombwele uukadhona auhe wu kuutumbe mongonga. "Omukuluntusikola okwe
 "Maria, pa mukweni ombili," Namasiku osho a ti. "Chaze naye ne mu dhenge," Joyi osho a ti. "Aawe osha puka okukondja," Ntwala osho a ti.
 
 ##
-Ntwala okwa ti, "Maria ita ka yoga we mOsoondaha tayi landula." Maria okwa lili nomahodhi oga li taga kunguluka. "O-Ombili Chaze. Ombili sho nde ku dhenge. Itandi ka dhenga we nando ogumwe," osho a gandja ombili.
+Ntwala okwa ti, "Maria ita ka yoga we mOsoondaha tayi landula." Maria okwa lili nomahodhi oga li taga kunguluka. "O-O-Ombili Chaze. Ombili sho nde ku dhenge. Itandi ka dhenga we nando ogumwe," osho a gandja ombili.
 
 ##
-"Otandi ku dhimine po," Chaze osho a ti, ye te mu idhingile mothingo. "Tse naMaria otatu yi kegumbo nangoye," Ntwala osho a lombwele Chaze. "Maria oku na okugandja ombili kunyoko wo."
+"Onde ku dhimina po," Chaze osho a ti, ye te mu idhingile mothingo. "Tse naMaria otatu yi kegumbo nangoye," Ntwala osho a lombwele Chaze. "Maria oku na okugandja ombili kunyoko wo."
 
 ##
-Maria okwa lombwele yina ya Chaze, "Onda dhenge Chaze oshoka okwa thigi ndje po mokuyoga. Ombili meme. Chaze okuume kandje, onda ninga nayi sho nde mu dhenga."
+Maria okwa lombwele yina yaChaze, "Onda dhenge Chaze, oshoka okwa thigi ndje po mokuyoga. Ombili meme. Chaze okuume kandje, onda ningi nayi sho nde mu dhenga."
 
 ##
 Omukulukadhi Sibungo okwa pulakene Maria. "Shoka osha li epuko Maria. Oshiwinayi okudhenga aantu. Tangi sho we ya okupa ndje ombili. Otandi ku dhimine po." Omukulukadhi Sibungo okwa lombwele Ntwala, "Ngoye omuwiliki omwaanawa."

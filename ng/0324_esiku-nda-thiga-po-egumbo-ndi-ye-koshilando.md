@@ -1,7 +1,7 @@
 # Esiku nda thiga po egumbo ndi ye koshilando
 
 ##
-Ehala lya thinana lyomathikameno goombesa olya li lyu udha aantu noombesa dhu udha dha fa ofenya. Pevi opwa li natango oondongelwa ndhoka dha li dha tegelelwa okulondekwa. Aalondeki oya li taa igidha nokutseyitha omahala hoka oombesa dhawo dha li dhu uka.
+Ehala lya thinana lyomathikameno goombesa olya li lyu udha aantu noombesa ndhoka dha li dhu udha dha fa ofenya. Pevi opwa li natango oondongelwa ndhoka dha li dha tegelelwa okulondekwa. Aalondeki oya li taa igidha nokutseyitha omahala hoka oombesa dhawo dha li dhu uka.
 
 ##
 "Koshilando! Koshilando! Tse otu uka kuuninginino!" Osho nda uvu omulondeki ta igidha. Nandjoka oyo ya li ombesa ndjoka ndi na okulonda.
@@ -13,19 +13,19 @@ Ombesa oya li konyala yu udha, ihe aantu oyendji oya li natango taa iyundula opo
 Aafaalelwa oya li ye na uutekete wawo pomake omanga taa kongo natango omahala mothina yaantu mpoka taa kuutumba. Aakulukadhi mboka ya li ye na uuhanona oya kambadhala oku wu kaleka nawa noku wu longekidhila olweendo olule.
 
 ##
-Ngame onda hitikwa pokahala okashona pooha dhekende. omuntu ngoka nda li nda tegama naye okwa li a kwata oplastika ndjoka ya li meke lye e yi dhiginina. Okwa li a zala oongaku dhoosandala dha kulupa nombaikitha ya nyayika. Okwa li ta monika a timpililwa.
+Ngame onda hitikwa pokahala okashona pooha dhekende. Omuntu ngoka nda li nda tegama naye okwa li a kwata onayilona ndjoka ya li meke lye e yi dhiginina. Okwa li a zala oongaku dhoosandala dha kulupa nombaikitha ya nyayika. Okwa li ta monika a timpililwa.
 
 ##
 Onda tala pondje, onda dhimbulula kutya otandi thigi po omukunda gwaandjetu, ehala mpoka nda putukila. Otandi yi koshilando oshinene.
 
 ##
-Okulondeka okwa pu, naafaalelwa ayehe oya li ya kuutumba. Aalandithi oya li taa ithininike natango okuya mombesa opo ya landithe iipindi yawo. Kahe gumwe okwa li ta igidha shoka a li ta landitha. Iitya oya li iiyolithi momakutsi gandje.
+Okulondeka okwa pu, naafaalelwa ayehe oya li ya kuutumba. Aalandithi oya li taa ithininike natango okuya mombesa opo ya landithe iipindi yawo. Kehe gumwe okwa li ta igidha shoka a li ta landitha. Iitya oya li iiyolithi momakutsi gandje.
 
 ##
-Aafaalelwa yamwe oya landa iikunwa, yamwe oya landa uukulya uupu noya tameke okulya. Mboka yaa na iimaliwa ngaashi ngame, oya kala tuu owala taa ondola omeho.
+Aafaalelwa yamwe oya landa iikunwa, yamwe oya landa uukulya uupu noya tameke okulya. Mboka yaa na iimaliwa ngaashi ngame, oya kala tuu owala taa ondodha omeho.
 
 ##
-Omainyengo ngaka oga ka hulithwa po kombenda yombesha ndjoka ya hiki, okuulika kutya ombesa otayi katuka. Omulondeki okwa igidha naalandithi oya zi mo mombesa.
+Omainyengo ngaka oga ka hulithwa po kombenda yombesa ndjoka ya hiki, okuulika kutya ombesa otayi katuka. Omulondeki okwa igidha naalandithi oya zi mo mombesa.
 
 ##
 Aalandithi oya li taa undulathana sho taa zi mo mombesa. Yamwe oya li natango yi ipyakidhila okugandja ooshendja dhaamboka ya landa. Omanga yamwe ya li ngaa natango taa heke aantu ya lande.

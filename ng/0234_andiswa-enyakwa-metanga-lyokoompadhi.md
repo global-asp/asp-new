@@ -7,7 +7,7 @@ Andiswa oha tala aamati taa dhana etanga lyokoompadhi. Okwa hala nokuhalelela a 
 Omudheuli okwi ikwata moombwetelo. "Posikola mpaka aamati oyo owala ya pitikwa okudhana etanga lyokoompadhi," osho a ti.
 
 ##
-Aamati oye mu lombwele a ka dhane etanga lyomokambamba. Ndyoka olyo anuwa lyaakadhona, lyokoompadhi olyaamati ayeke. Andiswa okwa li yemata nokwa tyololoka.
+Aamati oye mu lombwele a ka dhane etanga lyomokambamba. Ndyoka olyo anuwa lyaakadhona, lyokoompadhi olyaamati ayeke. Andiswa okwa li a yemata nokwa tyololoka.
 
 ##
 Esiku lya landula opwa li ethigathano lyuudhano posikola. Omudheuli gwaadhani okwa li a limbililwa, oshoka enyakwa lye dhingi okwa li te ehama no ka li ta vulu okudhana.

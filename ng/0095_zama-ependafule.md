@@ -1,4 +1,4 @@
-# Zama ependafule
+# Zama ependafule!
 
 ##
 Okamwamememati ohaka kotha kwa toka noonkondo. Ngame ohandi meneka ongula onene oshoka ngame ependafule.
@@ -16,13 +16,13 @@ Ohandi iyogo ngame mwene esiku kehe, inandi pumbwa okukwathelwa.
 Ihandi tila omeya omatalala nenge wo tuu ezimba lyothewa yolwaala lwegulu.
 
 ##
-"Ino dhimbwa omayego goye." meme osho a dhimbulutha ndje. “Aawe, nando nando!" Osho nda yamukula.
+"Ino dhimbwa omayego goye." meme osho a dhimbulutha ndje. "Aawe, nando nando!" Osho nda yamukula.
 
 ##
 Sho nda mana okwiiyoga onda ka popitha kuku omusamane namemegona nonde ya halele esiku ewanawa.
 
 ##
-Ondi izaleke ngame mwene.
+Ohandi izaleke ngame mwene. "Ngame onda koka ngashingeyi meme," osho nda ti.
 
 ##
 Ohandi vulu okupata oombandi dhohema yandje nokumanga omiya dhoongaku dhandje.
@@ -34,7 +34,7 @@ Ohandi kundaneke aluhe okamwamememati kushoka sha ningwa kosikola.
 Ohandi ningi aluhe nawa miinyangadhalwa yandje yosikola.
 
 ##
-Ohandi ningi iinima mbika ayihe iiwanawa esiku kehe, ihe shoka ndi hole unene osho okudhana nokudhana.
+Ohandi ningi iinima mbika ayihe iiwanawa esiku kehe, ihe shoka ndi hole unene osho okudhana nokudhana!
 
 ##
 * License: CC BY

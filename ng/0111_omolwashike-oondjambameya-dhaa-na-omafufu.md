@@ -10,7 +10,7 @@ Ndjambameya naye wo okwa li ta yanga mpoka nokwa li ta li omwiidhi gwa hapa nawa
 Ndjambameya ina mona kutya Kalimba naye opo a li wo pehala mpoka. Okwe mu lyata kompadhi mokwaashiwo. Kalimba okwa tameke ta igidha, "Ngoye Ndjambameya! Ku wete ano kutya owa lyata ndje?"
 
 ##
-Ndjambameya okwa ti kuye, "Ombili, inandi ku mona nando. Dhimina ndje po. Ashike Kalimba ka li a hala okupulakena nokutaamba ombili. "Owe shi ningile owina! Otandi ku talitha nawa esiku limwe! Owu na okufuta!
+Ndjambameya okwa indile ombili tati: "Ombili, inandi ku mona nando. Dhimina ndje po. Ashike Kalimba ka li a hala okupulakena nokutaamba ombili." Okwa igidha Ndjambameya ta ti: "Owe shi ningile owina! Otandi ku talitha nawa esiku limwe! Owu na okufuta!"
 
 ##
 Kalimba okwa ka konga Mulilo e te mu lombele ta ti: "Inda wu ka fike Ndjambameya ngele a zi mo momeya e ye komutunda a lye omwiidhi. Okwa lyata ndje!" "Kapu na uupyakadhi kuume kandje, otandi ningi ngaashi wa pula." Omulilo osho gwa yamukula.

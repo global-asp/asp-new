@@ -13,10 +13,10 @@ Ongula onene yesiku lya landula, oya londo moshihauto shahe ya ye koshilongo. Oy
 Konima yethimbo aanona mbaka oya vulwa e taa kotha.
 
 ##
-Odongo naApiyo oya pendulwa kuhe sho ya thiki komukunda. Oya adha omukulupe Nyar-Kanyada a kuutumba poshiyala kohi yomuti. Nyar- Kanyada ndyoka tali ti 'okakadhona kaantu yaKanyada' melaka lyOshiluo. Okwa li omukulukadhi omwaanawa nomunankondo.
+Odongo naApiyo oya pendulwa kuhe sho ya thiki komukunda. Oya adha omukulupe Nyar-Kanyada a kuutumba poshiyala kohi yomuti. Nyar-Kanyada ndyoka tali ti "okakadhona kaantu yaKanyada" melaka lyOshiluo. Okwa li omukulukadhi omwaanawa nomunankondo.
 
 ##
-Nyar- Kanyada okwe ya hambelele e te ya ithana ya ye megumbo. Okwa li a nyanyukwa ta imbi ye ta tanta nondunda ayihe. Aatekulu oya li ya shambukwa moku mu pa omagano ngoka ye mu etele okuza koshilando. "Patulula omagano gandje tango," Odongo ta ti. "Aawe ogandje tango!"Apiyo osho a ti.
+Nyar-Kanyada okwe ya hambelele e te ya ithana ya ye megumbo. Okwa li a nyanyukwa ta imbi ye ta tanta nondunda ayihe. Aatekulu oya li ya shambukwa moku mu pa omagano ngoka ye mu etele okuza koshilando. "Patulula omagano gandje tango," Odongo ta ti. "Aawe ogandje tango!" Apiyo osho a ti.
 
 ##
 Konima sho a patulula omagano okwe ya pandula noku ya halela omayambeko pamuthigululwakalo gwawo.
@@ -31,28 +31,28 @@ Oya londo komiti, e taa ishamine nomeya gometale.
 Sho kwa luudha oya galukile megumbo ye ye kuulalelo. Manga inaa ya mana okulya oya gu ontundulu koomposi!
 
 ##
-Esiku lya landula he okwa shuna koshilando e te ya thigi po nayinakulu Nyar- Kanyada.
+Esiku lya landula he okwa shuna koshilando e te ya thigi po nayinakulu Nyar-Kanyada.
 
 ##
 Odongo naApiyo oya kwatha yinakulu miilonga ayihe yomegumbo. Ohaa ka teka omeya noku ka tyaya iikuni. Ohaa gongele omayi koshikuku shoondjuhwa noku ka konga iikwamboga koshikunino.
 
 ##
-Nyar- Kanyada okwa longo aatekulu okuteleka oshithima shokuliwa nomuhoka. Okwe ya longo wo nkene haku ningwa olwiishi lwomahuku goondunga dhokokonata ndoka halu liwa noohi dha yothwa.
+Nyar-Kanyada okwa longo aatekulu okuteleka oshithima shokuliwa nomuhoka. Okwe ya longo wo nkene haku ningwa olwiishi lwomahuku goondunga dhokokonata ndoka halu liwa noohi dha yothwa.
 
 ##
-Ongula yesiku limwe Odongo okwa fala aatekulu ya ka lithe oongombe. Oongombe odha tondokele mepya lyamushiinda. Mushiinda okwa li a geela Odongo. Okwe ya lombwele kutya ngele itaa takamitha iimuna ote yi edhilile oshoka oya li po iikunwa ye. Okuza kesiku ndyoka Odongo okwa kambadhala kaa ethe we nando iimuna yi ye mepya opo kaa ye we muupyakadhi natango.
+Ongula yesiku limwe Odongo okwa fala oongombe dhayinakulu dhi ka nape. Oongombe odha tondokele mepya lyamushiinda. Mushiinda okwa li a geela Odongo. Okwe ya lombwele kutya ngele itaa takamitha iimuna ote yi edhilile oshoka oya li po iikunwa ye. Okuza kesiku ndyoka Odongo okwa kambadhala kaa ethe we nando iimuna yi ye mepya opo kaa ye we muupyakadhi natango.
 
 ##
-Esiku limwe aanona oya yi yi komalandithilo nayinakulu Nyar-Kanyada. Okwa li e na okatala ke ta landitha iikwamboga, osuuka nothewa. Apiyo okwa li a hokwa okulombwela aalandi oondando dhiilandithomwa. Odogo okwa li ta longele nawa iinima mbyoka ya landwa kaalandi.
+Esiku limwe aanona oya yi yi komalandithilo nayinakulu Nyar-Kanyada. Okwa li e na okatala ke ta landitha iikwamboga, osuuka nothewa. Apiyo okwa li a hokwa okulombwela aalandi oondando dhiilandithomwa. Odongo okwa li ta longele nawa iinima mbyoka ya landwa kaalandi.
 
 ##
 Pehulilo lyesiku ayehe oya nu pamwe otee yoludhi lwoChai. Aanona oya kwatha yinakulu okuyalula iimaliwa mbyoka ya landitha.
 
 ##
-Mbalambala efudho olya pu ko naanona oya li ye na okushuna koshilando. Nya- Kanyada okwa pe Odogo okakepi naApiyo okwa pewa ombindja. Okwe ya longelele wo iikulya mbyoka taa li mondjila.
+Mbalambala efudho olya pu ko naanona oya li ye na okushuna koshilando. Nyar-Kanyada okwa pe Odongo okakepi naApiyo okwa pewa ombindja. Okwe ya longelele wo iikulya mbyoka taa li mondjila.
 
 ##
-He sho e ya oku ya ila , kaya li ya hala okuya. Oya indile yinakulu Nyar- Kanyada a ye nayo koshilando. Yinakulu okwi imemeha e ta ti;"Ngame onda kulupa okukala natango ndi li moshilando. Otandi kala nde mu tegelela mpaka sho tamu ka galukila ishewe komukunda.
+He sho e ya oku ya ila, kaya li ya hala okuya. Oya indile yinakulu Nyar-Kanyada a ye nayo koshilando. Yinakulu okwi imemeha e ta ti; "Ngame onda kulupa okukala natango ndi li moshilando. Otandi kala nde mu tegelela mpaka sho tamu ka galukila ishewe komukunda."
 
 ##
 Odongo naApiyo oya papatele yinakulu ya dhiginina e taye mu laleke.
