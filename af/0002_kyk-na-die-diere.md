@@ -4,7 +4,7 @@
 Hou die diere dop.
 
 ##
-Die koei sê, "Moe".
+Die koei sê, "Moe."
 
 ##
 Die bok sê, "Mê, mê."
@@ -13,13 +13,13 @@ Die bok sê, "Mê, mê."
 Die perd sê, "Hie, hie."
 
 ##
-Die vark sê, "Ot, ot."
+Die vark sê, "Oink, oink."
 
 ##
-Die hoender sê, "Piep, piep."
+Die hoender sê, "kloek, kloek."
 
 ##
-Die hoed sê. "Woef,woef."
+Die hoed sê, "Woef, woef."
 
 ##
 Die boer sê, "Sjuut!"
