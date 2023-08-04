@@ -34,7 +34,7 @@ Ongeyo nondjahi oya mbwimbwitile momwenyo gwokandoongi haka. Kaka li taka vulu o
 Ndoongi okwa li a sa ohoni. Okwa fadhuka po e ta yi kokule ngaashi ta vulu.
 
 ##
-Sho a ka ziguka metondoko lye, ka li e shi mpoka e li nokwa li uusiku nokwa luudha. "Oooih! oooih!" Ewi lye olye mu galukile "Oooih. Oooih!" Okwa li awike. Okwi igonyo e ta kotha oomposi dhaashi oombwanawa.
+Sho a ka ziguka metondoko lye, ka li e shi mpoka e li nokwa li uusiku nokwa luudha. "Oooih! Oooih!" Ewi lye olye mu galukile "Oooih. Oooih!" Okwa li awike. Okwi igonyo e ta kotha oomposi dhaashi oombwanawa.
 
 ##
 Ndoongi okwa penduka e ta mono omulumentu omukokele omukumithi e mu tongolola. Okwa tala momeho gomulumentu nokwa tameke okumona omukumo omupe.

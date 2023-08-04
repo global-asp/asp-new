@@ -16,7 +16,7 @@ Ohandi iyogo ngame mwene esiku kehe, inandi pumbwa okukwathelwa.
 Ihandi tila omeya omatalala nenge wo tuu ezimba lyothewa yolwaala lwegulu.
 
 ##
-"Ino dhimbwa omayego goye." meme osho a dhimbulutha ndje. "Aawe, nando nando!" Osho nda yamukula.
+"Ino dhimbwa omayego goye." Meme osho a dhimbulutha ndje. "Aawe, nando nando!" Osho nda yamukula.
 
 ##
 Sho nda mana okwiiyoga onda ka popitha kuku omusamane namemegona nonde ya halele esiku ewanawa.

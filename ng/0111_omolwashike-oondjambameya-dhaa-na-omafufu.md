@@ -16,7 +16,7 @@ Ndjambameya okwa indile ombili tati: "Ombili, inandi ku mona nando. Dhimina ndje
 Kalimba okwa ka konga Mulilo e te mu lombele ta ti: "Inda wu ka fike Ndjambameya ngele a zi mo momeya e ye komutunda a lye omwiidhi. Okwa lyata ndje!" "Kapu na uupyakadhi kuume kandje, otandi ningi ngaashi wa pula." Omulilo osho gwa yamukula.
 
 ##
-Komatango Ndjambameya okwa li ta napa kokule kashona nomulonga, ohaluka owala e li kohi yomalaka gomulilo "Wuu!" Omulilo ogwa fike ko omafufu agehe kolutu lwaNdjambameya.
+Komatango Ndjambameya okwa li ta napa kokule kashona nomulonga, ohaluka owala e li kohi yomalaka gomulilo, "Wuu!" Omulilo ogwa fike ko omafufu agehe kolutu lwaNdjambameya.
 
 ##
 Ndjambameya okwa lili ta tondokele momeya. Omafufu ge agehe oga li ga pya ko komulilo. "Omafufu gandje ga pi ko komulilo! Omafufu gandje agehe ga pi ko! Omafufu gandje omawanawa!" osho a lili.

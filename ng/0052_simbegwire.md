@@ -13,7 +13,7 @@ Esiku limwe he ya Simbegwire okwe ya kegumbo kwa toka unene hangaashi he ya shit
 Onkalamwenyo yaSimbegwire oya lunduluka. Ke na we ethimbo okukuutumba nahe ongula onene kehe. Anita okwa li he mu pe iilonga oyindji unene sho ta ka mana okwa vulwa no ita vulu we okuninga iithigilwalonga ye yosikola kongulohi. Shampa a li uulalelo oha ka kotha owala. Ehekeleko limwe a li e na okakumbatha komalwaala hoka a li a thigilwa kuyina. He yaSimbegwire okwa li inaa dhimbulula kutya okamwana kaka li ku uvite ombili.
 
 ##
-Konima yoomwedhi dhimwe dhimwe, He yaSimbegwire okwe ya lombwele kutya ota zi po. "Otandi yi niilonga," osho a ti. "Ashike ondi shi shi kutya otamu ka silalathana nawa oshimpwiyu." Oshipala shaSimbegwire osha lembe, ihe he ina dhimbulula sha. Anita ina yamukula sha, ashike naye wo ka li a nyanyukwa.
+Konima yoomwedhi dhimwe dhimwe, he yaSimbegwire okwe ya lombwele kutya ota zi po. "Otandi yi niilonga," osho a ti. "Ashike ondi shi shi kutya otamu ka silalathana nawa oshimpwiyu." Oshipala shaSimbegwire osha lembe, ihe he ina dhimbulula sha. Anita ina yamukula sha, ashike naye wo ka li a nyanyukwa.
 
 ##
 Onkalo kaya li nawa kombinga yaSimbegwire. Ngele ina mana iilonga ye nenge a ngongota kombinga yasha, Anita ohe mu dhenge. Puulalelo Anita oha li po konyala iikulya ayihe, ta thigile Simbegwire uundjagumuke wowala. Ongulohi kehe Simbegwire oha lili sigo a kotha, omanga a papatela okakumbatha kayina.

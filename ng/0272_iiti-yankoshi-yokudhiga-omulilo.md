@@ -19,7 +19,7 @@ Nkoshi okwa tameke ti imbi eimbilo tali negana: "Kungame kashi na naanaa eyoolok
 Omenye ohayi tondoka ondapo yo ohayi nuka. Aantu oya ti komenye, "Manga Nkoshi ta ndaanisa ye ti imbi pamwe natse, ngoye yakula po iiti ye yokudhiga omulilo e to fadhuka po."
 
 ##
-Manga taa dhana nokwiimba, omenye oya yakula po iiti yokudhiga omulilo e tayi nuka po e tayi thenene moluhwa. Ihe Nkoshi okwa ti, "Omolwashike kaandi uvite we okolokoto- kopa, kolokoto-kopa yomakondo gaMenye konima yandje?"
+Manga taa dhana nokwiimba, omenye oya yakula po iiti yokudhiga omulilo e tayi nuka po e tayi thenene moluhwa. Ihe Nkoshi okwa ti, "Omolwashike kaandi uvite we okolokoto-kopa, kolokoto-kopa yomakondo gaMenye konima yandje?"
 
 ##
 Nkoshi okwa lengalenga e ta mono omenye tayi tondoka yu uka miihwa niiti yawo yokudhiga omulilo. Okwe yi tidha e te yi kwata, okwa kutha ko iiti ye yokudhiga omulilo. Okwa tameke ishewe okwiimba eimbilo lye tali negana.

@@ -16,7 +16,7 @@ Ashike kapwa li nando ogumwe a landa omambanana gaTom. Oya li ya panda okulanda 
 "Momudhingoloko gwetu, aakulukadhi oyo owala haa landitha iiyimati," yalwe osho ya ti. "Omulumentu gwashike nguno ta landitha," yamwe wo taa pula.
 
 ##
-Ashike Tom ina teka omukumo. Okwa igidha nuupenda "Landa omambanana ga hapa nawa go omatoye!"
+Ashike Tom ina teka omukumo. Okwa igidha nuupenda, "Landa omambanana ga hapa nawa go omatoye!"
 
 ##
 Omukulukadhi gumwe okwa hogolola mo okapandi komambanana moshimbamba shaTom. Okwe ga tala nuukeka.

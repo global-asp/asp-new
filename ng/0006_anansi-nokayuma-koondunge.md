@@ -13,7 +13,7 @@ Omunalwiho Anansi okwa dhiladhila: "Otandi holeke okayuma haka koondunge moontay
 "Kasha li ngiika oshihwepo ngele andola okayuma owe ka mangele kombunda shi vulithe sho ke li mela?" Okamwanamati osho ka pula hoka ka li momuti noka kala ke mu tala nawa ethimbo alihe. Anansi okwe shi kambadhala nokwa mono nkene a li ta londo nuupu.
 
 ##
-Mbalambala okwa thiki kohulo yomuti. Okwa tameke ta dhiladhila, "Hangame awike nani nda li ndi na okukala ndi na oondunge adhihe, ihe okanona kandje haka oke na oondunge ke vule ndj!" Anansi okwa li a thita po molwa oshinima shika. Okwa umbile nokuli okayuma hoka pevi kokule nomuti.
+Mbalambala okwa thiki kohulo yomuti. Okwa tameke ta dhiladhila, "Hangame awike nani nda li ndi na okukala ndi na oondunge adhihe, ihe okanona kandje haka oke na oondunge ke vule ndje!" Anansi okwa li a thita po molwa oshinima shika. Okwa umbile nokuli okayuma hoka pevi kokule nomuti.
 
 ##
 Okayuma oka tatuka muutandu sho ki idhenge pevi. Oondunge odha halakana, naantu ayehe oya li taa vulu okupaathana omayele mushika nenge mushiyaka. Ngaaka aantu oyi ilongo okulonga omapya, okuninga oonguwo, okuhambula nokuninga iinima ayihe mbyoka aantu haa vulu okuninga.
