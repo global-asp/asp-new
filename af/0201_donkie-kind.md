@@ -25,7 +25,7 @@ Die vrou was meteens weer alleen. Sy het gewonder wat sy met die vreemde kind mo
 Maar uiteindelik het sy aanvaar dat hy haar kind was en sy was sy ma.
 
 ##
- As die kind maar so klein kon bly, sou alles dalk anders kon wees.Maar die donkie het gegroei en gegroei tot dat hy later nie meer op sy ma se rug kon pas nie. Dit maak nie saak hoe hard hy probeer het nie, sygedrag was nie  soos 'n mens nie. Sy ma was gereeld moeg en gefrustreerd. Soms het sy hom werk laat doen wat vir diere bedoel was.
+As die kind maar so klein kon bly, sou alles dalk anders kon wees. Maar die donkie het gegroei en gegroei totdat hy later nie meer op sy ma se rug kon pas nie. Dit maak nie saak hoe hard hy probeer het nie, sy gedrag was nie soos 'n mens nie. Sy ma was gereeld moeg en gefrustreerd. Soms het sy hom werk laat doen wat vir diere bedoel was.
 
 ##
 Verwarring en woede het binne Donkie opgebou. Hy kon nie dít doen nie, en hy kon nie dát doen nie. Hy kon nie sús wees nie, en hy kon die só wees nie. Hy het later so kwaad geword, dat hy eendag sy ma geskop het tot plat op die grond.
@@ -40,13 +40,13 @@ Dit was al donker toe hy uiteindelik ophou hardloop het en Donkie het verdwaal. 
 Toe Donkie wakker word, staar 'n vreemde ou man op hom af. Hy het in die ou man se oë gekyk en 'n sprankie hoop voel flikker.
 
 ##
-Donkie het by die ou man gaan bly. Die man het hom geleer hoe om te oorleef. Donkie het geluister en geleer, en die ou man ook. Hulle het mekaar gehelp en hulle het saamgelag.
+Donkie het by die ou man gaan bly. Die man het hom geleer hoe om te oorleef. Donkie het geluister en geleer en die ou man ook. Hulle het mekaar gehelp en hulle het saamgelag.
 
 ##
 Een oggend vra die ou man vir Donkie om hom na die berg se spits te dra.
 
 ##
-Hoog tussen die wolke het hulle aan die slaap geraak. Donkie het gedroom sy ma is siek en dat sy na hom roep. 
+Hoog tussen die wolke het hulle aan die slaap geraak. Donkie het gedroom sy ma is siek en dat sy na hom roep.
 
 ##
 Toe Donkie wakker skrik, het die wolke verdwyn. Sy vriend, die ou man, was ook weg.

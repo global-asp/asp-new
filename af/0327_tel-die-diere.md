@@ -1,7 +1,7 @@
 # Tel die diere
 
 ##
-Een olifant is oppad om water te drink.
+Een olifant is oppad om water te gaan drink.
 
 ##
 Twee kameelperde gaan om water te drink.

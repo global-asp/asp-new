@@ -10,8 +10,7 @@ Eendag het mamma 'n klomp vrugte gekry.
 My broer Rahim is gulsig. Hy proe aan al die vrugte. Hy eet 'n klomp daarvan.
 
 ##
-" Kyk wat het Rahim gedoen!" skree my klein boetie.
-"Rahim is stout en selfsugtig," sê ek.
+"Kyk wat het Rahim gedoen!" skree my klein boetie. "Rahim is stout en selfsugtig," sê ek.
 
 ##
 Mamma is kwaad vir Rahim.
@@ -20,7 +19,7 @@ Mamma is kwaad vir Rahim.
 Ons is ook kwaad vir Rahim. Maar Rahim is glad nie jammer nie.
 
 ##
-" Gaan Mamma nie vir Rahim straf nie?", vra my klein boetie.
+"Gaan Mamma nie vir Rahim straf nie?" vra my klein boetie.
 
 ##
 "Rahim. jy gaan binne kort baie spyt wees," waarsku mamma.

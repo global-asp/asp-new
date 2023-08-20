@@ -1,19 +1,19 @@
 # Kinders van was
 
 ##
-Lank - Lank gelede, was daar 'n gelukige familie.
+Lank - Lank gelede, was daar 'n gelukkige familie.
 
 ##
-Hulle het nooit met mekaar baklei nie. Hulle het hulle ouers by die huis en in die veld gehelp.
+Hulle het nooit met mekaar baklei nie. Hulle het hulle ouers by die huis en op die landerye gehelp.
 
 ##
-Maar, hulle was nie toegelaat om naby 'n vuur te gaan nie.
+Maar, hulle was nie toegelaat om naby 'n vuur te kom nie.
 
 ##
-Hulle moes al hulle werk deur die nag voltooi. Want hulle was gemaak van was!
+Hulle moes al hulle werk deur die nag voltooi, want hulle was gemaak van was!
 
 ##
-Maar een van die seuns wou baie graag uit gaan in die sonlig.
+Maar een van die seuns wou baie graag uitgaan in die sonlig.
 
 ##
 Een dag was die begeerte om uit te gaan te sterk. Sy broers het hom gewaarsku...
@@ -22,7 +22,7 @@ Een dag was die begeerte om uit te gaan te sterk. Sy broers het hom gewaarsku...
 Maar dit was te laat. Hy het in die warm son gesmelt.
 
 ##
-Die was kinders was so hartseer om te sien hoe hulle broer weg smelt.
+Die was kinders was so hartseer om te sien hoe hulle broer wegsmelt.
 
 ##
 Maar hulle het 'n plan beraam. Hulle het die gesmelte was in 'n voël gevorm.

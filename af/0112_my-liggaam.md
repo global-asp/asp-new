@@ -19,7 +19,7 @@ Ek kan daarmee touspring.
 Ek kan daarmee skop.
 
 ##
-Ek kan daarmee vryspring.
+Ek kan daarmee ontsnap.
 
 ##
 Maar ek kan nooit daarmee vlieg nie.

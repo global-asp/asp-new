@@ -10,7 +10,7 @@ Die afrigter het sy hande op sy heupe gesit. "By hierdie skool word net seuns to
 Die seuns het gesê sy moes gaan netbal speel. Hulle het gesê netbal is bedoel vir meisies en sokker vir seuns. Andiswa was baie ongelukkig.
 
 ##
-Die skool het die volgende dag 'n groot sokker wedstryd gehad. Die afrigter was bekommerd, want sy beste speler was siek en kon daarom nie speel nie.
+Die skool het die volgende dag 'n groot sokkerwedstryd gehad. Die afrigter was bekommerd, want sy beste speler was siek en kon daarom nie speel nie.
 
 ##
 Andiswa het na die afrigter toe gehardloop en by hom gepleit om haar te laat speel. Die afrigter was onseker wat om te doen. Hy het toe besluit dat Andiswa deel mag wees van die span.

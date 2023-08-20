@@ -25,7 +25,7 @@ Een vrou tel 'n tros piesangs op uit die houer. Sy bekyk dit deeglik.
 Die vrou koop die piesangs.
 
 ##
- Meer mense na die stalletjie toe.. Hulle koop Tom se piesangs en eet daarvan.
+Meer mense na die stalletjie toe. Hulle koop Tom se piesangs en eet daarvan.
 
 ##
 Sommer gou is die houer leeg. Tom tel hoeveel geld wat hy gemaak het.

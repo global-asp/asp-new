@@ -1,28 +1,28 @@
 # Hoekom seekoeie nie hare het nie
 
 ##
-Haas het eendag langs die rivier verbygehardloop.
+Haas het eendag langs die rivier verby gestap.
 
 ##
-Seekoei was ook daar, hy was besig om die maklike groen gras te eet.
+Seekoei was ook daar, hy was besig om die sappige groen gras te eet.
 
 ##
-Seekoei sien nie vir Haas nie en sy trap per ongeluk op Haas se voet. Haas gee 'n groot gil en begin op Seekoei te skree: "Jou Seekoei! Kan jy nie sien dat jy op my voete trap nie?"
+Seekoei het nie vir Haas gesien nie en sy trap per ongeluk op Haas se voet. Haas het begin om op Seekoei te skree: "Jou Seekoei! Kan jy nie sien dat jy op my voet trap nie?"
 
 ##
-Seekoei vra vir haas on verskoning: "My maat ek is so jammer. Ek het jou nie gesien nie. Asseblief vergewe my!" Haas wil niks hoor nie en skree op Seekoei: "Jy het dit aspris gedoen! Eendag sal jy kry wat jy verdien!"
+Seekoei het vir haas omverskoning gevra: "Ek is so jammer. Ek het jou nie gesien nie. Asseblief, vergewe my!" Haas wil egter nie luister nie en het op Seekoei geskree: "Jy het dit aspris gedoen! Jy sal nog sien, eendag sal jy kry wat jy verdien!"
 
 ##
-Haas gaan haal toe vir Vuur en sê toe vir Vuur: " Gaan brand vir Seekoei wanneer sy uit die rivier uitkom, sy het op my voet getrap!" Vuur antwoord vir Haas: "Geen probleem Haas, enige iets vir jou my vriend"
+Haas het toe vir Vuur gaan haal en sê toe: " Gaan brand vir Seekoei wanneer sy uit die rivier uitkom om gras te eet. Sy het op my getrap!" Vuur antwoord vir Haas: "Geen probleem nie, Haas, my vriend. Ek sal doen net soos jy vra."
 
 ##
-Later daardie dag het Seekoei vêr van die rivier af gras gaan eet. Ewe skielik "Whoosh" Vuur het in vlam verander. Die vlamme het Seekoei se hare begin brand.
+Later het Seekoei ver van die rivier af gras gaan eet. Ewe skielik "Whoosh!" Vuur begin brand. Die vlamme het Seekoei se hare begin brand.
 
 ##
-Seekoei begin huil en hardloop na die water toe. Al haar hare wat afgebrand in die vuur. Seekoei het aanhou huil: "My hare het afgebrand in die vuur! Jy het al my hare gebrand! My hare is alles weg! My pragtige pragtige hare!"
+Seekoei begin huil en hardloop na die water toe. Al haar hare was afgebrand deur die vlamme. Seekoei het aanhou huil: "My hare het afgebrand in die vuur! My hare is alles weg! My pragtige hare!"
 
 ##
-Daarom gaan die seekoei nooit ver van die water af nie, hulle is bang Vuur brand hulle. Haas was baie bly toe Seekoei gebrand het en Haas het aanhou sê: "Ek het haar terug gekry!"
+Haas was baie bly dat Seekoei se hare gebrand het. Oor hulle vrees vir vuur gaan seekoeie tot vandag toe nooit meer ver van die water af nie.
 
 ##
 * License: [CC-BY]

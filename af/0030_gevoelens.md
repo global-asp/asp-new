@@ -1,10 +1,10 @@
-# Hoe ek voel...
+# Gevoelens
 
 ##
 My hart voel baie dinge.
 
 ##
-Ek is gelukkig as my ouma vir ons stories vertel in die aand.
+Ek is gelukkig as my ouma in die aand vir ons stories vertel.
 
 ##
 Ek voel laf as ek met my vriend speel.

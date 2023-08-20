@@ -19,7 +19,7 @@ Ek vee die vloer.
 Ek was die skottelgoed.
 
 ##
-Waarom werk ek so hard... as my boetie net heeltyd speel.
+Waarom werk ek so hard... as my boetie net heeltyd speel?
 
 ##
 * License: [CC-BY-NC]

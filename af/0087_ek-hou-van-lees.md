@@ -22,7 +22,7 @@ Vir wie kan ek lees?
 My pa en oupa is besig.
 
 ##
-Vir wie kan ek lees?
+Vir wie kan ek lees? Ek kan vir myself lees!
 
 ##
 * License: [CC-BY]
