@@ -13,13 +13,13 @@ Die bok sê: "Mê, mê."
 Die perd sê: "Hie, hie, hie."
 
 ##
-Die vark sê: "Oink, oink."
+Die vark sê: "Oink."
 
 ##
-Die hoender sê: "Kloek, kloek."
+Die hoender sê: "Kloek."
 
 ##
-Die hond sê: "Woef, woef."
+Die hond sê: "Woef."
 
 ##
 Die boer sê: "Sjuut!"

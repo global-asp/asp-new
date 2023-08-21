@@ -4,7 +4,7 @@
 Hier is Khalai. Haar naam beteken "blom" in haar taal, Setswana.
 
 ##
-Khalai word wakker en praat met die lemoenboom. "Asseblief. lemoenboom, groei hoog sodat jy vir ons baie ryp lemoene kan gee."
+Khalai word wakker en praat met die lemoenboom. "Asseblief, lemoenboom, groei hoog sodat jy vir ons baie ryp lemoene kan gee."
 
 ##
 Khalai loop skool toe. Langs die pad gesels sy met die gras. "Asseblief, gras, bly mooi groen en moenie opdroog nie."

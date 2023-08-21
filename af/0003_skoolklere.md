@@ -1,10 +1,10 @@
 # Skoolklere
 
 ##
-Hierdie rok is te lank.
+Hierdie rok is lank.
 
 ##
-Hierdie trui is te groot.
+Hierdie trui is groot.
 
 ##
 Hierdie sak is groot.
@@ -19,10 +19,10 @@ Hierdie hoed is klein.
 Die sokkies is kort.
 
 ##
-Maar hierdie skoene is nuut…
+Maar hierdie skoene is nuut.
 
 ##
-... hulle pas!
+... hulle pas perfek.
 
 ##
 * License: [CC-BY-NC]

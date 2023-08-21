@@ -22,7 +22,7 @@ Ons is ook kwaad vir Rahim. Maar Rahim is glad nie jammer nie.
 "Gaan Mamma nie vir Rahim straf nie?" vra my klein boetie.
 
 ##
-"Rahim. jy gaan binne kort baie spyt wees," waarsku mamma.
+"Rahim, jy gaan binne kort baie spyt wees," waarsku mamma.
 
 ##
 Rahim begin siek voel.
