@@ -22,7 +22,7 @@ Okuza mpoka sigo onena ombwa ohayi tidha iihauto, opo yi tale ngele tayi mono mo
 Oshikombo ohashi fadhuka po shampa sha uvu omuumo gwoshihauto. Ohashi kala sha tila kutya pamwe otashi mangwa po sho inaashi futa olefa.
 
 ##
-Ongombe ihayi kala yi na ko nasha uuna tayi taaguluka opate. Nando otaku zi oshihauto ohayi ye ende nethimbo lyayo, oshoka anuwa yo oya futa nale ya mana.
+Ongombe ihayi kala yi na ko nasha uuna tayi taaguluka opate. Nando otaku zi oshihauto ohayi ende nethimbo lyayo, oshoka anuwa yo oya futa nale ya mana.
 
 ##
 * License: [CC-BY]
