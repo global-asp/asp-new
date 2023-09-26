@@ -1,7 +1,7 @@
 # Tingi nozongombe
 
 ##
-Tingi wa turire pu na tjikuukae.
+Tingi wa turire pu na ina omukurukaze.
 
 ##
 Ovo aave tjevere ozongombe zavo.
@@ -10,25 +10,25 @@ Ovo aave tjevere ozongombe zavo.
 Eyuva rimwe pe ya ovasorondate.
 
 ##
-Ovo va twara ozongombe zavo.
+Ovo ve veyeka ozongombe zavo.
 
 ##
-Tingi na tjikuukae va tupuka ave kaṱara.
+Tingi na tjikukae va tupuka nave kaṱara.
 
 ##
-Va kaṱara motjihwa nga ngurova.
+Ovo va kaṱara motjihwa nga ngurova.
 
 ##
-Ovasorondate arire tji va kotoka rukwao.
+Nu vvasorondate arire tji va kotoka rukwao.
 
 ##
-Tjikuukae wa horeka Tingi kehi yoviyao.
+Tjikukae wa horeka Tingi kehi yoviyao.
 
 ##
 Umwe wovasorondate we mu yata nombaze, neye wa mwina kumwi.
 
 ##
-Tji va muna kutja kwa mwina, ovo va pita.
+Tji va muna kutja kwa mwina, Tingi na Tjikukae va pita.
 
 ##
 Ovo va honena konganda kumwi.

@@ -1,4 +1,4 @@
-# Iuvari
+# Uvari
 
 ##
 Ouke uvari ouṱiṱi okuṱiza.
@@ -13,7 +13,7 @@ Ouho uvari ouṱiṱi okumuna.
 Outwi uvari ouṱiṱi okuzuva.
 
 ##
-Ouwoko uvari worusuvero OKURIVARANGA!
+Ouwoko uvari worusuvero OKUVARANGA!
 
 ##
 * License: [CC-BY-NC]

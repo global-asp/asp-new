@@ -1,7 +1,7 @@
 # Omuriro
 
 ##
-Tara,omuriro!
+Tara, omuriro!
 
 ##
 Omuriro u nyosa.

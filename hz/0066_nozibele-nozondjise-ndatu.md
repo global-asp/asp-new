@@ -4,7 +4,7 @@
 Rukuru tjinene, ovasukona vetatu va ire okukatyora.
 
 ##
-Oko kwa ri noupyu tjinene nu ovo arire tji va i konḓonḓu okukayova. Ovo va nyandere nu ave ṱumbu nokuyova momeva.
+Oko kwa ri noupyu tjinene nu ovo arire tji va i konḓonḓu okukayova. Ovo va nyanda nu ave ṱumbu nokuyova momeva.
 
 ##
 Tjimanga, ovo va kamuna kutja eyuva ra toko. Ovo va purukutire okuyaruka kotjirongo.
@@ -13,22 +13,22 @@ Tjimanga, ovo va kamuna kutja eyuva ra toko. Ovo va purukutire okuyaruka kotjiro
 Tji mave yendere onganda, Nozibele otje riṱuna kosengo. Eye wa zembire oundjendje we! "Arikana indjee tu yaruke pamwe!" eye we rihekere komapanga we. Nungwari omapanga we ya tjere kwa toko.
 
 ##
-Okutja Nozibele otja yarukire erike konḓonḓu. Eye wa kamuna imbwi oundjendje we nu a hakahana okuyaruka konganda. Neye arire tja pandjara. monḓorera.
+Okutja Nozibele otja yarukire erike konḓonḓu. Eye wa kamuna imbwi oundjendje we nu a hakahana okuyaruka konganda. Neye arire tja pandjara monḓorera.
 
 ##
 Kokure ngwina a munu ondjerera ndji ri mondjuwo. Eye wa tupuka tjinene okuyenda ngo na kakongora komuvero.
 
 ##
-Eye wa kuminwe tjinene, ombwa tji ya paturura omuvero nu ai tja, "Mo vanga tjike?" "Ami mba pandjara nu me hepa oruveze pu me rara," Nozibele wa ziri. "Hita, poo me ku rumata!" ombwa ya tenene. Nozibele arire tja hiti.
+Eye wa kuminwe tjinene, ombwa tji ya paturura omuvero nu ai tja, "Mo vanga tjike?" "Ami mba pandjara nu me hepa oruveze pu me rara," Nozibele wa ziri. "Hita, poo me ku rumata!" ombwa ya tena. Nozibele arire tja hiti.
 
 ##
-Ombwa arire tji ya tja, "Ndji terekera ovikurya!" "Tjiri ami hi ya rora okuzikira ombwa," eye wa zirire. "Tereka poo me ku rumata!" ombwa ya tjere. Okutja Nozibele a terekere ombwa ovikurya.
+Ombwa arire tji ya tja, "Ndji terekera ovikurya!" "Tjiri ami hi ya rora okuzikira ombwa," eye wa zirire. "Tereka, poo me ku rumata!" ombwa ya tjere. Okutja Nozibele a terekere ombwa ovikurya.
 
 ##
-Kuzamba ombwa ya tjere, "Yara ombete yandje!" Nozibele wa zirire, "Ami hi ya rora okuyarera ombwa ombete." "Yara ombete poo me ku rumata!" ombwa ya tjere. Nozibele arire tja yara indji ombete.
+Kuzamba ombwa ya tjere, "Yara ombete yandje!" Nozibele wa zirire, "Ami hi ya rora okuyarera ombwa ombete." "Yara ombete, poo me ku rumata!" ombwa ya tjere. Nozibele arire tja yara indji ombete.
 
 ##
-Eyuva arihe eye aa ziki, aa kombo nokukohera ombwa. Okutja eyuva rimwe ombwa ya tjere, "Nozibele, ndino ami me karyangera omapanga wandje. Komba ondjuwo, zika ovikurya nu koha oviṋa vyandje ngunda ambi hiya kotoka."
+Eyuva arihe eye aa ziki, aa kombo nokukohera ombwa. Okutja eyuva rimwe ombwa ya tjere, "Nozibele, ndino ami me karyangera omapanga wandje. Komba ondjuwo, zika ovikurya nu koha oviṋa vyandje ngunda ambi hi ya kotoka."
 
 ##
 Tjimanga ombwa tji ya za po, Nozibele we ripora ozondjise ndatu motjiuru. Ondjise imwe wa twa kehi yombete, imwe wa twa kongotwe yomuvero nu yarwe a katwa motjunda. Tjazumba a tupuka hakahana pa yandera okuyaruka konganda.

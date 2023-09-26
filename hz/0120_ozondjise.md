@@ -7,19 +7,19 @@ Thuli u nozondjise ozosupi.
 Anna u nozondjise ozonde.
 
 ##
-Cathy u nondjise ozonde povakwao.
+Cathy u nondjise ozonde zonde.
 
 ##
-Zama wa kutwa ozondjise.
+Zama wa kuta ozondjise ze.
 
 ##
 Baba u noruyezu.
 
 ##
-Zanele u nozondjise nḓa kamurwa.
+Zanele wa kamura ozondjise ze.
 
 ##
-Thabo u nozondjise nḓa kondwa.
+Thabo wa konda ozondjise ze.
 
 ##
 Themba wa hora ozondjise ze.

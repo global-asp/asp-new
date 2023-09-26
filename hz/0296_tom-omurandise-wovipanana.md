@@ -4,22 +4,22 @@
 Tom wa tjindi otjimbamba tjovipanana mbya hora.
 
 ##
-Tom ma i komaketa okukarandisa ovipanana.
+Tom ma i koruveze romarandisiro okukarandisa ovipanana.
 
 ##
-Ovandu pomaketa ve randa ovihape.
+Ovandu pomatara ve randa ovihape.
 
 ##
 Posiya kape na umwe ngu randa ovipanana vya Tom. Ovo ve vanga okuranda imbi vyovakazendu.
 
 ##
-Motjiwaṋa tjetu ovakazendu uriri ombe randisa ovihape. "Omurumendu vi ngwi?" ovandu va pura.
+Motjiwaṋa tjetu ovakazendu uriri ombe randisa ovihape. "Omurumendu vi ngwi hapo?" ovandu va pura.
 
 ##
-Nungwari Tom ke na pa umba ohama. Eye aa ravaere, "Randee ovipanana vyandje. Randee ovipanana vyandje vyoutji mbya hora!" eye wa ravaere.
+Nungwari Tom ka umbu ohama. Eye aa ravaere, "Randee ovipanana vyandje. Randee ovipanana vyandje vyoutji mbya hora!" eye wa ravaere.
 
 ##
-Omukazendu umwe wa toora epunda rovipanana okuza motjimbamba nu e vi tara nawa.
+Omukazendu umwe wa toora epunda rovipanana okuza motjimbamba nevi tara nawa.
 
 ##
 Omukazendu wa randa imbi ovipanana.

@@ -16,7 +16,7 @@ Eye me rinana.
 Eye ma isana.
 
 ##
-Eye ma itavere.
+Ami me itavere.
 
 ##
 Eye ma puratene.

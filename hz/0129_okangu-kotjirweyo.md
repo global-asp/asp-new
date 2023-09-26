@@ -1,4 +1,4 @@
-# Okazandona kotjirweyo
+# Okangu kotjirweyo
 
 ##
 Ami mba penduka nu e yakisa omuriro.
@@ -19,7 +19,7 @@ Ami me kombo ondjuwo.
 Ami me koho ovitjuma.
 
 ##
-Ongwaye ami tji me ungura tjinene nao ngunda ingwi omuangu wandje ama nyanda?
+Ongwaye ami tji me ungura tjinene nao ngunda ingai okamuangu kandje amake nyanda?
 
 ##
 * License: [CC-BY-NC]

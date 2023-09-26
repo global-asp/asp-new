@@ -1,4 +1,4 @@
-# Embo romaukiro womuinyo nombepo.
+# Embo romaukiro womuinyo weyuru
 
 ##
 Kwa kukuta.

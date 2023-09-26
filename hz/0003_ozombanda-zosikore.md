@@ -1,5 +1,4 @@
-# Ozombanda zosikore.
-
+# Ozombanda zosikore
 ##
 Ohorokova ndji onde.
 

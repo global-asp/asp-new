@@ -13,7 +13,7 @@ Ami me pere ozombaruru.
 Ami me koho omakunde.
 
 ##
-Ami me kondo orumbakuna.
+Ami me kondo okambakuna.
 
 ##
 Ami me kondo ombowa.

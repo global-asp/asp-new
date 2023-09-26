@@ -1,13 +1,13 @@
 # Omayuva womasuviro pu na ina omukurukaze
 
 ##
-Odogo na Apiyo aave kara motjihuro pamwe na ihe. Ovo aave zeri kutja omayuva womasuviro ye ye tjimanga. Kamotjimbe tjokutja ozosikore maze pata, nungwari omena rokutja aave vanga okukaryanga ku ina omukurukaze. Eye wa turire motjirongo meṋe yeo enene mu mu patwa omahundju .
+Odongo na Apiyo aave kara motjihuro pamwe na ihe. Ovo aave zeri kutja omayuva womasuviro ye ye tjimanga. Kamotjimbe tjokutja ozosikore maze pata, nungwari omena rokutja aave vanga okukaryanga ku ina omukurukaze. Eye wa turire motjirongo meṋe yeo enene mu mu patwa omahundju.
 
 ##
-Odongo na Apiyo aave tjaterwa tjinene tjinga aave sokukavarura ina omukurukaze rukwao. Ongurova yokomurungu wanao, ova va paka ozondjaṱu zavo nu ave rongerere okuyenda ouyenda oure kotjirongo ho. Ouṱuku mbwo va rara amave nyomborora ohunga nomayuva womasuviro.
+Odongo na Apiyo aave tjaterwa tjinene tjinga aave sokukavarura ina omukurukaze rukwao. Ongurova yokomurungu wanao, ovo va paka ozondjaṱu zavo nu ave rongerere okuyenda ouyenda oure kotjirongo ho. Ouṱuku mbwo va rara amave nyomborora ohunga nomayuva womasuviro.
 
 ##
-Rukuru muhukomunene otji va hinga okuyenda kotjirongo ho mohauto yaihe. Ovo va hinga pokati kozondundu, ave kapita povipuka vyokuti novikunino vyotee mbya ṱaravara. Ovo aave vara ovihaouto mbi mave pingasana nokuimbura.
+Rukuru muhukomunene otji va hinga okuyenda kotjirongo ho mohauto yaihe. Ovo va hinga pokati kozondundu, ave kapita povipuka vyokuti novikunino vyotee mbya ṱaravara. Ovo aave vara ovihauto mbi mave pingasana nokuimbura.
 
 ##
 Kombunda yokaruveze okasupi ovanatje va urirwe nu ave rara.
@@ -25,7 +25,7 @@ Nyar-Kanyada tja za nokupaturura oviyandjewa, wa sera ovatekuru ve ondaya otja k
 Kuzambo Odongo na Apiyo ave piti pendje. Ave utu okurambera ozombombo nouzera.
 
 ##
-Ovo va ronda komiti nokunyandera momeva nokuyetona.
+Ovo va ronda komiti nokunyandera momeva weo nokuyetona.
 
 ##
 Tji kwa zorere arire tji va yaruka konganda nokukarya eriro rongurova. Ngunda ave hi ya mana okurya, tjandje va utu okukoṱura.
@@ -37,10 +37,9 @@ Eyuva ependukirwa, ihe yovanatje wa hinga okuyaruka kotjihuro nu ovo ave sewa pu
 Odongo na Apiyo aave vatere ina omukurukaze noviungura vyoponganda. Ovo aave kateka omeva nokukatyora ozonguṋe. Ovo aave kaeta omai wozohungira nokukapora ovihape motjikunino.
 
 ##
-Nyar-Kanyada wa honga ovatekuru ve okutaka otjisema tji matji riwa pamwe nonyama ndja moṋonwa. Eye wina we ve honga okutereka oruuihi rwokokonata ndu riwa pamwe nehundju nda tetemisiwa.
-
+Nyar-Kanyada wa honga ovatekuru ve okutaka otjisema tji matji riwa pamwe nonyama ndja moṋonwa. Eye wina we ve honga okutereka oruihi rwokokonata ndu riwa pamwe nehundju nda tetisiwa.
 ##
-Omuhuka omunene umwe, Odongo wa hinga ongombe ya ina omukurukaze okutwara komaryo. Ovo va kapitira mehi romuraranganda. Omuṱuta ngwo wa pindikisiwa i Odongo. Eye otja tanda kutja ma kambura ongombe ndjo orondu ya ri ovikunwa vye. Kombunda yanao omuzandona ngwo aa tjiti ouatjiri kutja ongombe ndjo ai ha kara moumba rukwao.
+Omuhuka omunene umwe, Odongo wa hinga ozongombe za ina omukurukaze okutwara komaryo. Ovo va kapitira mehi romuraranganda. Omuṱuta ngwo wa pindikisiwa i Odongo. Eye otja tanda kutja ma kambura ozongombe ndo orondu za ri ovikunwa vye. Kombunda yanao omuzandona ngwo aa tjiti ouatjiri kutja ozongombe nḓo aze ha kara moumba rukwao.
 
 ##
 Eyuva rarwe, ovanatje va ya komaketa pamwe na Nyar-Kanyada. Eye wa ri nokatara paa randisire ovihape mbi terekwa, ouitji noheva. Apiyo aa tjaterwa i okutjivisa ozopereisa zovirandisiwa. Odongo ongwaa paka oviṋa ovandu mbi va randa mozotite.
@@ -55,10 +54,10 @@ Nungwari inga omayuva womasuviro ya kapita tjimanga nu imba ovanatje va sokuyaru
 Ihe tje ya okuvepaha tjandje kave na okuvanga okuyenda. Ovo va hekena Nyar-Kanyada kutja ma yende pu na vo kotjihuro. Eye wa yorayora na tja, "Ami mba kurupa okuyenda kotjihuro. Ami me mu undju kutja mu kotoke kotjirongo tjandje rukwao."
 
 ##
-Odongo na Apiyo ve rivaranga mu ye nu ave virikiza.
+Odongo na Apiyo ve rivaranga mu ye oupame nu ave virikiza.
 
 ##
-Odongo na Apiyo tji va yaruka kosikore va kaserekarera ohunga nomuinyo wovirongo vyokozombanda. Ovanatje tjiva aave munu kutja omuinyo wotjihuro ombu ri omuwa. Varwe aave munu kutja omuinyo wokozombanda ombu ri omuwa. Nungwari ovengi vavo, va muna kutja Odongo na Apiyo ve na ina omukurukaze omuwa.
+Odongo na Apiyo tji va yaruka kosikore va kaserekarera ohunga nomuinyo wovirongo vyokozombanda. Ovanatje tjiva aave munu kutja omuinyo wotjihuro ombu ri omuwa. Varwe aave munu kutja omuinyo wokozombanda ombu ri omuwa. Nungwari ovengi vavo, va muna kutja Odongo na Apiyo ve na ina omukurukaze omuwa!
 
 ##
 * License: [CC-BY]

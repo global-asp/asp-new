@@ -7,7 +7,7 @@ Eyuva rimwe mama wa muna ovihape ovingi.
 "Mo tu pe ruṋe ovihape?" eṱe twa pura. "Ovihape matu ri ngurova," Mama wa tja.
 
 ##
-Omuṱena kwandje Rahim u nomunenetima. Eye wa roro ovihape avihe. Eye wa ri ovihape ovingi.
+Omuṱena kwandje Rahim u nomunenetima. Eye wa roro ovihape avihe. Eye u rya ovihape ovingi.
 
 ##
 "Tara Rahim mbya tjiti!" okaṱena kandje ka ravaere. Rahim omuhahu nu u na omunenetima," ami mba tja.
@@ -16,13 +16,13 @@ Omuṱena kwandje Rahim u nomunenetima. Eye wa roro ovihape avihe. Eye wa ri ovi
 Mama wa pindike ku na Rahim.
 
 ##
-Eṱe wina twa pindike ku na Rahim. Posiya Rahima ke na okumuna kutja wa zunḓa.
+Eṱe wina twa pindike ku na Rahim. Posiya Rahima ke na kumuna kutja wa zunḓa.
 
 ##
-"Hapo ko na okuvera Rahim?" okaṱena kandje ka pura.
+"Hapo mama ko nakuvera Rahim?" okaṱena kandje ka pura.
 
 ##
-"Rahim, tarera mo rimunu kutja wa zunḓa tjimanga nai.
+"Rahim, tarera mo rimunu kutja wa zunḓa tjimanga nai," mama we mu rakiza.
 
 ##
 Rahim wa utu okuhihamwa.

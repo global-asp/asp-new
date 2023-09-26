@@ -1,10 +1,10 @@
 # Eyuva ndu mba za ponganda okuyenda kotjihuro
 
 ##
-Pokaruveze okaṱiṱi komakurameno wozombesi motjirongo tjetu aape nyangatara ovandu nozombesi nḓa turikwa okukapita etota. Pehi ngunda tjandje pe ura omitwaro omingi mbi sokuturikwa. Ovatjiukise tjandje mave ravaere omana wokoṋa ku maku i ozombesi zavo.
+Pokaruveze okaṱiṱi komakurameno wozombesi motjirongo tjetu aape nyangatara ovandu nozombesi nḓa turike okukapita etota. Pehi ngunda tjandje pe ura omitwaro omingi mbi sokuturikwa. Ovatjiukise tjandje mave ravaere omana wokoṋa ku maku i ozombesi zavo.
 
 ##
-"Otjihuro otjinene! Otijhuro otjinene! Okuyenda koutokero!" Ami mba zuu omutjiukise ama ravaere. Ombesi ndjo ondji me sokuronda mo.
+"Otjihuro otjinene! Otijhuro otjinene! Okuyenda koutokero!" Ami mba zuu omutjiukise ama ravaere. Ombesi ndjo omu me sokuronda mo.
 
 ##
 Ombesi yokuyenda kotjihuro tjandje ape ye ura, nu ovandu ovengi ngunda mave ṋiṋikizasana kutja ve ronde. Tjiva va hitisa omitwaro vyawo mombesi kehi. Varwe va twa imbi ovyawo moviraka vyokombanda moukoto.
@@ -13,7 +13,7 @@ Ombesi yokuyenda kotjihuro tjandje ape ye ura, nu ovandu ovengi ngunda mave ṋi
 Ovaronde ovape va handa oukarata nawa, ngunda amave yevayeva pu mave haama mombesi ndja pama. Ovakazendu mbe na ounatje va haama oupore ava rongerere ouyenda oure.
 
 ##
-Ami mbe riṋiṋikizire keṋe yorwiho. Omundu ngwa haama meṋe yandje wa handa otite ongirine oukukutu. Eye wa zara ovitjapwite mbya kurupa, ombaikiha ndja pita motjivara, nu eye ma munika aayo wa kurunga momwinyo.
+Ami mbe riṋeere keṋe yoruho. Omundu ngwa haama meṋe yandje wa handa otite ongirine oukukutu. Eye wa zara ovitjapwite mbya kurupa, ombaikiha ndja pita motjivara, nu eye ma munika aayo wa kurunga momwinyo.
 
 ##
 Ami mba tara pendje ne munu kutja nangwari me zu mo motjirongo tjetu, motjirongo mu mbe ku rira. Nambano me i kotjihuro ihi otjinene povikwao.
@@ -31,7 +31,7 @@ Ovitjitwa mbi vya virurwa i ohupe yombesi, otjiraisiro tjokutja eṱe twa tye ok
 Ovarandise mave undurasana ngunda amave kondjo okuheruka mombesi. Tjiva mave yarura otjendja kovaenda. Varwe ngunda mave kondjisa okurandisa po ouṋa tjiva kotjikando otjisenina.
 
 ##
-Ombesi ngunda amai nana ami mba tara morwiho. Ami me ripura kutja tjii nai mee kotoka kotjirongo tjetu rukwao.
+Ombesi ngunda amai nana ami mba tara moruho. Ami me ripura kutja tjii nai mee kotoka kotjirongo tjetu rukwao.
 
 ##
 Ngunda amatu kaenda komeho, moukoto wombesi mwa hara oupyu tjinene. Ami mba pata omeho ame zeri kutja naṋi me rara.

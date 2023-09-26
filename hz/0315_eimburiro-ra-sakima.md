@@ -1,16 +1,16 @@
 # Eimburiro ra Sakima
 
 ##
-Sakima aa kara pu na ovanene ve nokaṱena kozombura ine. Ovo aave kara pehi romurumendu omutumbe. Ondjuwo yavo yomututu wehozu ya ri kotjikoro tjomiti mbya hapere moruteto.
+Sakima aa kara pu na ovanene ve nokaṱena kozombura ine. Ovo aave kara pehi romurumendu omutumbe. Ondjuwo yavo yomututu wehozu ya ri komaandero yomiti mbya hapere moruteto.
 
 ##
-Sakima tja ri nozombura ndatu wa verere na poṱupara. Sakima wa ri omuzandona onongo.
+Sakima tja ri nozombura ndatu wa verere na poṱupara. Sakima wa ri omuzandona onongo wotjiyandjewa tjapeke.
 
 ##
 Sakima aa tjiti oviṋa ovazandona ovakwao vozombura hamboumwe mbi ve ha yenene okutjita. Tjimuna, aa yenene okuhaama pamwe novandu ovanene motjirongo nokuhungirira komapu omanahepero.
 
 ##
-Ovanene va Sakima aave ungura ponganda yomurumendu omutumbe. Ovo aave i rukuru muhuka nokukotoka ngurova onene. Sakima ongwaa sewa pamwe nokaṱena.
+Ovanene va Sakima aave ungura ponganda yomurumendu omutumbe. Ovo aave i rukuru muhuka nokukotoka mongurova onene. Sakima ongwaa sewa pamwe nokaṱena.
 
 ##
 Sakima wa suverere okuimbura. Eyuva rimwe ina we mu pura, "Hapo omaimburiro nga we rihonga pi, Sakima?"
@@ -25,10 +25,10 @@ Sakima wa suverere okuimburira okaṱena, tjinene indu tji ka ṱondjara. Okaṱ
 "Imbura rukwao na rukwao, Sakima." okaṱena ke rihekere ku ye. Sakima otjaa yarukire po nokuyarukirapo.
 
 ##
-Ongurova imwe ovanane ve tji va kotoka konganda, tjandje va mwina uriri. Sakima wa tjiwa kutja pe notjiṋa tji tji he ri nawa.
+Ongurova imwe ovanane ve tji va kotoka konganda, nu tjandje va mwina uriri. Sakima wa tjiwa kutja pe notjiṋa tji tji he ri nawa.
 
 ##
-"Mwa hapa vi, tate na mama?"Sakima wa purire. Sakima wa raerwa kutja omuzandu womurumendu ingwi omutumbe wa zengi. Omurumendu ngwi u na oruhoze nu wa sewa erike.
+"Mwa hapa vi, tate na mama?" Sakima wa purire. Sakima wa raerwa kutja omuzandu womurumendu ingwi omutumbe wa zengi. Omurumendu ngwi u na oruhoze nu wa sewa erike.
 
 ##
 "Ami me yenene okukemuimburira. Ngahino ma yenene okuyoroka rukwao." Nungwari imba ovanene ve va panḓa. "Eye wa tumba tjinene. Ove oove okazandona okapoṱu uriri. Mo ripura kutja eimburiro mari mu vatere poo?"
@@ -40,7 +40,7 @@ Nungwari, Sakima kayarukire ombunda. Okaṱena wina ke mu pere omasa. "Omaimburi
 Eyuva ependukirwa, Sakima wa ningira okaṱena kutja ke mu nane korupangu okuyenda kondjuwo yomurumendu omutumbe.
 
 ##
-Eye wa kakurama kehi yorwiho orunene na utu okuimbura eimburiro re esuverwa. Kouṱiṱiṱiṱi, otjiuru tjomurumendu omutumbe tja utu okuyeruruka porwiho.
+Eye wa kakurama kehi yorwiho orunene na utu okuimbura eimburiro re esuverwa. Kouṱiṱiṱiṱi, otjiuru tjomurumendu omutumbe tja uta okuyeruruka porwiho.
 
 ##
 Ovaungure va isire imbi mbyaave ungura. Ovo va puratenene keimburiro ra Sakima ewa. Nungwari omurumendu umwe wa tjere, "Kape nomundu ngwa rora okuhuhumiṋa omuhona wetu. Okazandona okapoṱu nga make munu kutja make mu huhumiṋa?

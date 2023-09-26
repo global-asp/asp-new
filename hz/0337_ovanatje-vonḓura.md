@@ -1,4 +1,4 @@
-# Ovanatje vonḓura.
+# Ovanatje vonḓura
 
 ##
 Rukuru tjinene pa ri neṱunḓu ewa rohange.

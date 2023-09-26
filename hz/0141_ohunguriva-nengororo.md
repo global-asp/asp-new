@@ -1,40 +1,40 @@
 # Ohunguriva nengororo
 
 ##
-Ohunguriva nengororo va ri omapanga. Nungwari aruhe aave kara nozombata. Eyuva rimwe ve ripura okunyanda otjimbere tjokomise ve tare kutja ngu ri omunyande wa katjoruhonga ee uṋe.
+Ohunguriva nengororo va ri omapanga. Nungwari aruhe aave kara nozombata. Eyuva rimwe ve ripura okunyanda otjimbere tjokozombaze ve tare kutja ngu ri omunyande wa katjoruhonga eye uṋe.
 
 ##
-Ovo va ya kotjitjandja tjotjimbere nu ave utu ehore ravo. Ohunguriva ya ri notjikara, nungwari engororo ra ri notjikara pu yo. Ohunguriva ai vete kokoure nungwari engororo aari vete kokure pu yo. Ohungiriva ya urirwe.
+Ovo va ya korutjandja rwotjimbere nu ave utu ehore ravo. Ohunguriva ya ri notjikara, nungwari engororo ra ri notjikara pu yo. Ohunguriva ai vete kokoure nungwari engororo ari vete kokure pu yo. Ohungiriva ya uta okupindika.
 
 ##
-Ovo ve ripura okuveta ouyatja. Rutenga Ngororo ondja ri omukambure. Hunguriva wa hitisa ongombe imwe uriri. Kuzamba rwa ri oruveze rwohunguriva okukambura
+Ovo ve ripura okuveta ouyatja. Rutenga Ngororo ongwa ri omukambure. Hunguriva wa hitisa ongombe imwe uriri. Kuzamba rwa ri oruveze rwohunguriva okukambura.
 
 ##
-Ngororo wa veta otjimbere nu a hitisa. Ngororo wa tupukisa otjimbere ama nḓirivera nu aka hitisa .Ngororo wa hitisa ovimbere vitano.
+Ngororo wa veta otjimbere nu a hitisa. Ngororo wa tupukisa otjimbere ama nḓirivera nu a kahitisa. Ngororo wa hitisa ovimbere vitano.
 
 ##
-Hunguriva wa pindikire tjinene kutja wa pandjara. Eye wa ri omutaarwa omuvi tjinene. Ngororo wa uta okuyora epanga re mena rokutja eye kaa vanga okuyakura kutja wa taarwa.
+Hunguriva wa pindika tjinene kutja wa pandjara. Eye wa ri omutaarwa omuvi tjinene. Ngororo wa uta okuyora epanga re mena rokutja eye kaa vanga okuyakura kutja wa taarwa.
 
 ##
-Hunguriva wa pindikre tjinene nu wa mwahurura otjinyo tje nu a ṋiṋa indi engororo.
+Hunguriva wa pindikire tjinene nu wa mwahurura otjinyo tje nu a ṋiṋa indi engororo.
 
 ##
-Hunguriva wa kawondja okuyaruka konganda nu a hakaene na Ina yaNgororo. Ina ya Ngororo we mu pura, "Wa munu pi okanatje kandje?" Hunguriva ka nyamukurire kaparukaze. Ina yaNgororo wa ri nengendo tjinene.
+Nu ngunda hunguriva ama kawondja okuyaruka konganda wa hakaena na Ina ya Ngororo. Ina ya Ngororo we mu pura, "Wa munu pi okanatje kandje?" Hunguriva ka nyamukurire kaparukaze. Ina ya Ngororo wa ri nongendo tjinene.
 
 ##
-Nu ina yaNgororo wa zuva okaraka okaṱikona ku make tja. "Mama ndji vatera.!" okaraka ka posa amake riri. Ina yaNgororo wa yevayeva nu a puratene nawa. Ombosiro ya ri amai zu pehuri rohunguriva.
+Nu ina yaNgororo wa zuva okaraka okaṱikona ku make tja. "Mama ndji vatera!" Okaraka ka posa amake riri. Ina ya Ngororo wa yevayeva na puratene nawa. Ombosiro ya posa okuza pehuri rahunguriva.
 
 ##
-Ina yaNgororo wa ravaera, "Ungurisa omasa woye ya peke muatje wandje!" Ngororo wa pitisa ombepo ndji mai ṋuka navi na wina omutjato mbu mau tjata navi. Hunguriva wa uta okuhihamwa.
+Ina ya Ngororo wa ravaera, "Ungurisa omasa woye ya peke muatje wandje!" Ngororo wa pitisa ombepo ndji mai ṋuka nu yomutjato mbu mau tjata navi. Hunguriva wa uta okuhihamwa.
 
 ##
-Hunguriva wa kuura otjive. Eye wa tjeka omate nokuyeṋina. Eye wa tya ozombato nokukorora. Nu a korora rukwao. Engororo aari tjata navi.
+Hunguriva wa kuura otjive. Eye wa tjeka omate nokuyeṋina. Eye wa tya ozombato nokukorora. Nu a korora rukwao. Engororo aari mu yaukisa tjinene.
 
 ##
-Hunguriva wa korora nganda engororo ndari pehuri re ari piti. Ina yaNgororo nokanatje ke va ronda komuti okukaṱara.
+Hunguriva wa korora nganda engororo ndari pehuri re ari piti. Ina ya Ngororo nokanatje ke va ronda komuti okukaṱara.
 
 ##
-Okuza keyuva ndo, ozohungiriva nomangororo vya rira ovanavita.
+Okuza keyuva ndo, ozohunguriva nomangororo vya rira ovanavita.
 
 ##
 * License: [CC-BY]
