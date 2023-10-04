@@ -1,28 +1,28 @@
-# N/ai!kui
+# Nǀaiǃkuisi
 
 ##
-Thuli n/ai!kuisih !omh.
+Thuli nǀaiǃkuisih ǃomh.
 
 ##
-Anna n/ai!kuisih g≠a'ina.
+Anna nǀaiǃkuisih gǂa'ina.
 
 ##
-Cathy n/ai!kuisih kaice g≠a'ina.
+Cathy nǀaiǃkuisih kaice gǂa'ina.
 
 ##
-Zama //'ang ha n/ai!kuisih.
+Zama ǁ'ang ha nǀaiǃkuisih.
 
 ##
-Baba kxae tzi!kui.
+Baba kxae tziǃkui.
 
 ##
-Zanele koh kam ha n/ai!kuisih.
+Zanele koh kam ha nǀaiǃkuisih.
 
 ##
-Thabo ≠hom ha n/ai!kuisih.
+Thabo ǂhom ha nǀaiǃkuisih.
 
 ##
-Themba koh ≠hom gaq'ua ha n/ai.
+Themba koh ǂhom gaq'ua ha nǀai.
 
 ##
 * License: [CC-BY-NC]

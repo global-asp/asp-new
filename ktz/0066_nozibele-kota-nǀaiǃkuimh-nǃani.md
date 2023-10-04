@@ -1,43 +1,43 @@
-# Nozibele kota n|ai!kuimh n!ani
+# Nozibele kota nǀaiǃkuimh nǃani
 
 ##
-Kuria o kxaice,dshaumh n!ani !'hu da'a.
+Kuria o kxaice, dshaumh nǃani ǃ'hu da'a.
 
 ##
-Khoe ko khui te si!a u ǁ'a si!a g|ae dcxaa si!a hui |xoa g!u te khi taqma.
+Khoe koh khui te siǃa u ǁ'a siǃa gǀae dcxaa siǃa kui ǀxoa gǃu te khu taqm.
 
 ##
-Kua,si!a ho tca khoe te kxoni. Te ko coa te ua !aoh.
+Nǃo'osi siǃa kua, ho te ǀam toan. Te kua coa te ua tjuǀho.
 
 ##
-Ka si!a tsi to'oma !aoh. Nozibele ǁua ha g!au ko ha !ain. Ha ǂ'ari ha !ainǁaqmatcia! ''I!a |xom ce |xoa mi. Te ha ǂarasih ko ǁ'ae te toan.
+Ka siǃa tsi to'oma tjuǀho. Nozibele ǁua ha gǃau ko ha ǃain. Ha ǂ'ari ha ǃainǁaqmatcia! "Iǃa ǀxom ce ǀxoa mi!" Te ha ǂarasih ko ǁ'ae te toan.
 
 ##
-Te Nozibele o n|e'e te ce ua tcagn!a'an. Ha g|ae ho ha !ain tcia te n!o'o |'an tcia te n!o'o |'an !oah, Xabe ha tamia jojoma.
+Te Nozibele o nǀe'e te ce ua ǃxum. Ha gǀae ho ha ǃainǁaqmatcia te nǃo'o te gu ka te nǃo'o te ua ǃoah, Xabe ha nǃan jojoma nǃangsi.
 
 ##
-ǂXansi ha ho da'a ku ǁ'an !aoh khoea. Ha n!o'o |xoa da'a toa te to'oma te !o!o tjutzi.
+ǂXansi ha ho da'a ku ǁ'an ǃaoh khoea. Ha nǃo'o ǀxoa da'a toa te to'oma te ǃoǃo tjutzi.
 
 ##
-Ha ko area khoe ko ha ǂ'angsi,gǂhuin !'oan tjutzi te ko, ''Hatcere a kare? " Mim m!an te kxoa ko mi coa," Nozibele koe nǁae. "G!a'ama,kana mi n!ai a !" G|huin ko nǁae. Te Nozibele g!a'ama.
+Ha koh area khoe ko ha ǂ'angsi, gǂhuin ǃ'oan tjutzi te ko, "Hatcere a kare?" "Mim nǃan te kxoa koa mi cua," Nozibele koe nǁae. "Gǃa'ama, kana mi nǃai a!" Gǀhuin koe nǁae. Te Nozibele gǃa'ama.
 
 ##
-Gǂhuin ko, " n|oan |'an mi !" Xabe ka mi hinm he, okaa mi cinniha |oa n|oan |'an gǂhiun,ha ko mani kxui. " N|oan kana mi n!ai a! "Gǂhuin ko nǁae. Te ǁama ǁ'aka Nozibele n|oan |'an Gǂhuin ko 'm khoe ma.
+Gǂhuin ko, "nǀoan ǀ'an mi!" "Xabe ka mi hin he, okaa mi cinniha ǀoa nǀoan ǀ'an gǂhiun," ha koe mani kxui. "Nǀoan kana mi nǃai a!" Gǂhuin koe nǁae. Te ǁama ǁ'aka Nozibele nǀoan ǀ'an Gǂhuin ko 'm khoe ma.
 
 ##
-ǁAma gǂhuin ko, "Du |'an mi ko khara!" Nozibele mania ha," Mi ma ciniha sin |oa khara |'an gǂhuin." "Khara kana mi n!ai a!" Gǂhuin ko nǁae. Te ǁama Nozibele khara.
+ǁAma gǂhuin ko, "Du ǀ'an mi ko khara!" Nozibele mania ha," Mi m ciniha sin ǀoa khara ǀ'an gǂhuin." "Khara kana mi nǃai a!" Gǂhuin koe nǁae. Te ǁama Nozibele khara.
 
 ##
-/Amn|ui waqnhe ha ǂ'aun n|oan ka ǁxai ka ǁka |'an gǂhuin. |Amn|ui gǂhuin ko, " Nozibele.|am a he mi ka |'hoo ǂara gesin. ǁXai tjun!ang,n|oan 'msi n|ang ǁka mi tcisi ko ǁ'aea mi g|ae."
+ǀAmnǀui waqnhe ha ǂ'aun nǀoan ka ǁxai ka ǁka ǀ'an gǂhuin. ǀAmnǀui gǂhuin ko, "Nozibele, ǀama he mi ka ǀ'hoo ǂara gesin. ǁXai tjunǃang, nǀoan 'msi nǀang ǁka mi tcisi ko ǁ'aea mi gǀae."
 
 ##
-N!o'osi tjin toan gǂhuin o ua ha n!o'o te ǂhoe !kui n!ani ko ha n|ai. Ha |'ua !kui n|ui ko g!ahm ǂahbatan!ang,ka n|ui ha n||ahn tjutzi !'on!ang te ka n|ui ha nǁahn !hu n!ang. ǁAma ha !aah toan ha |'ae ka ha ua !aoh.
+Nǃo'osi tjin toan gǂhuin oo ua ha nǃo'o te ǂhoe ǃkui nǃani ko ha nǀai. Ha ǀ'ua ǃkui nǀui ko gǃahm ǂahbatanǃang, ka nǀui ha nǁah tjutzi ǃ'onǃang te ka nǀui ha nǁah ǃhu nǃang. ǁAma ha ǃaah nǃo'o te ua tjuǀho.
 
 ##
-Ka gǂhuin ce ha kxoa Nozibele. " Nozibele koere a gea?" Ha !'au. "Mi he te gea g!ahmǂahban!ang,''!kuia o kxaice ko nǁae. '' Mi he gea tjutzi !'on!ang, ''!kui o nǂaitsan khoe nǁae. " Mim he,te gea !hun!ang,"!kuia o nǂain!ania ko nǁae."
+Ka gǂhuin ce ha kxoa Nozibele. "Nozibele koere a gea?" Ha ǃ'au. "Mi he te gea gǃahmǂahbanǃang," ǃkuia o kxaice koe nǁae. "Mi he te gea tjutzi ǃ'onǃang," ǃkuia nǂaitsan koe nǁae. "Mim he, te gea ǃhunǃang," ǃkuia nǂainǃani koe nǁae.
 
 ##
-//Ama gǂhuin !'han tca Nozibele te kui ha. Te ha ko !aah tju/ho n|ui wagnke. Xabe Nozibele ǁ'a !osin ge te !hai |xoa gǂhuin ko !ahin. Ka gǂhuin g|ae se !ahin ǁae |'an ka |'ae ko ha, okaa ha !aah ce te ǁxoa gǁa'ama |oa ce ǂ'ang Nozibele kxoa.
+ǁAma gǂhuin ǃ'han tca Nozibele te kuia ha. Te ha koh ǃaah ua tjuǀho nǀui wagnke. Xabe Nozibele ǁ'a ha ǃosin ge te ǃhai ǀxoa gǂhuin ko ǃahin ǃaeǃae. Ka gǂhuin gǀae se ǃahin ǁae ǀ'an ka ǀ'ae ko ha, okaa gǂhuin ǃaah ce te ǁxoa gǁa'ama ǀoa ho ha ǀ'ae.
 
 ##
 * License: [CC-BY]

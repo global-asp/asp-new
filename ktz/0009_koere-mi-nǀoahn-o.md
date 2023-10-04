@@ -1,22 +1,22 @@
-# Koere mi n/oahn o?
+# Koere mi nǀoahn o?
 
 ##
-Koere mi n/oahn o?
+Koere mi nǀoahn o?
 
 ##
-Ha re gea g!ahm ≠ahban!ang?
+Ha re gea gǃahm ǂahbanǃang?
 
 ##
-Ha re gea kas n!ang?
+Ha re gea kas nǃang?
 
 ##
-Ha re gea g/axu !'on!ang?
+Ha re gea gǀaxu ǃ'onǃang?
 
 ##
-Ha re gea droma !an?
+Ha re gea droma ǃan?
 
 ##
-Ha re gea taan n!ang?
+Ha re gea tan nǃang?
 
 ##
 Ha re gea tzi?

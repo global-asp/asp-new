@@ -1,37 +1,37 @@
 # Da'abi sa o thobo hiasi
 
 ##
-/amn/ui, !aohn!ang ko ge jan.
+ǀAmnǀui, ǃaohnǃang koh gea jan.
 
 ##
-Si!a !'han khoe ko tihsi. Te hui si!a n!auasi ko !aoh kota tzi.
+Siǃa koh ǀoa ǁ'an khoe. Te hui siǃa nǃauasi ko ǃaoh kota tzi.
 
 ##
-Te si!a cete !oa si!a /'aesi tca si!a /oa ≠'aun to'oma da'a.
+Te siǃa koh ǃoa siǃa ǀ'aesi ǁ'a siǃa nǁau to'oma da'a.
 
 ##
-Si!a ≠'aun du si!a //koasi ko g/u. Khama si!a dua si!a /'aesi ko thobo!
+Siǃa koh ǂ'aun du siǃa ǁkoa waqnsi ko gǀu. Khama siǃa koh du ǀxoa siǃa ǀ'aesi ko thobo!
 
 ##
-//'a !arikxaomh sa //'a n/ui kaice are /amtzi ku n/anga.
+Te ǁ'a ǃarikxaomh sa ǁ'a ha nǀui koh kaice taqra ǀamtzi ku nǀanga.
 
 ##
-//'ae n/ui okaa //'a oosia sin ku u te ha !osin n≠ai /xuri ha.
+ǁ'ae nǀui okaa ǁ'a oosia sin ku u te ha ǃosin nǂai ǀxuri ha.
 
 ##
-//'ae ≠aun ha ka kohrea ko /am.
+Te tia ǁ'ae ǂaun! Te ǀam kohre ha.
 
 ##
-Thobo da'abiamh !ka sih /oa n/ang ka si!a se tca si!a tshima o kohrea /am.
+Thobo da'abiamh ǃka sih ǀoa nǀang ka siǃa se tca siǃa tshima o kohrea ǀam.
 
 ##
-Xabe si!a du ≠'ang. Si!a dua thobo kohre ko tzama.
+Xabe siǃa du ǂ'ang. Siǃa dua thoboa kohre ka ǀ'ae ko tzama.
 
 ##
-Si!a //'ua si!a tshia o thobo dua ka /'ae ko tzama ko n!ohm!o.
+Siǃa tani ua siǃa tshia toa o tzama ko nǃohmǃo.
 
 ##
-Ka /am g/ai, ha n!ohm n//hoo ka ge'ea n!o'oma //asi.
+Tca ǀam ku o gǀaia, ha koh nǃohm u te ge'ea nǃom ǁ'hasi.
 
 ##
 * License: [CC-BY]

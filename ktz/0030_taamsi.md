@@ -1,19 +1,19 @@
-# T'amsi
+# Ta'amsi
 
 ##
-Mi !ka ge /xoa ≠'ang sa ≠hai.
+Mi ǃka ge ǀxoa ǂ'ang sa ǂhai.
 
 ##
-Mi !ka n/ang ka mama n≠oahn /'an e!a ko n≠oahnsih.
+Mi ǃka nǀang ka mama nǂoahn ǀ'an eǃa ko nǂoahnsih ko gǀu.
 
 ##
-Mi du koara ≠ang ka mi ge /xoa mi ≠ara.
+Mi du koara ǂ'ang ka mi kui ǀxoa mi ǂara.
 
 ##
-Mi !ka /oa n/ang ka mba ko ha te koara mari.
+Mi ǃka ǀoa nǀang ka mba ko ha te koara mari.
 
 ##
-Mi are ka aia n!ama mi.
+Mi are ka aia nǃama mi.
 
 ##
 * License: [CC-BY-NC]

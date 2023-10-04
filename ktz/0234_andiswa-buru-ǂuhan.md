@@ -1,30 +1,28 @@
-# Andiswa buru ‡uhan
+# Andiswa buru ǂuhan
 
 ##
-Andiswa ku g!u'u tca ‡oqui ku oo kuia lkaisi burua. Te ha n!ooh ka ha koh g!a'ama lxoa si!a. Ha tsisa'a laohlaoh te ko ha rexoana !'angse lxoa si!a.
+Andiswa ku gǃu'u tca ǂoqui ku oo kuia ǀkaisi burua. Te ha nǃooh ka ha koh gǃa'ama ǀxoa siǃa. Ha tsisa'a ǀaohǀaoh te ko ha re xoana ǃ'angse ǀxoa siǃa.
 
 ##
-lAolaoh nlhuih ha n!u'usi. "Skorea he nllaqe-mh nlanga khoe kxae tosi ko lkaisi burua kui, ha koe nllae.
+ǀAohǀaoh nǀhuih ha nǃu'usi. "Skorea he nǁaqe-mh nǀanga khoe kxae tosi ko ǀkaisi burua kui," ha koe nǁae.
 
 ##
-Te ‡oqui !oa ha te ko kui dshausi maa. O ha o dshausi maa lkaisi maa o ‡oqui.
-
-Andiswe !ka kxuia.
+Te ǂoqui ǃoa ha te ko kui dshausi maa. O ha o dshausi maa ǀkaisi maa o ǂoqui. Andiswa ǃka kxuia.
 
 ##
-lAma llua, skore kxae lkaisi burua kui n!a'an. lAohlaoh koh kaice ‡'ang khama kui kxao jan o ha maa te koh lkae. Te loa kui.
+ǀAma ǁua, skore kxae ǀkaisi buru a kui nǃa'an. ǀAohǀaoh koh kaice ǂ'ang khama kui kxao jan o ha maa te koh ǀkae te ǀoa kui.
 
 ##
-Andiswe !aah ua lAolaoh te glae lxom ha te ko a kxoe mi kui. lAohlaohloa !'han tca ha du. Te sin ll'ae tca Andiwe te ‡'aun g!a'ama ll'a xurupua.
+Andiswa ǃaah ua ǀaoǀaoh te gǀae ǀxom ha te ko a kxoe mi kui. ǀAohǀaoh ǀoa ǃ'han tca ha du. Te sin ǁ'ae tca Andiswa te ǂ'aun gǃa'ama ǁ'a xurupua.
 
 ##
-Te kui glaoh, ju l'u buru koara totih can ll'aea.
+Te kui gǀaoh. Jua ǀ'u buru koara totih can ǁ'aea.
 
 ##
-Ka to'a he llae tsaqn n!angsi kuia !'hoan ma nlui !aih l'an Andiswa ko buru. Te ha n!o'obe di'i te ko to ko kihpa. Ha !aih glaoha buru te ha g!a'ama.
+Ka to'a he ǁ'ae tsaqn nǃangsi kuia ǃ'hoan ma nǀui ǃaih ǀ'an Andiswa ko buru. Te ha nǃobe di'i te ko to ko kihpa. Ha ǃaih gǀaoha buru te ha gǃa'ama.
 
 ##
-Ju nlauru te si !kasi nla'ng. llAma lama to'a dshau=mh ju l'an tosi ko lkaisi burua kui ko skore khoea.
+Ju nǀauru te si ǃkasi nǀa'ng. ǁAma ǀama to'a dshauǂmh ju ǀ'an tosi ko ǀkaisi burua kui ko skore khoea.
 
 ##
 * License: [CC-BY-NC]

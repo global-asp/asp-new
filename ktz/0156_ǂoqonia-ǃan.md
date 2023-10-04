@@ -1,19 +1,19 @@
-# ≠Oq'onia !'an
+# ǂOq'onia ǃ'an
 
 ##
-//'Ae n/ui ≠oq'onia !'an koh ge.
+ǁ'Ae nǀui ǂoq'onia ǃ'an koh ge.
 
 ##
-Ha ≠'auce te kxoa msih,te //ama...
+Ha ǂ'auce te kxoa msih, te ǁama...
 
 ##
-Boq'o!!! ≠oq'oni gu tsau ka!
+Boq'o!!! ǂOq'oni gu tsau ka!
 
 ##
-//Ama //'akoa okaa ha ka /oa !'an,te ha !ka n/ang.
+ǁAma ǁ'akoa okaa ha ka ǀoa ǃ'an, te ha ǃka nǀang.
 
 ##
-//Ama ka ua //'aea ha !'an.
+ǁAma ka ua ǁ'aea ha ceka ǃ'an.
 
 ##
 * License: [CC-BY]

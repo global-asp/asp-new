@@ -1,28 +1,28 @@
-# Mi are ku n//aqara!
+# Mi are ku nǁaqara!
 
 ##
-Mi are ku n//aqara.
+Mi are ku nǁaqara.
 
 ##
-Ha joere mi ku n//aqara /'an?
+Ha joere mi ku nǁaqara ǀ'an?
 
 ##
 Mi tshin tza.
 
 ##
-Ha joere mi ku n//aqara /'an?
+Ha joere mi ku nǁaqara ǀ'an?
 
 ##
 Mi taqe kota mi txun cinniha du tci gesin.
 
 ##
-Ha joere mi ku n//aqara /'an?
+Ha joere mi ku nǁaqara ǀ'an?
 
 ##
-Mi ba kota mi !un!a'an cinniha du tci gesin.
+Mi ba kota mi ǃunǃa'an cinniha du tci gesin.
 
 ##
-Ha joere mi ku n//aqara /'an? Mi n//aqara /'an mi /'ae!
+Ha joere mi ku nǁaqara ǀ'an? Mi nǁaqara ǀ'an mi ǀ'ae!
 
 ##
 * License: [CC-BY]

@@ -1,37 +1,37 @@
 # Zama jan!
 
 ##
-Mi tshima tza ≠'ari. Mi ko cao ka tsau, khama mi te jan.
+Mi tshima tza ǂ'ari. Mi ko coa ka tsau, khama mi te jan!
 
 ##
-Mi hin ku du /'u /am.
+Mi hin ku du ǀ'u ǀam.
 
 ##
-'' A hin o mi n!a'an tzi ≠ua,'' Mi taqe ko n//ae.
+"A hin o mi nǃa'an tzi ǂua," Mi taqe koe nǁae.
 
 ##
-Mi //ka mi/'ae,mi /oa kxoa hui.
+Mi ǁka miǀ'ae, mi ǀoa kxoa hui.
 
 ##
-Mi n≠ai//koa g!ia ≠a'u kota g≠oah /auh //ku n/ang.
+Mi nǂaiǁkoa gǃua ǂa'u kota gǂoah ǀauhn ǁku nǀang.
 
 ##
-Aia n≠ai≠'anga mi, n//au ≠'ari tzausih,'' mi mani, /oa o mi!''
+Aia nǂaiǂ'anga mi, "nǁau ǂ'ari tzausih," mi mani te ko, "ǀoa o mi!"
 
 ##
-Ka mi //ka toan mi /'ae,mi tsxam !un!a'an kota g//ag,ka n≠ai //au ge sih.
+Ka mi ǁka toan mi ǀ'ae, mi tsxam ǃunǃa'an kota gǁaq, ka nǂai ǁau ge sih.
 
 ##
-//Ama mi n≠ai //aqma mi /'ae, ''mi ka o n!au aia'', Mi ko n//ae.
+ǁAma mi ǁaqma, "mi ka o nǃau aia," Mi koe nǁae.
 
 ##
-Mi !'o mi konibe kota //'ang g!oehsih.
+Mi ǃ'o mi konibe kota ǁ'ang gǃoehsih.
 
 ##
-Te mi n//uri ka mi tshima !'han skore n≠oahnsi.
+Te mi nǁuri ka mi tshima ǃ'han skore nǂoahnsi.
 
 ##
-Klasi n!ang mi du tahntoan ko khoe n/ui waqnke.
+Klasi nǃang mi du tahn toan ko khoe nǀui waqnke.
 
 ##
 Tci jan waqnke mi du xabe kui mi kaice ge to'oma.

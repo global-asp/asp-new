@@ -1,37 +1,37 @@
-# !'Hoan Kaice g≠a'in
+# ǃ'Hoan kaice gǂa'in
 
 ##
-Ha //'hao koh kaice !oma.
+Ha ǁhao koh kaice ǃoma.
 
 ##
-Ha tjutzi koh kaice !oma.
+Ha tjutzi koh kaice ǃoma.
 
 ##
-Ha g!ahm koh kaice !oma.
+Ha gǃahm koh kaice ǃoma.
 
 ##
-Ha /'uri koh kaice !oma.
+Ha ǀ'uri koh kaice ǃoma.
 
 ##
-!'Hoan he koh kaice g≠a'in!
+ǃ'Hoan he koh kaice gǂa'in!
 
 ##
-Ha koh kuru //'hao!'an kaice g≠a'in.
+Ha koh kuru ǁhaoǃ'an kaice gǂa'in.
 
 ##
-Ha koh kuru tjutzi g!xama kaice g≠a'in.
+Ha koh kuru tjutzi gǃxama kaice gǂa'in.
 
 ##
-Ha koh kuru g!ahm kaice g≠a'in.
+Ha koh kuru gǃahma kaice gǂa'in.
 
 ##
-Ha koh //'ama /'uri kaice g≠a'in.
+Ha koh ǁ'ama ǀ'uri kaice gǂa'in.
 
 ##
-Ha koh n/anga g/agua kaice g≠a'in. Te 'm /xoa forkoa kaice g≠a'in.
+Ha koh nǀanga gǀaxua kaice gǂa'in. Te 'm ǀxoa forkoa kaice gǂa'in.
 
 ##
-Ha n//ahn ha !aoh te ua tzi,te g/ae gea kuri sa ≠hai.
+Ha nǁah ha ǃaoh te ua tzi, te gǀae gea kuri sa ǂhai.
 
 ##
 * License: [CC-BY]

@@ -1,64 +1,64 @@
-# Can sa ||kae |xoa mama
+# Can sa ǁkae ǀxoa mama
 
 ##
-Ondongo sa Apiyo !xoana |xoa sa ba. Sa se !'an cansih.|Oa o tca skore te sin !'o.te si u se sih txunsin. Ha !xoana tju|'hoa kxae ||'au he to'oma tcaq'a n!a'an.
+Odongo sa Apiyo ǃxoana ǀxoa sa ba. Sa se ǃ'an cansih. ǀOa o tca skore te sin ǃ'o te si u se sih txunsin. Ha ǃxoana tjuǀ'hoa kxae ǁ'au he to'oma tcaq'a nǃa'an.
 
 ##
-Ondongo sa Apiyo !kasih n|ang khama sa te ka ua sa txun. Gǀua o kxaice sa ǁkaeǁkae ǀ'an sa txun ua tju|oh. Si!a |oa tza g|ua toa te nǂoahn ǁaq'in n!a'an ko ca tciooa.
+Odongo sa Apiyo ǃkasih nǀang khama sa te ka ua sa txun. Gǀua o kxaice sa ǁkaeǁkae ǀ'an sa txun ua tjuǀho. Siǃa ǀoa tza gǀua to'a te nǂoahn ǁaq'in nǃa'an ko can tci ooa.
 
 ##
-N!o;oma n!o'oma, si!a nǁahn, tju|ho te u |xoa si!a ba uto ko n!om g!orisih,n!arih ǂa'un !hamh kota ti!ahinasih. Si!a nǁaqara utosi sa si!a ǂuan te ge'e.
+Nǃo'oma ko ǀama ǁua, siǃa nǁahn tjuǀho te u ǀxoa siǃa ba uto ko nǃom gǃorisih, nǃarih ǂaun tzi ǃhamh kota tiǃahinasih. Siǃa nǁaqara utosi sa siǃa ǂuan te ge'e.
 
 ##
-ǁAma ka dinn!ang da'abi ǁ'hui te kare tza.
+ǁAma ka din nǃang da'abi ǁ'huin te kare tza.
 
 ##
-Ba gaqmtsau Ondongo kota Apiya ka si tsia tju|ho. Sa ho sa txun Nyar-Kanyada! Ha koh o dshaua g|aoh he |'hom.
+Ba gaqmtsau Odongo kota Apiyo ka si tsia tjuǀho. Sa ho cua sa txun Nyar-Kanyada, ko ǂua ǃo ka ha cua ǃaihn din te can. Ha koh o dshaua gǀaoh he ǀ'hom.
 
 ##
-Nyar-Kanyada nǂai ǁau tzi si!a ko tjun|ang te si!a ge'e ka dxjani ka zoq'uin. Ha !omasin !kasih n|ang te sa |'an ha ko xaro sa ǁama dorpa khoea. ''Ondongo koe nǁae, ''A'a,mi xaro o kxaice! ''Apiyo koe nǁae.
+Nyar-Kanyada nǂai ǁau ntzi siǃa ko tjunǀang te siǃa ge'e ka dxjani ka zoq'uin. Ha ǃomasin ǃkasih nǀang te sa ǀ'an ha ko xaro sa ǁama dorpa khoea." Odongo koe nǁae. "A'a, mi xaro o kxaice!" Apiyo koe nǁae.
 
 ##
-ǁAma ka ha !'oa xaro toa Nyar-Kanyada |'an |xae ko ha !omasih ko !'hao tciooa.
+ǁAma ka ha ǃ'oa xaro toa Nyar-Kanyada ǀ'an ǀxae ko ha ǃomasih ko ǃ'hao tciooa.
 
 ##
-ǁAma Ondongo kota Apiyo g!a'ia tzi. Sa !xoe dhadhaba kota tzamamh.
+ǁAma Odongo kota Apiyo gǃa'ia tzi. Sa ǃxoe dhadhaba kota tzama mh.
 
 ##
-Sa ǂxuru !ahin ka khu taqma g!u!ka.
+Sa ǂxuru ǃahain ka khu taqma gǃu ǃka.
 
 ##
-Ka khoe kxoni sa ua !aoh ǁ'a sa g!ae 'm g|u 'm-a. Sa |oa 'm toan te ǁ'huin te kare tza!
+Ka khoe kxoni sa ua ǃaoh ǁ'a sa gǀae 'm gǀu 'm-a. Sa ǀoa 'm toan te ǁ'huin te kare tza!
 
 ##
-|Am-a ǁua,da'abi ǁ'a hi ba nǁahn |xoa da'abi ko sih txun te ua dorpa te si!a sin ge |xoa si!a txun Nyar-Kanyada.
+ǀAm-a ǁua, da'abi ǁ'a hi ba nǁahn ǀxoa da'abi ko si txun te ua dorpa te siǃa sin ge ǀxoa siǃa txun Nyar-Kanyada.
 
 ##
-Ondongo sa Apiyo huia sa tcun ko !aoh tcia sih. Sa za g!u te du da'a. Sa ǁkaeǁkae khukhun!uusi te khau n!uubu ko ǁxara n!ang.
+Odongo sa Apiyo huia sa txun ko ǃaoh tciasi. Sa za gǃu te du da'a. Sa ǁkaeǁkae khukhu nǃuusi te khau nǃuubu ko ǁxara nǃang.
 
 ##
-Nyar-Kanyada n!aroh ha !omasi ko marisoan n|oan ka 'm |xoa !ha. Ha nǂaisea sa ko tca sa o n|oan g!aq'i ka 'm |xoa ǁ'aua ku'u ha |'ae.
+Nyar-Kanyada nǃaroh ha ǃomasi ko marisoan nǀoan ka 'm ǀxoa ǃha. Ha nǂaisea sa ko tca sa o nǀoan gǃaq'i ka 'm ǀxoa ǁ'aua ku'u ha ǀ'ae.
 
 ##
-N!ooma n|ui Ondongo ǁae gumi te ua tzi te g|ae nǂai 'm. Te hi !aah g!a'ama !aoha to'oma si. Te farama kxao taun |xoa Ondongo. Te ko ha te nǂai 'm a ha ǁxara ko gumi. |am-a toa ǁ'a ha dinn!anga okaa,!hoanma toa du te gumi ka |oa ce ka g!a'ama tih.
+Nǃooma nǀui Odongo ǁae gumi te ua tzi te gǀae nǂai 'm. Te hi ǃaah gǃa'ama ǃaoha to'oma si. Te farama kxao taun ǀxoa Odongo. Te ko ha te nǂai 'm a ha ǁxara ko gumi. ǀAm-a to'a ǁ'a ha dinnǃanga okaa, ǃhoanma to'a du te gumi ka ǀoa ce ka gǃa'ama tih.
 
 ##
-|Am dore ǁua, da'abi u |xoa Nyar-Kanyada ko ǁ'amakhoea. Ha koh kxae n!u'ubu sa o nǂaiǁ'ama gasi, zo kota gǂoah. Apiyo ko kaice are !oa ǁ'ama kxaosi ko ka ǂania. Ongongo paka khoe ko kasi khuian khoe. ǁ'amakxoasi ǁ'ama.
+ǀAm dorea ǁua, da'abi u ǀxoa Nyar-Kanyada ko nǂaiǁ'amakhoea. Ha koh kxae nǃu'ubu sa o nǂaiǁ'ama gasi, zo kota gǂoah. Apiyo ko kaice are ǃoa ǁ'ama kxaosi ko ka ǂania. Odongo paka tcisa ǁ'amakxoasi ǁ'ama.
 
 ##
-|Ama-a o toan dinsi si!a tcam ǁkae ti. Te sa hui txun ka nǁaq'ara |'an mari sa ha hoa ǁ'amakhoea.
+ǀAma-a o toansi siǃa tcam ǁkae ti. Te sa hui sa txun ka nǁaq'ara ǀ'an mari sa ha hoa ǁ'amakhoea.
 
 ##
-Xabe kua okaa skore !'oan te da'abi ǂ'aun ua dorpa. Nyar-Kanyada |'an Ondongo ko ǁah te |'an Apiyo ko jesima. Te |'u |'an sa ko n!ama 'm-a.
+Xabe kua okaa skore ǃ'oan te da'abi ǂ'aun ua dorpa. Nyar-Kanyada ǀ'an Odongo ko ǁah te ǀ'an Apiyo ko jesima. Te pakah ǀ'an sia ko nǃama 'm-asi.
 
 ##
-Ka ha ba ce ǁ'a ha g|ae n|hui sa,sa |oa kare. Sa |xom Nyar-Kanyada te ko ha ǁxam si!a ko dorpa. Te ha zo'oma te ko, ''Mi kaice gǂah ǂaua dorpa. Mi !hai itsa ka itsa ce tsia mi ko tju|ho
+Ka sa ba ce gǀae ǁ'a ha gǀae nǀhui sa, sa ǀoa kare nǁah. Sa ǀxom Nyar-Kanyada te ko ha ǁxam siǃa nǀang siǃa ua dorpa. Te ha zoma te ko, "Mi kaice gǂah ǂauan dorpa. Mi ǃhaia itsa ko ka itsa ce tsia mi ko tjuǀho."
 
 ##
-Ondongo sa Apiyo waqntsa n!ahma g|aoha ha te ko ǁau ge.
+Odongo sa Apiyo waqntsa nǃahma gǀaoha ha te ko ǁau ge.
 
 ##
-Ka Ondongo sa Apiyo ce ua skore sa g|ae !oa sa ǂarasih ko |xoa o tju|ho ga. Da'abi gesi ǂ'ang te ko dorpa |xoa te jan. Xabe si!a gesin ko tju|ho |xoa te jan. Xabe si!a waqnhe zaihn te ko Ondongo kota Apiya kxae txun jan.
+Ka Odongo sa Apiyo ce ua skore sa gǀae ǃoa sa ǂarasih ko ǀxoa o tjuǀho ga. Da'abi gesi ǂ'ang te ko dorpa ǀxoa te jan. Xabe siǃa gesin ko tjuǀho ǀxoa te jan. Xabe siǃa waqnhe zaihn te ko Odongo kota Apiyo kxae txun jan.
 
 ##
 * License: [CC-BY]

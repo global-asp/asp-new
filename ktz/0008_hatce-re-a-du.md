@@ -1,28 +1,28 @@
-# Hatcera a du?
+# Hatce re a du?
 
 ##
 Mi ge'e.
 
 ##
-Ha wi.
+Ha ui.
 
 ##
-Mi //'am.
+Mi ǁ'am.
 
 ##
-Ha g!kun.
+Ha gǃkun.
 
 ##
-Ha !'au.
+Ha ǃ'au.
 
 ##
 Mi mani.
 
 ##
-Ha ≠ae≠ae.
+Ha ǂaeǂae.
 
 ##
-Hatcere a du?
+Hatce re a du?
 
 ##
 * License: [CC-BY]

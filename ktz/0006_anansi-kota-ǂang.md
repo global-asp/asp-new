@@ -1,22 +1,22 @@
 # Anansi kota ǂ'Ang
 
 ##
-Kuri sa o kxaice ju ǀoa !'han tcisi. Ju /oa !'han ǁxara,kana g!ai !xasi,kana !agsi kuru ǀxoa. !Xua o Nyame gea n!a'an kxae ǂ'ang waqnsa o kxaǀho masi. Ha ǁaea ha ko kxo n!ang.
+Kuri sa o kxaice ju ǀoa ǃ'han tcisi. Ju ǀoa ǃ'han ǁxara, kana gǃai ǃxaisi, kana ǃaqsi kuru ǀxoa. ǃXu o Nyame gea nǀa'an kxae ǂ'ang waqnsa o kxaǀho masi. Ha ǀ'ua ha ko gǂkakxo nǃang.
 
 ##
-ǀAmnǀui, Nyame ǀǀae te ko ha te ǀ'an Anansi ko kxoa o ǂ'angsi ga. ǀAmnǀui waqnhe ha se kxo n!ang,ha n!aroh tci nǀhuia o ka ze. Te ka ko ho ka ǀ'ae te jan!
+ǀAm nǀui, Nyame ǁ'ae te ko ha te ǀ'an Anansi ko kxoa o ǂ'angsi ga. ǀAm nǀui waqnhe ha se kxo nǃang, ha nǃaroh tci nǀhuia o ka ze. Te ka koh ho ka ǀ'ae te jan!
 
 ##
-Anansi !ka ǂxansi, ''ǂ'Ang te ko, ''Mi ǀǀua kxoa ke ko !ahin !'o koa gǂa'in. Ka kxoe ka mi nǀaesi !'han ka tciooa!'' Ha tani ǂ'anga ha du, Ha ǁ'angǁua kxo ko ha g!u,te coa te ǂxuru !ahin. Te ka gǀaoh ko ǂxuru ǀxoa kxo ko ha g!u ka ha kare ǂxuru ha g!xoasi !'ae khama ka te !'ang kxo.
+Anansi ǃka ǂxansi, "ǂ'ang te ko, Mi ǁua kxoa ke ko ǃahin ǃ'o koa gǂa'in. Ka kxoe ka mi nǀaesi ǃ'han ka tciooa!" Ha tani ǂ'anga ha du, Ha ǁ'ang ǁua kxo ko ha gǃu, te coa te ǂxuru ǃaihn. Te ka gǀaoh ko ǂxuru ǀxoa kxo ko ha gǃu ka ha kare ǂxuru ha gǃxoasi ǃ'ae khama ka te ǃ'ang kxo.
 
 ##
-ǁ'ae waqnke ǂ'aun ka Anansi ǁ'a !'han ǁua !ahin!'o ka se nǁhoo khoe. Ha ko, '' kare soan ka a ǁ'ang ǁua kxo ko ha !'o ka ǂxuru ǀxoa?'' Anansi nǁuri te ǂxuru ǀxoa kxoa kxaea ǂ'ang ko ka n!ang,te sin ǀ'ae ka o ǂ'ang ǀ'hoan.
+ǁ'A woaqn to'a Anansi ǁ'a ha ǃ'han nǃun te se ǃ'an ha ko ǃaihn ǃ'o khoea. Ha ko, "ka re ca soahn ko ka a ǁ'ang ǁua kxo ko a ǃ'o he ǂxuru ǀxoa?" Anansi ǁua kxoa ǁae ǁ'ai kosin ǂ'ang kxae ko ha ǃ'o te ka kaice soahn ǀ'an ǂxuru.
 
 ##
-Koara ǁ'ae ha kua o koa !'aiceke ko !ahin !'o. ǁama ha n!omtsau te ǂ'ang, " Mi ǂ'aun ka mi o ka kxao. Xabe mi !'han kxae tahn mi ko ǂ'ang!" Anansi tauna ka khoea te n!oan nǂhao kxo ko kxaǀho.
+Ko ǁ'aea koara nǃangsi ha gea ǃaihn ǃ'o. Te nǃom tsau te ǂ'ang, "Mi nǀe'esi ku ǂ'aun kxae ǁ'ae, te mi ǃ'han tia kaa kxae ǂ'ang tahn mi!" Anansi koh ho ha ǀ'ae te taun te nǃo'oan khauru gǂkakxo ko kxaǀho.
 
 ##
-Te ka nǂhao te sarakhoe ko kxa ǀho. Te ǂ'ang toa ka khoara ǀ'an ju waqnhe. Te ka o tca ju o n!aroha g!ai !xaisi,kuru !agsi te cete du tci gesin sa ju du.
+Te ka nǂhao te sarakhoe ko kxa ǀho. Te ǂ'anga to'a ka khoara ǀ'an ju waqnhe. Te ka o tca ju o nǃaroha gǃai ǃxaisi, kuru ǃaqsi te cete du tci gesin sa ju du.
 
 ##
 * License: [CC-BY]

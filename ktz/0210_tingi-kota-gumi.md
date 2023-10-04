@@ -1,37 +1,37 @@
 # Tingi kota gumi
 
 ##
-Tingi !xoana /xoa ha txun.
+Tingi ǃxoana ǀxoa ha txun.
 
 ##
-Ha !'uin /xoa ha txun ko gumi.
+Ha ǃ'uin ǀxoa ha txun ko gumi.
 
 ##
-/Am-n/ui sondasi tsiglae.
+ǀAm-nǀui sondasi tsigǀae.
 
 ##
-Si!a /'huicoe gumi te u /xoa.
+Siǃa ǀ'huicoe gumi te u ǀxoa.
 
 ##
-Tingi sa ha txun !aah te g/ae tcxoma.
+Tingi sa ha txun ǃaah te gǀae tcxoma.
 
 ##
-Sa u te g/ae tcxoma tzi //ama //'akoa ko ua g/u.
+Sa u te gǀae tcxoma tzi ǁama ǁ'akoa ko ua gǀu.
 
 ##
-Te //ama //'aka sondasie ce glae.
+Te ǁama ǁ'aka sondasie ce gǀae.
 
 ##
-Txun g!am Tingi ko !aihn n!uubu !ka.
+Txun gǃam Tingi ko ǃaihn nǃu'ubusi ǃka.
 
 ##
-Sonda n/ui //ua ha ko ha /kai g!oq te ha /oa kokxoni.
+Sonda nǀui ǁu ha ǀkai gǃoq te nǃae nǀang.
 
 ##
-Ka sa se he sa koqe, sa g!ai.
+Ka sa se he sa koqe, Tingi sa ha txun gǃai.
 
 ##
-Sa ko ≠ha te g!a'ama !aoh.
+Sa ko ǂha te gǃa'ama ǃaoh.
 
 ##
 * License: [CC-BY]

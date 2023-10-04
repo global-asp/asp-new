@@ -1,34 +1,34 @@
-# Mama llxukxams
+# Mama ǁxukxams
 
 ##
-Mama llxara koh kaice jan, l'uisaun, g‡u'u, kosin madika disin. Te ka sa koh kaice jan o llxukxam. Mama koh kxae !oma sin sa ‡hai, Mi koh sin !'han tca mi hin te o jua ha kaice are ko !ka n!ang khoea. ll'Ae gesin ha !'au ua mi ko ha !aoh. Ha xabe cete ge ka !oa mi ko tcimh sa o !ka n!ang gasi. Te tci nle'e nlui koh ge te ha loa !oa mi: ko koa ha n‡ai n!oma llxukxam.
+Mama ǁxara koh nǂai area khoe ko ju ǂ'angsi, ka ǃ'aihn ǁa'aǃ'au, gǂu'u, kosin madika disin. Te ka sa koh kaice jan o ǁxukxam. Xabesin mama koh kxae ǃoma sin sa ǂhai, Mi koh sin ǃ'han tca mi hin te o jua ha kaice are ko ha ǃka nǃang khoea. ǁ'Ae wece ha ku ǃ'au ua mi ko ha ǃaoh. Ha xabe cete ge ka ǃoa mi ko tcimh sa o ǃka nǃang gasi. Te tci nǀe'e nǀui koh ge te ha ǀoa ǃoa mi: ko koa ha nǂai nǃoma ǁxukxam.
 
 ##
-lAm nlui mi hoa !auh n!a'an !xum ka l'ae he n!uan tzi ko mama !aoh. Te ka mi tsisa'a tca ka o, " lloaqcea mi ho ce o, " marapa !auha o mi ma". !auh !'om, ll'akaa llxukxam n!u'ubusi gea he o ka sa mama ku mania ll'ae koh ll'ae. Mi koh loa !'han tca n!u'ubu sa ke nlla. " N!u'ubu sa ke re du hatce, Mama ?" Mi tsisa'a. lloaqce nle'ea mi ho ll'akaa o, " ka o mi marapa n!u'ubuasi".
+ǀAm nǀui mi hoa ǃauh nǃa'an ǃxum ka ǀ'ae he nǃuan tzi ko mama ǃaoh. Te ka mi tsisa'a tca ka o, ǁoaqce nǀe'ea mi ho ce o, "nǀom ǃauha o mi ga." ǃAuh ǃ'om, ǁ'akaa ǁxukxam nǃu'ubusi gea he o ka sa mama ku mania ǁ'ae koh ǁ'ae. Mi koh kare ǃ'han tca nǃu'ubu sa ke nǁa. "Nǃu'ubu sa ke re du hatce, Mama?" Mi tsisa'a. ǁOaqce nǀe'ea mi ho ǁ'akaa o, "ka o mi nǀom nǃu'ubuasi."
 
 ##
-Ka koh o !ka nl'ang ko ku se Mama, kosin llxukxam, llxukxam n!u'ubusi kosin !auh n!a'an. Te Mama llkoa ua mi ko mi taqe ko di'isi. " Mama, lxom nlang kxoe mi se tca a oo totoa ka ... " "Nllau n‡ai koara ‡'ang a l'ae, da'ama du tca a !oa a l'ae," ha zaihn. Mi !aah u.
+Ka koh o ǃka nǀ'ang ko ku se Mama, kosin ǁxukxam, ǁxukxam nǃu'ubusi kosin ǃauh nǃa'an. Te Mama ǁkoa ua mi ko mi taqe ko di'isi. "Mama, ǀxom nǀang kxoe mi se tca a oo totoa ka ..." "Nǁau nǂai koara ǂ'ang a ǀ'ae, da'ama du tca a ǃoa a ǀ'ae," ha zaihn. Mi ǃaah u.
 
 ##
-ll'Aea mi ce, Mama n/anga tzi te llae !auh, !kauasi te llxukxam koara. " Mama, kore !auh o..." kore llxukxam o.." Te lloaq ce nle'ea mi ho o, " Ha gea mi marapa ll'a tcisi g!am khoea, Ka koh kaice o !ka ta'am lkau !
+ǁ'Aea mi ce, Mama nǀanga tzi te ǁae ǃauh, ǃkauasi te ǁxukxam koara. "Mama, kore ǃauh o, kore ǁxukxam o, kore o…." Te ǁoaq ce nǀe'ea mi ho o, "Ha gea mi marapa ǁ'a tcisi gǃam khoea." Ka koh kaice o ǃka ta'am ǀkau!
 
 ##
-lAm tsaqn ‡aun, Mama llkoa mi te ko mi u gua ha n‡hao !aihan ko ha tza tjua n!ang. Te tcin to'a he mi oo !'oa tjutzi, llxukxam sa n!um ll'a ha ‡'an g!a'ama mi. Tju n!ang ‡aeh ke o koa kahin Mama marapa !auh n!a'an gea. Ha llau te !xuma ha l'ae ko n‡ahm !'an nlui. Mi !'oan ll'a n‡ahm !'an te ha n‡ai n‡hai mi.
+ǀAm tsaqn ǂaun, Mama ǁkoa mi te ko mi u gua ha nǂhao ǃaihan ko ha tza tjua nǃang. Te tcin to'a he mi oo ǃ'oa tjutzi, ǁxukxam sa nǃum ǁ'a ha ǂ'an gǃa'ama mi. Tju nǃang ǂaeh ke o koa kahin Mama marapa ǃauh nǃa'an gea. Ha ǁau te ǃxuma ha ǀ'ae ko nǂahm ǃ'an nǀui. Mi ǃ'oan ǁ'a nǂahm ǃ'an te ha nǂai nǂhai mi.
 
 ##
-Mama !'au mi te ha dohm tsxana, " Hatce re a ku dua khuin to'a ? Ko coa nlang na mi n‡hao !aihn. " Mi sin di'i te glai lxoa ha n‡hao !aihan. " Hatce a zoma l'an ?" Mama tsisa'a mi. Tsisa'a o ha ga du te ka tama mi ciniha tsa'a llxukxam ‡'an ko ha marapa n!amsi tcisi khoea.
+Mama ǃ'au mi te ha dohm tsxana, "Hatce re a ku dua khuin to'a? Ko coa nǀang na mi nǂhao ǃaihn." Mi sin di'i te gǀai ǀxoa ha nǂhao ǃaihan. "Hatce a zoma ǀ'an?" Mama tsisa'a mi. Tsisa'a o ha ga du te ka tama mi ciniha tsa'a ǁxukxam ǂ'an ko ha marapa nǃamsi tcisi khoea.
 
 ##
-Te lama llua mama l'ho aia, Mi di'd te u g!a'ama ha tju n!ang ll'a mi ce he llau se llxukxam. Ha ‡kuan nlui ho ka l'ae te n!um. Mi gu ka nlui te g!ama mi horokhoe n!angsi. Ko llaea to'a he mi !xum ce !auh, Mi nllhomi ua tju !'o n!ang te glae di'i te 'm ha. Ka o llxukxam sa koh kaice taqin he mi goaq ciniha loa 'm.
+Te nǀma ǁua mama ǀ'ho aia, Mi di'd te u gǃa'ama ha tju nǃang ǁ'a mi ce he ǁau se ǁxukxam. Ha ǂkuan nǀui ho ka ǀ'ae te nǃum. Mi gu ka nǀui te gǃama mi horokhoe nǃangsi. Ko ǁaea to'a he mi ǃxum ce ǃauh, Mi nǁhomi ua tju ǃ'o nǃang te gǀae di'i te 'm ha. Ka o ǁxukxam sa koh kaice taqin he mi goaq ciniha ǀoa 'm.
 
 ##
-Te /ama llua, he mama koh g!a'ama llxara n!ang he ‡hoe n!u'ubu, ha ‡xaun ‡xaunua llxukxam nlo. Ha woaqnsi lloeh n!um. Mi ni koh nllah nlui tsaqn koh tsaqn. Ka mi to'oma gluia tjutzi, Mi tsa'a te mama g!o'oa tzi. Te mi ka sin kare ha g!ama mi horokhoe n!ang ka etsa ‡hoa khoe.
+Te ǀama ǁua, he mama koh gǃa'ama ǁxara nǃang he ǂhoe nǃu'ubu, ha ǂxaun ǂxaunua ǁxukxam nǀo. Ha woaqnsi ǁoeh nǃum. Mi ni koh nǁah nǀui tsaqn koh tsaqn. Ka mi to'oma gǀuia tjutzi, Mi tsa'a te mama gǃo'oa tzi. Te mi ka sin kare ha gǃama mi horokhoe nǃang ka etsa ǂhoa khoe.
 
 ##
-Te lama llua o n‡ai ll'ama lama. Mama n‡uhn te tsau. Ha ll'ae woaqnsi ha llae llxukxam sa n!um kosin madik disin ka ua n‡ai ll'ama khoea. ll'A lama mi loa di'di nlang lho ha. Te tia mi loa ge ‡xan ha ko ll'aea g‡a'in
+Te nǀama ǁua o nǂai ǁ'ama nǀama. Mama nǂuhn te tsau. Ha woaqnsi ha ǁae ǁxukxam sa nǃum kosin madik disin ka ua nǂai ǁ'ama khoea. ǁ'A nǀma mi ǀoa di'di nǀang ǀho ha. Te tia mi ǀoa ge ǂxan ha ko ǁ'aea gǂa'in.
 
 ##
-lAma to'a ll'a g!aoh aia sa mba !au mi, kosin Mama.Mi !'han te ko hatce khoea re. Glua to'a mi cu te tza, Mi !'han tca mi loa ‡'aun ciniha ku dcaa, loa ceka dcaa mama, kana mi n!ausi, xabe o ju nlui woaqnhe.
+ǀAma to'a ǁ'a gǃaoh aia sa mba ǃau mi, kosin Mama. Mi ǃ'han te ko hatce khoea re. Gǀua to'a mi cu te tza, Mi ǃ'han tca mi ǀoa ǂ'aun ciniha ku dcaa, ǀoa ceka dcaa mama, kana mi nǃausi, xabe o ju nǀui woaqnhe.
 
 ##
 * License: [CC-BY]

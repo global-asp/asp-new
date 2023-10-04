@@ -1,33 +1,32 @@
-# T'amsi ≠xanu
+# T'amsi ǂxanu
 
 ##
-Ka !kau
+Ka ǃkau.
 
 ##
-/am khui
+ǀAm khui.
 
 ##
-Maq bahbu
+Maq bahbu.
 
 ##
-G!a!kui gea n/a'an
+Gǃaǃkui gea nǀa'an.
 
 ##
-Ka ≠a'u
+Khoe ǂa'u.
 
 ##
-G!acua
+Gǃa cua.
 
 ##
-G!athara
+Gǃa diih.
 
 ##
-Mi ho g≠uing!aung!aunu
+Mi ho gǂuingǃaungǃaunu.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
 * Translation: Sylvia
-
 * Language: ktz

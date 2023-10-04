@@ -1,25 +1,25 @@
-# Da'ama!oa /k'a /k'ana
+# Da'amaǃoa ǀk'a ǀk'ana
 
 ##
-Mi ≠xai ka du da'a.
+Mi ǂxai ka du da'a.
 
 ##
-Mi n≠ai khuia g!u.
+Mi nǂai khuia gǃu.
 
 ##
-Mi //'hom da'a.
+Mi ǁ'hom da'a.
 
 ##
 Mi honi kxo.
 
 ##
-Mi //xai samende !o.
+Mi ǁxai samende ǃo.
 
 ##
-Mi //ka'a taansi.
+Mi ǁka'a taansi.
 
 ##
-Hatce khoea re mi //koa tca ko g/aoh ko //'aea mi tsihn kui?
+Hatce khoea re mi ǁkoa tca ko gǀaoh ko ǁ'aea mi tsihn kui?
 
 ##
 * License: [CC-BY-NC]

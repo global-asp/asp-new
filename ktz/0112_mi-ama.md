@@ -1,28 +1,28 @@
 # Mi ama
 
 ##
-Mi !aah /xoa ka.
+Mi ǃaah ǀxoa ka.
 
 ##
-Mi khu /xoa ka.
+Mi khu ǀxoa ka.
 
 ##
-Mi djxani /xoa ka.
+Mi djxani ǀxoa ka.
 
 ##
-Mi djxaa /xoa ka.
+Mi djxaa ǀxoa ka.
 
 ##
-Mi khu /xoa ka.
+Mi khu ǀxoa ka.
 
 ##
-Mi //u /xoa ka.
+Mi ǁu ǀxoa ka.
 
 ##
-Mi dz'ang /xoa ka.
+Mi tzaan ǀxoa ka.
 
 ##
-Xabe mi /oa n!ohm /xoa ka.
+Xabe mi ǀoa nǃohm ǀxoa ka.
 
 ##
 * License: [CC-BY-NC]

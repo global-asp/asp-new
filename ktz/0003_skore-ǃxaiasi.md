@@ -1,28 +1,28 @@
-# Skore !xaiasi
+# Skore ǃxaiasi
 
 ##
-Hoqrokhoea he g≠a'in.
+Hoqrokhoea he gǂa'in.
 
 ##
-Jesia he n!a'an.
+Jesia he nǃa'an.
 
 ##
-/Haia he n!a'an.
+ǀHaia he nǃa'an.
 
 ##
-Xorea he....
+Xorea he...
 
 ##
-//ah he tsema.
+ǁAh he tzema.
 
 ##
-Sokisih !o'mh.
+Sokisih ǃoa'mh.
 
 ##
-Xabe g!oeh sa he o hi zesin.
+Xabe gǃoeh sa he o hi zesin.
 
 ##
-si!a too te ≠'aun.
+Siǃa too te ǂ'aun.
 
 ##
 * License: [CC-BY-NC]

@@ -1,25 +1,25 @@
-# Se !hamh
+# Se ǃhamh
 
 ##
-Se !hamh.
+Se ǃhamh.
 
 ##
 Gumi ko, "Baahn."
 
 ##
-Pari ko, "Bee."
+Pari ko, "Meh, meh."
 
 ##
-/Oeh ko, "Hihaqhaq."
+ǀOeh ko, "Hihaqhaq."
 
 ##
-/'hoaqn ko, "//oq'in//oq'in."
+ǀ'hoaqn ko, "ǁoq'inǁoq'in."
 
 ##
 Khukhu ko, "koqkoq."
 
 ##
-G≠huin ko, "Baq'u."
+Gǂhuin ko, "Baq'u."
 
 ##
 Faramakxao ko, "Tsuihtsuih!"

@@ -1,52 +1,52 @@
-# /Ama mi n//ah tju/ho he ua doropa n!a'an
+# ǀAma mi nǁah tjuǀho he ua doropa nǃa'an
 
 ##
-Kobe ma n/ui n!om tsaua e tju/ho te ha sa ku n!aoh g/a'ain ge. Kxa/ho tasa ‡hai g//a /'an ka n!ao. Touts hin ku !'au koa besi ku n‡au ll'a ka !usi.
+Kombi ma nǀui nǃom tsaua e tjuǀho te ha sa nǃaoh gǀa'ain ge. Kxaǀho tcisa ǂ'hai gǁa ǀ'an ka ǀ'aesi nǃao. Nǃarikxaosi hin ku ǃ'au khoesa besisi ku nǂau ǁ'a ka ǃusi.
 
 ##
-Doropa Doropa n!a'an ku n‡au //'hanga!" Mi tsa'a ku Touts !'au. Ka toa koh o besi he mi koh n‡aun ‡xuru.
+"Doropa! Doropa! Nǃa'an ku nǂau ǁ'hanga!" Mi tsa'a ka nǃahrikxaosi ǃ'au. Ka toa koh o besi he mi koh nǂaun ǂxuru.
 
 ##
-Doropa n!a'an besi koh sin kare g!a'in te tia ju ciniha n//uri ‡xuru. Si!a gesin ku paka si!a tusi ko besi ‡a'ban!ang . Te si!a gesin ku paka si!a gasi ko rakasi ko besi n!ang.
+Doropa nǃa'an besi koh sin kare gǃa'in te tia ju ciniha nǁuri ǂxuru. Siǃa gesin ku paka siǃa tcisi ko besi ǂa'banǃang. Te siǃa gesin ku paka siǃa gasi ko rakasi ko besi nǃang.
 
 ##
-Ju zesiin sa kare ‡xaru ku, ‡xabe si!a karatasi ka ku u n/ang /xoa ju n/ui. Dshausi ku du /'an da'abi khoe jansin sa si g!hoa kham n!ama g‡a'in.
+Ju zesiin sa kare ǂxuru ku ǂxabe siǃa karatasi ka ku u nǀang ǀxoa ju nǀui. Dshausa ǁae da'abi toto ǀ'an nǃama gǂa'in.
 
 ##
-Mi //ama n//oq'obe n/ui ka g‡a'in /'u mi /'ae. Jua n/anga mi !'om //ae !kau tcoqtcoqra o n!u'ubu /auhn. Ha g//aba n!ang n/o ‡'angsi, jaa /xan/xana te khoe te ‡'ang /oa g//a taqm.
+Mi ǁama nǁoq'obe nǀui ka gǂka'in ǀ'u mi ǀ'ae. Jua nǀanga mi ǃ'om ǁae ǃkau tcoqtcoqra o nǃu'ubu ǀauhn. Ha gǁaba nǃang nǀo ǂ'angsi, ǁaqma jaa ǀxanǀxana te ha ǂ'angsi ǀoa gǁa taqm.
 
 ##
-Mi //ama n//oqobe te se tzi te ‡'ang tca mi te n//aah mi tju/ho, he o koa mi !'ama. Mi koh ua doropa n!a'an.
+Mi ǁama nǁoqobe te se tzi te ǂ'ang tca mi te nǁaah mi tjuǀho, he o koa mi ǃ'ama. Mi koh ua doropa nǃa'an.
 
 ##
-Tcisi n!ao toan ka /'aesi te wece ‡xuru toan te g!ho. Hawkers ciniha /aun /'ua tcisi ko //ama n//oqbe //'a kxoa ju //'ama. Ju wece koh !'au tcisi /'usi, n!ana ka sa si //'ama .Ka n‡u kxuisi g!a'an mi khoea.
+Tcisi nǃao toan ka ǀ'aesi te ju wece ǂxuru toan te gǃho. ǃAihndinsi nǂaiǁ'amakxaosi ciniha ǁama nǁoqbe ka nǂaiǁ'ama ju ko tcisi. Ju wece koh ǃ'au tcisa si ǁ'ama ǁ'a ka ǃusi. Ka nǂau kxuisi gǃa'an mi khoea.
 
 ##
-Ju ‡xuru //'a si sa /koromh //'ama tchi tcisi si gesin //'ama /kxom/kxom te kua coa te /'om. Te si sa toa he kaa koara mari, n!ana mi , kaasin se ju.
+Jusa ǂxuru ǁ'a si sa ǀkoromh ǁ'ama tchi tciasi, si gesin ǁ'ama ǀkxomǀkxom te kua coa ka ǀ'om. Te si sa toa he ka koara mari, nǃana mi, ka sin se ju.
 
 ##
-Te tcisi du n!ang kaa sin kxuia u te besi kxao sin coa te pinpin , n‡ai sea o tca e!a te kaa u. Tout o ha sin !'au he ko Hawkers g/ai.
+Te tcisi du nǃang ka sin kxuia ko ka besi ku pinpin ha ǀ'ae, nǂai sea ko tca eǃa te ka u. Nǃarikxao ka sin ǃ'au te ko ǃaihn dinsi nǂaiǁ'amakxaosi gǃai.
 
 ##
-Hawkers ku //ahm n//hoo ju besi n/ang //'a kxoe he ha g//ai. Si gesin ku /'an ce ju ko si cintcisi. Te si gesin ko ka te o toansi te ‡'aun !a!a ka //au ho mari.
+ǃAihn dinsi nǂai ǁ'amakxaosi ku ǁahma khoe ǁ'a si gǃaia besi khoea. Si gesin ku ǀ'an cea ju ko si cintchisi. Te si gesin ko ka te o toansi te si ǂ'aun ǃaǃa ka ǁau ho mari.
 
 ##
-Te //'aea besi ka n//ah he g//asi, Mi sin //'hon se khoe //ama n//oqobe. Mi n/a are mi ‡'angsi te ko mi re koma ku /am n/ui sin ce tsi a mi tju/ho.
+Te ǁ'aea besi ka nǁah hi gǁasi, Mi se ǁama nǁoqobe. Mi are mi ǂ'angsi te ko mi re koma ǀam nǀui ce tsia mi tjuǀho.
 
 ##
-Ka !au!uh g!ai okaa khoro n!a'an n‡haoa besi n!ang. Mi /u mi g/a'asi te n!obe g!uu'h.
+Ka ǃauǃuh gǀai oka khoro nǃa'an nǂhaoa besi nǃang. Mi ǀu mi gǀa'asi te nǃobe gǃuu'h.
 
 ##
-Te tia ‡'angsi ce ua tju/ho. Aia re ku jan woa? mi !ha re n/hui mari? mi dshin re n!hae ku sin ‡'ang mi tci //a'asi tcaq?
+Te mi ǂ'angsi tia ce ua tjuǀho. Aia re ku jan woa? Mi ǃhai re gu mari nǀui? Mi dshin re nǃhae ku sin ǂ'ang mi tci ǁa'asi tcaq?
 
 ##
-E!a ce he u mi ‡'ang koa to'a he mi tsa ku !xoana doropa n!ang //'a ka !u. Mi sin te n‡au tsa'a ka !u tot mi sin tza.
+Nǃama nǃang, mi koh ce ǂ'ang totoa doropa nǃa'an ǃu ko koa mi tsu ku ǃxoana. Mi sin ku nǂau tsa'a ka ǃu te sin u tza.
 
 ##
-Ka iri sa o a ‡aun mi ‡xai te ku tsa'a tca ju ku oo ‡xubia he si gesin ce ua mi tju/ho. Mi gu /'hain ma tzema mi ma te khu g/aia besi n!ang.
+Ka iri sa o nexe ǂaun, mi ǂxai te ku tsa'a tca ju ku oo ǂxubia he si gesin ce ua mi tjuǀho. Mi gu mi ǀ'hainma te khu gǀaia besi nǃang.
 
 ##
-Ko ce besi kua za ha ha /'ae. Te kua ce ua //'hai . Tca kaa kaice o tci g/aoha ko mi, o coa n/ang kxoa mi tsu tju.
+Te besia ku ce kua nǃaoh gǃain. Te kua nǃari nǂau ǁ'hai. Tca kaa kaice o tci gǀaoha ko mi, o coa ka kxoa mi tsu tju.
 
 ##
 * License: [CC-BY]

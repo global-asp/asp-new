@@ -1,65 +1,64 @@
-# !Hoan o nǂamma
+# ǃHoan o nǂamma
 
 ##
-Ka o Saterda te Rico u |xoa ha taqe ko dorpa. Ha are g!a’ama dorpa. Dorpa kaice n|ang te kxae tcia o ka !aoh!aoh sih sa ju ku g!u’un.
+Ka o Saterda te Rico u ǀxoa ha taqe ko dorpa. Ha are gǃa'ama dorpa. Dorpa kaice nǀang te kxae tcia o ka ǃaohǃaoh sih sa ju ku gǃu'un.
 
 ##
-Rico ǁae !kau ha taqe g!au. Ju ku haua khoe.
+Rico ǁae ǃkau ha taqe gǃau. Ju ku haua khoe.
 
 ##
-Khoe jan sin sa o nǂaiǁ’ama tciasi sa |’hom ǁ’a ka khoeasi.
+Khoe jan sin sa o nǂaiǁ'ama tciasi sa ǀ'hom ǁ'a ka khoeasi.
 
 ##
-ǂOahmh du |xoa hi |’aesi ko !ahin, nǁobesa kota guquru kuru |xoa hi |aesi ko tarah kota g|xaan sa kxae ǂ’usi kota g|o’o.
+ǂOahmh du ǀxoa hi ǀ'aesi ko ǃahin, nǁobesa kota guquru kuru ǀxoa hi ǀaesi ko tarah kota gǀxaan sa kxae ǂ'usi kota gǀo'o.
 
 ##
-Te ha ǂaeǂae ka. Ju n|ui ku nǂaam ge’e tzima. Ha n!om tsau te ǂaeǂae koa ka ǁama koere ka ǁama?
+Te ha ǂaeǂae ka. Ju nǀui ku nǂaam ge'e tzima. Ha nǃom tsau te ǂaeǂae koa ka ǁama koere ka ǁama?
 
 ##
-Mi cinniha |oa tsa’a jua ku ko nǂaam kxui tca ko n|ang kxui.
+"Mi cinniha ǀoa tsa'a jua ku ko nǂaam kxui," tca ko nǀang kxui.
 
 ##
-Ha n!ang !hara ju ko ǂha. Te ho jua ha hin koh nǂaam,ju |’ua too ma ko mari !aqsih too ma n!unga ha g|a’a n!anga. Xabe ju n|ui |oa du ttca jan.
+Ha nǃang ǃhara ju ko ǂha. Te ho jua ha hin koh nǂaam, ju ǀ'ua too ma ko mari ǃaqsih too ma nǃunga ha gǀa'a nǃanga. Xabe ju nǀui ǀoa du ttca jan.
 
 ##
-!Hoan nǂaam ma koara |xoa ju ko ǁkoa, koara |xoa mari ko ǁkoa,koara |xoa tci n|ui waqnke ko ǁkoa.
+ǃHoan nǂaam ma koara ǀxoa ju ko ǁkoa. Ha koara ǀxoa mari ko ǁkoa. Ha koara ǀxoa tci nǀui waqnke ko ǁkoa. Ha sin kxoa ko mari ǃaq sih ko toh nǃang sih ka ǀ'ua ha ko ha ǀhain nǃang.
 
 ##
-Rico g!u’un !hoan nǂaam ma te ǂ’ang. “ Ha m Khoetca joa” khama Rico cinnaha |oa ǁkae |xoa ju jao. Ha koaq. Ha gu tsxabi ha taqe hoqorokhoe te ǂ’auce tsitsa’a. “ Aia,!hoan toa re jus jao?”
+Rico gǃu'un ǃhoan nǂaam ma te ǂ'ang. "Ha m Khoetca joa" khama Rico cinnaha ǀoa ǁkae ǀxoa ju jao. Ha koaq. Ha gu tsxabi ha taqe hoqorokhoe te ǂ'auce tsitsa'a. "Aia, ǃhoan toa re jus jao?"
 
 ##
-Ha gu ha g!au. “ Eh,” ha mani “Eh, ha jao. Se, ha kxae !ahina !a’u ko ha g!aun!ang. Ju sa jao ǁae !ahin sa !au. Ha nǂaiǁkoa ka ko dom!angsi !’ang tsa’a kota !ansi nǂa’am tsa’a.”
+Ha gu ha gǃau. "Eh," ha mani "Eh, ha jao. Se, ha kxae ǃahina ǃa'u ko ha gǃaunǃang. Ju sa jao ǁae ǃahin sa ǃau. Ha nǂaiǁkoa ka ko domǃangsi ǃ'ang tsa'a kota ǃansi nǂa'am tsa'a."
 
 ##
-Te ha re naun tsia dorpa? Te hare naun !hara ju? Rico tsitsa’a.
+"Te ha re naun tsia dorpa? Te hare naun ǃhara ju?" Rico tsitsa'a.
 
 ##
-Ha taqe ko !oa ha, “ Ha khoetca kxae ju n|uia hui ha ka ha du tcisi.” E !’aua ǁ’a jua ko !’uinkxao.
+Ha taqe ko ǃoa ha, "Ha khoetca kxae ju nǀuia hui ha ka ha du tcisi." E ǃ'aua ǁ'a jua ko ǃ'uinkxao.
 
 ##
-Si!a nǂhao ua jom mh kxa|ho. Traffik da’asi mani n!u’ubu|auhn te utosi n!omtuih te nǂhao kxaosi coa te !xai n!ama.
+Siǃa nǂhao ua jom mh kxaǀho. Traffik da'asi mani nǃu'ubuǀauhn te utosi nǃomtuih te nǂhao kxaosi coa te ǃxai nǃama.
 
 ##
-Se da’a n!u’ubu|auhn. Ka hi ǂoq’i okaa m!a jan te gea koqe te xoana !xai dao. N!ore gesin !ahin kxui nǂai!’han.” Rico ǁ’a ha taqe ko nǁae.” Ka jusa jao tsa’a pip okaa sih !’’han tca dao te koqe te ha ǂ’au !xai dao.
+"Se da'a nǃu'ubuǀauhn. Ka hi ǂoq'i okaa mǃa jan te gea koqe te xoana ǃxai dao. Nǃore gesin ǃahin kxui nǂaiǃ'han." Rico ǁ'a ha taqe koe nǁae. "Ka jusa jao tsa'a pip okaa sih, ǃ'han tca dao te koqe te ha ǂ'au ǃxai dao."
 
 ##
-Si!a g!hoa ǁ’aisi |hoa o !hamh kxa|ho ga te se ju tca sih o nǂhao cua. “ Ju gesin jao te kxae gǂhuin sa !’uin sih, “ Ha taqe ko nǁae. “ Gǂhuin sa toa n!aroh hi |’aesi ǁ’a hi |’uin ju sa jao khoe hi kxaosi. Xabe hi kaice ǂani. !’uin gǂhuin sa |koromh gea Namibia.
+Siǃa gǃhoa ǁ'aisi ǀhoa o ǃhamh kxaǀho ga te se ju tca sih o nǂhao cua. "Ju gesin jao te kxae gǂhuin sa ǃ'uin sih," Ha taqe ko nǁae. "Gǂhuin sa toa nǃaroh hi ǀ'aesi ǁ'a hi ǀ'uin ju sa jao khoe hi kxaosi. Xabe hi kaice ǂani. ǃ'Uin gǂhuin sa ǀkoromh gea Namibia."
 
 ##
-“ Jua jao |oa se TV,” Rico ko nǁae. “ Ha tsa’a TV kota radion,” Rico ǁ’a ha taqe !oa ha. Jusa jao ǂaeǂae tahn jusa se.”
+"Jua jao ǀoa se TV," Rico ko nǁae. "Ha tsa'a TV kota radion," Rico ǁ'a ha taqe ǃoa ha. "Jusa jao ǂaeǂae tahn jusa se."
 
 ##
-Xabe si!a |oa nǁaq’ara ǂxaunusi kota kuantisi,” Rico ko nǁae. “ ǂxaunu gesin |ore hi |’aesi ko jao tciooa. ǁ’ae ǂ’au ka ka o |oresi okaa ka ta o !’hobasi sa kuru ǁxam-a khoe ko ka |’aesi he du letters,ka n!ana kode.
+"Xabe siǃa ǀoa nǁaq'ara ǂxaunusi kota kuantisi," Rico ko nǁae. "ǂxaunu gesin ǀore hi ǀ'aesi ko jao tciooa. ǁ'Ae ǂ'au ka ka o ǀoresi okaa ka ta o ǃ'hobasi sa kuru ǁxam-a khoe ko ka ǀ'aesi he du leters, ka nǃana kode."
 
 ##
-<Translate and delete English text> "How can he read if he can't see?" "He reads with his hands. He feels the raised dots with his fingers, just like you see the letters with your eyes."
-“Ha re noun nǁaq’ara ka ha |oa ho?” Ha nǁaq’ara |xoa ho g!ausi,Ka sin khoe tca toa a se letter ka nǁaqara ǁxam.
+"Ha re noun nǁaq'ara ka ha ǀoa ho?" "Ha nǁaq'ara ǀxoa ho gǃausi, ka sin khoe tca toa a se leters ka nǁaqara ǁxam."
 
 ##
-Rico are ha ǂ’angsi ka ha ǂ’ang ko ju sa jao te dua tcisi lo |am n|ui waqnke, khoe nǂamm ge’e, nǁaq’are.
+Rico are ha ǂ'angsi ka ha ǂ'ang ko ju sa jao te dua tcisi ǀo ǀam nǀui waqnke, khoe nǂamm ge'e, nǁaq'are.
 
 ##
-Ha taqe !oa ha, “Tca kuru ǂ’asara sin o jua jao |oa se te a se,” Mi se, mi se xabe nǂaam ge’e mi |oa du ǂoa jua jao,” Rico zoma.
+Ha taqe ǃoa ha, "Tca kuru ǂ'asara sin o jua jao ǀoa se te a se." "Mi se, mi se xabe nǂaam ge'e mi ǀoa du ǂoa jua jao," Rico zoma.
 
 ##
 * License: CC BY-NC-SA

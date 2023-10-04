@@ -1,47 +1,46 @@
-# N!hai da’asi
+# Nǃhai da'aǃomesi
 
 ##
-N=oahn he coa ll’ae sa koh =xan ko ll’aea !ham-mh kosin ju ko ku !xoana llkae. Te ll’a ll’ae sa ju koh koara tosi ko da’a. Si koh ‘m tci tza’anasi. N!hai nle’esi koh kxae glaoh ko da’a khoea.
+Nǂoahn he coa ǁ'ae sa koh ǂxan ko ǁ'aea ǃha-mh kosin ju ko ku ǃxoana ǁkae. Te ǁ'a ǁ'ae sa ju koh koara tosi ko da'a. Si koh 'm tci tza'anasi. Nǃhai nǀe'esi koh kxae gǀaoh ko da'a khoea.
 
 ##
-Ju kota !hamh ǁkae ǁkae nǀang si du ǂ’ang nǀui. “ M!a re du hatce ka n!hai ǀ’an m!a ko da’a ka m!a nǀoan msi ?” Si tsitsa’a. Si!a ǁ’ae te ko si!a te !hai gǀu ka cocoa ge’e ka ge’e, ka ǁ’am, ka !’au ǁkae ǁkae ju wece.”Hoe djxani ǀxoa e!a. Hoe djxani ǀxoa e!a. Hoe djxani ǀxoa e!a.
+Ju kota ǃhamh ǁkae ǁkae nǀang se du ǂ'ang nǀui. "Mǃa re du hatce ka nǃhai ǀ'an mǃa ko da'a ka mǃa nǀoan msi?" Si tsitsa'a. Siǃa ǁ'ae te ko siǃa te ǃhai gǀu ka cocoa ge'e ka ge'e, ka ǁ'am, ka ǃ'au ǁkae ǁkae ju wece. "Hoe djxani ǀxoa eǃa. Hoe djxani ǀxoa eǃa. Hoe djxani ǀxoa eǃa."
 
 ##
-!Ahm sa ǂhai ǁama tzi te tsi ǁkae ǀxoa si!a. ǁ’a si!a djxani he ge’e. N!hai nǀhui da’a !aihan si te tani. Ha nǁahri te nǁhari. Te ǁ’ae ma tzema g!oh gǀai. N!hai dchun te cete nǀhui ǁ’ai sa !kau te ǀ’u. Da’a coa te ku n!om te ju nǀui woaqn to’a gu da’a !aihan. Ju woaqnsi coa te djxani, te djxani nǁhomi da’a.
+ǃHamh sa ǂhai ǁama tzi te tsi ǁkae ǀxoa siǃa. ǁ'A siǃa djxani he ge'e. Nǃhai nǀhui da'a ǃaihan si te tani. Ha nǁahri te nǁhari. Te ǁ'ae ma tzema gǃoh gǀai. Nǃhai dchun te cete nǀhui ǁ'ai sa ǃkau te ǀ'u. Da'a coa te ku nǃom te ju nǀui woaqn to'a gu da'a ǃaihan. Ju woaqnsi coa te djxani, te djxani nǁhomi da'a.
 
 ##
-!Hai koh !aah te o !ham ma di’i. Te ju !oa ha, “ ǁ’aea ke n!hai ku djxani ǀxoa e!a, a nǀhui ha da’a !aihansi nǀang !aah u.Ha ka ǀoa xoana ka du khama n!hai n!om tsau.
+ǃHai koh ǀxuri te o ǃha ma di'i. Te ju ǃoa ha, "ǁ'aea ke nǃhai ku djxani ǀxoa eǃa, a nǀhui ha da'a ǃaihansi nǀang ǃaah u." Ha ka ǀoa xoana ka du khama nǃhai nǃom tsau.
 
 ##
-N!hai ge’e tsi n!a’an. Mi khoea ka ǀoa o tih. Mi koara tih. Mi sin ‘m ǀxoa a ko !kui, Mi sin ‘m a xabe !kui koara.Mi koara tih. E!a wece o ‘msi ko mi khoea.
+Nǃhai ge'e tzi nǃa'an. "Mi khoea ka ǀoa o tih. Mi koara tih. Mi sin 'm ǀxoa a ko ǃkui, mi sin 'm a xabe ǃkui koara. Mi koara tih. Iǃa wece o 'msi ko mi khoea."
 
 ##
-ǂAqai ku !aah te ho ha ǀ’ae te khu tca di’i.Ju !oa ha, ǁ’aea n!hai djxani he ge’e ǀxoa e!a, a ǂ’aun tsxatsxabi ha da’a !aihansi nǀang !aah u.
+ǂAqai ku ǃaah te ho ha ǀ'ae te khu tca di'i. Ju ǃoa ha, "ǁ'aea nǃhai djxani he ge'e ǀxoa eǃa, a ǂ'aun tsxatsxabi ha da'a ǃaihansi nǀang ǃaah u."
 
 ##
-ǁ’Ae si!a djxanihe ge’e, ǂaqai tsxatsxabi !aiansi te khu te g!a’ama ǁxao. XAbe ǁoeh n!hai koe nǁae, “ Hatce khoea re mi ǀoa tsa’a ha g!oqbug!oqbu kxui ko ha ǀkaisi taqm kxui ko mi !’ n!ang. 
+ǁ'Ae siǃa djxanihe ge'e, ǂaqai tsxatsxabi ǃaiansi te khu te gǃa'ama ǁxao. Xabe ǁoeh nǃhai koe nǁae, "Hatce khoea re mi ǀoa tsa'a ha gǃoqbugǃoqbu kxui ko ha ǀkaisi taqm kxui ko mi ǃ'o nǃang?"
 
 ##
-N!hai mani te se tca ǂaqai ǁae ha da’a !aihansi he ku o !aah g!a’ama ǁxao,ǁama ha nǁomg!xa ǂaqai,te gu te nǀhui coea ha da’a !aihansi. ǀAma, n!hai cete ge’e tzi n!a’an.
+Nǃhai mani te se tca ǂaqai ǁae ha da'a ǃaihansi he ku o ǃaah gǃa'ama ǁxao, ǁama ha nǁomgǃxa ǂaqai, te gu te nǀhui coea ha da'a ǃaihansi. ǀAma, nǃhai cete ge'e tzi nǃa'an.
 
 ##
-Te ju gomagoma khoe. Si!a ko, “ Ya kxoe m tsitsa’a ǀ’au. Ha tzema te cete di’di.” ǀ’Au. “ si!a koh koe nǁae, ǁ’Aea ke n!hai djxani he ge’e ǀxoa m!a ko khuinke, a nǀhui ha da’a !aihansi nǀand !aah u.
+Te ju gomagoma khoe. Siǃa ko, "Ya kxoe m tsitsa'a ǀ'au. Ha tzema te cete di'di." "ǀ'Au," siǃa koh koe nǁae, "ǁ'Aea ke nǃhai djxani he ge'e ǀxoa mǃa ko khuinke, a nǀhui ha da'a ǃaihansi nǀang ǃaah u."
 
 ##
-ǁAea si!a gea da’a tzi he djxani nǁhomi da’a, ǀ’Au tsxatsxabi da’a !aiahnsi te !aah g!a’am ǁxao. Xabe n!hai ko, “ Hatce re mi ǀoa tsa’a ha ǂaun kxui n!ana kaq. Ha mani te nǁomg!xa ha ǁ’a ǀ’au ma te nǀhuia ha ko da’a !aihansi te tani tsia ha ko da’a tzi.
+ǁAea siǃa gea da'a tzi he djxani nǁhomi da'a, ǀ'Au tsxatsxabi da'a ǃaiahnsi te ǃaah gǃa'ama ǁxao. Xabe nǃhai ko, "Hatce re mi ǀoa tsa'a ha ǂaun kxui nǃana kaq?" Ha mani te nǁomgǃxa ha ǁ'a ǀ'au ma te nǀhuia ha ko da'a ǃaihansi te tani tsia ha ko da'a tzi.
 
 ##
-Te n!hai cete ge’e tzi n!a’an.” Mi koara tih. Mi koara tin nǀui.Mi sin ‘m ǀxoa a ko !kui.Mi ‘m a xabe ka a kxae !kui. Khama i!a o mi ‘msi..
+Te nǃhai cete ge'e tzi nǃa'an. "Mi koara tih. Mi koara tih nǀui. Mi sin 'm ǀxoa a ko ǃkui. Mi 'm a xabe ka a kxae ǃkui. Khama iǃa o mi 'msi."
 
 ##
-“Eeh,“ ju koe sea khoe, !Hama tcia ne hui m!a? Dsuu ha !omsi gǂa’ian, m!a tsitsa’a ha. Si!a nǂoahn dsuu ko ǁ’a ǂ’anga, Te ha tsxatsxabu n!hai da’a !aihansi te !aah.
+"Eeh," ju koe sea khoe, "ǃHama tcia ne hui mǃa? Dsuu ha ǃomsi gǂai'an, mǃa tsitsa'a ha." Siǃa nǂoahn dsuu ko ǁ'a ǂ'anga, Te ha tsxatsxabu nǃhai da'a ǃaihansi te ǃaah.
 
 ##
-N!hai ko, “ Hatce mi ǀoa tsa’a dohma n!a’a he ge’ea mi !’on n!ang ko koa !’aice ke? “
-Ha se nǀǀhokhoe te ho dsuu te nǁom g!xa 
+Nǃhai ko, "Hatce mi ǀoa tsa'a dohma nǃa'a he ge'ea mi ǃ'o nǃang ko koa ǃ'aice ke?" Ha se nǁhokhoe te ho dsuu te nǁom gǃxa.
 
 ##
-Ka |’aema gǂa’in ku ǂaun, n!hai ce te tsi gǀae te ǀho nǂai sea tca ha te ǁhuin. “ ǁAma ǀama he khoea, “ ha ko, “ Mi ǁa’ike sin nǁah i!a nǀui. Mi !aqe i!a ka !xoe i!a ka ‘m i!a ! “ Te ka o tcin n!hai ǁa’ike oo ge ǀxoa ju woaqnsi he o si horekxao he kahin ju ǁa’ike kxae gǀaoh ko da’a khoea.
+Ko ǁ'aema gǂa'in ku ǂaun, nǃhai tsi gǀae ǀxoa ǀhoa ǁhuin. "ǁAma ǀama he khoea," ha ko, "Mi ǁa'ike sin nǁah iǃa nǀui. Mi ǃaqe iǃa ka ǃxoe iǃa ka 'm iǃa!" Te ka o tcin nǃhai ǁa'ike oo ge ǀxoa ju woaqnsi he o si horekxao he kahin ju ǁa'ike kxae gǀaoh ko da'a khoea.
 
 ##
 * License: [CC-BY]

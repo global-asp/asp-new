@@ -1,28 +1,28 @@
-# G!oa !ahmh
+# Gǃoa ǃahmh
 
 ##
-!Xo n/e'e g/ae tchi g!u.
+ǃXo nǀe'e gǀae tchi gǃu.
 
 ##
-≠Oah tsan g/ae tchi g!u.
+ǂOah tsan gǀae tchi gǃu.
 
 ##
-/Ao n!ani kota tzama sa o bine xabe cete g/ae tchi g!u.
+ǀAo nǃani kota tzama sa o bine xabe cete gǀae tchi gǃu.
 
 ##
-Mpala sa !hung!au kota /'hoaqn sa o !hung!au kota tci n/e'e n≠hao ua g!u khoea.
+Impala sa ǃhungǃau kota ǀ'hoaqn sa o ǃhungǃau kota tci nǀe'e nǂhao ua gǃu khoea.
 
 ##
-/oeh!'hau!'hau sa !hung!au kota tci tsan !aah ua g!u khoea.
+ǀOehǃ'hauǃ'hau sa ǃhungǃau kota tci tsan ǃaah ua gǃu khoea.
 
 ##
-Dxai sa !hung!au kota tci n!ani djxa g!u.
+Dxai sa ǃhungǃau kota tci nǃani djxa gǃu.
 
 ##
-N!hai n/e'e g!xa n!aih ha xabe kare tchi. Ha joe re koaq n!hai.
+Nǃhai nǀe'e gǃxa nǃaih ha xabe kare tchi. Ha joe re koaq nǃhai?
 
 ##
-!Xo n/e'e tchi /xoa n!hai ko g!u.
+ǃXo nǀe'e tchi ǀxoa nǃhai ko gǃu.
 
 ##
 * License: [CC-BY]

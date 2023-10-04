@@ -1,40 +1,40 @@
 # Tom ǁxukxam nǂaiǁ'ama kxao
 
 ##
-Tom ǁae tan o ǁxukxam n!o'omasi ga.
+Tom ǁae tan o ǁxukxam nǃumasi ga.
 
 ##
-Tom ua khoe n!a'an o nǂaiǁ'ama khoea ǁ'a ha gǀae nǂaiǁ'ama ǁxukxam.
+Tom ua khoe nǃa'an o nǂaiǁ'amasi ǁ'a ha u nǂaiǁ'ama ǁxukxam.
 
 ##
-Ju sa gea nǂaiǁ'ama khoea ǁ'ama n!o'omada'a.
+Ju sa gea nǂaiǁ'amasi ku ǁ'ama nǃumada'a.
 
 ##
-Xabe ju nǀuia ǁ'ama Tom ǁxukxam si koara. Si ǁ'ama dshausih khoea.
+Xabe ju nǀuia ǁ'ama Tom ǁxukxamsi koara. Si kare dshausi khoea ǁ'ama.
 
 ##
-''E!a juasi khoea okaa ju sa o," dshausi nǀanga khoe nǂaiǁama n!o'omada'a,'' ju ko, !'hoan tcia nere he? ju tsitsa'a
+"Eǃa juasi khoea, dshausi nǀanga khoe nǂai ǁama nǃuma da'a," ju ko. "ǃ'Hoan tcia nere he?" Ju tsitsa'a.
 
 ##
-Tom /oa ǂani. Ha !'au, ''ǁ'ama mi //xukxamasi! //Ama mis //xukxamsi taq'i sa o mi masi!''
+Tom ǀoa ǂani. Ha ǃ'au, "ǁ'ama mi ǁxukxamasi! ǁAma mi ǁxukxam taq'i sa o mi masi!"
 
 ##
-Dashau nǀui gu g!xa ǁxukxam tan gea tan n!aan,n!ang. Ha ge te se ǁ'a ǁxukxam sa ko ǂ'auce n!angsi.
+Dashau nǀui gu gǃxa ǁxukxam ǁxuma gea tan nǃang. Ha ǂ'auce ce ǁxukxams.
 
 ##
 Dshau ǁ'ama ǁxukxam.
 
 ##
-Jusa ǂhai tsia ǁ'amakhoea. Si!a ǁ'ama Tom ǁxukxamsi te 'm ha.
+Jusa hai tsia ǁ'ama khoea. Siǃa ǁ'ama Tom ǁxukxamsi te 'm ha.
 
 ##
-Kua okaa tahn !ae !xaua. To g!oa mari sa ha ho.
+Nǃoosi, tan ǃae ǃxaua. Tom gǃoa mari sa ha ho.
 
 ##
-ǁama Tom ǁ'ama gǂoah kota xai. Ha ǀ'ua ka ko tan n!ang.
+ǁAma Tom ǁ'ama gǂoah, zo kota xai. Ha ǀ'ua ǁ'a tcisa ko tan nǃang.
 
 ##
-Tom ǁua tan ko ha nǀai te ua tju.
+Tom ǃura tan ko ha nǀai ka nǂau tjuǀho.
 
 ##
 * License: [CC-BY]

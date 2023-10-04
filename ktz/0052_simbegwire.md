@@ -1,57 +1,56 @@
 # Simbegwire
 
 ##
-ll'Aea Simbegwire ll'a ha taqe !ai, ha !ka koh n!obe ta'am lkau. Simbegwire ll'a ha ba koh nllauri ha glaohsi ll'a ha !'uin ha ‡xae. Koqesi si n!aroh !kanla'ng ko xabe ka Simbegwire ll'a ha taqe koara. N!oma nlui woaqke si!a g!ho ka n‡oahn gla'an!ang tciasi. G!oa nlui woaqnke si!a du l'a si!a woaqnsi ko g!oa 'ma. Ka si!a llka toan tansi, Simbegwire ll'a ha ba ku huia ha ko tjulho llkoasi.
+ǁ'Aea Simbegwire ǁ'a ha taqe ǃai, ha ǃka koh nǃobe ta'am ǀkau. Simbegwire ǁ'a ha ba koh nǁuri ha ko ha gǀaohsi ǁ'a ha ǃ'uin ha ǂxae. Koqesi si nǃaroh ǃka nǀa'ng ko xabe ka Simbegwire ǁ'a ha taqe koara. Nǃoma nǀui woaqnke siǃa gǃho ka nǂoahn gǀa'anǃang tciasi. Gǃoah nǀui waqnke siǃa du ǀ'a siǃa waqnsi ko gǃoah 'ma. Ka siǃa ǁka toan tansi, Simbegwire ǁ'a ha ba ku huia ha ko tjuǀho ǁkoasi.
 
 ##
-lAm nlui, Simbegwire ll'a ha ba tsi ‡aeh ‡oan tca llxoasi ha oo tsi ‡aeha. " Mi da'ama kore a o ?" ha koe !'au. Simbegwire !aah glaea ha ba. Ha n!omtsau ko ka ha se he ha llae dshau g!au. " Mi kare ka a ho ju glaoha he, mi da'ama. Anita hin he," ha zoma te koe nllae.
+ǀAm nǀui, Simbegwire ǁ'a ha ba tsi ǂaeh ǂoan tca ǁxoasi ha oo tsi ǂaeha. "Mi da'ama kore a o?" ha koe ǃ'au. Simbegwire ǃaah gǀaea ha ba. Ha nǃomtsau ko ka ha se he ha ǁae dshau gǃau. "Mi kare ka a ho ju gǀaoha he, mi da'ama. Anita hin he," ha zoma te koe nǁae.
 
 ##
-"Ehee Simbegwire, a ba n‡oahn mi ko tcisa sa ‡hai ko a tci oa, "Anita koe nllae. Te ha tia loa zoma nlang gu dshauma g!au. Simbegwire ll'a ha ba zoquin te ha !ka tsau. Ha n‡oahn tca si!a n!ani ku oo !xoana llkaea, kosin tca lxoa ku oo jan l'an si!a. "Mi ‡xae mi ‡um tca a te zaihan Anita ko tca ha te o a taqe ha koe nllae.
+"Ehee Simbegwire, a ba nǂoahn mi ko tcisa ǂ'hai ko a tci oa," Anita koe nǁae. Te ha tia ǀoa zoma nǀang gu dshauma gǃau. Simbegwire ǁ'a ha ba zoquin te ha ǃka tsau. Ha nǂoahn tca siǃa nǃani ku oo ǃxoana ǁkaea, kosin tca ǀxoah ku oo jan ǀ'an siǃa. "Mi ǂxae mi ǂum tca a te zaihan Anita ko tca ha te o a taqe, "ha koe nǁae.
 
 ##
-Simbegwire ll'a ha lxoa mani. Ha lla'ike koara ll'aea o ha ba ku nlang lxoa ko n!oma. Anita ku l'an ha ha ko llkoa sa ‡hai ko !aoh, ka n‡ai ll'huin ha ka ha loa du ha skore llkoasi ko g!oasi. Ka ha 'm toan g!oa 'ma ha sin to ka ua ha g!ahm. Ka nlaea n‡ai nla'nga ha !ka o n‡ahma kxae ‡'usi he ha taqe l'an ha. Simbegwire ll'a ha ba ko loa ho tca ha ‡xae !ka te ta'am lkau.
+Simbegwire ǁ'a ha ǀxoah mani. Ha ǁa'ike koara ǁ'aea o ha ba ku nǀang ǀxoa ko nǃoma. Anita ku ǀ'an ha ko ǁkoa sa ǂhai ko ǃaoh, ka nǂai ǁ'huin ha ka ha ǀoa du ha skore ǁkoasi ko gǃoahsi. Ka ha 'm toan gǃoa 'ma ha sin to ka ua ha gǃahm. Ka nǀaea nǂai nǀa'nga ha ǃka o nǂahma kxae ǂ'usi he ha taqe ǀ'an ha. Simbegwire ǁ'a ha ba ko ǀoa ho tca ha ǂxae ǃka te ta'am ǀkau.
 
 ##
-Ka n!ui sa lkoromh ‡aun, Simbegwire ll'a ba !oa sa te ko ha te kxaice nllah tjulho ka u ko ll'aema !oma. "Mi u llkoasi tcioa,"ha koe nllae. " Mi !'han tca itsa te llau !'uian khoe."Simbegwire l'hotzana, ha ba loa !'han. Anita sin loa nlla tci nlui. Ha !ka xabe koh loa nla'ng.
+Ka nǃui sa ǀkoromh ǂaun, Simbegwire ǁ'a ba ǃoa sa te ko ha te kxaice nǁah tjuǀho ka u ko ǁ'aema ǃoma. "Mi u ǁkoasi tcioa," ha koe nǁae. "Mi ǃ'han tca itsa te ǁau ǃ'uian khoe." Simbegwire ǀ'hotzana, ha ba ǀoa ǃ'han. Anita sin ǀoa nǁa tci nǀui. Ha ǃka xabe koh ǀoa nǀa'ng.
 
 ##
-Tcisi loa llau jan l'an Simbegwire. Ka ha loa du toan !aoh llkoasi okaa ha nlla ha ka n ‡am ha. Te g!oa 'ma, ha dshau ku 'm 'ma n!a'an. Ka nllah l'an ha ko 'ma tzema. Ko glu g!oah woaqnsi Simbegwire g/ae tjin tjin ka llahllah ha l'a ko ha taqe n‡ahm ka cu.
+Tcisi ǀoa ǁau jan ǀ'an Simbegwire. Ka ha ǀoa du toan ǃaoh ǁkoasi, he nǁan gǃxa ha tih, Anita nǂam ha. Te gǃoa 'ma, ha dshau ku 'm 'ma nǃa'an. Ka nǁah ǀ'an ha ko 'ma tzema. Ko gǀu gǃoah waqnsi Simbegwire gǀae tjin tjin ka ǁahǁah ha ǀ'ae ko ha taqe nǂahm ka cu.
 
 ##
-lAm nlui, Simbegwire lata ‡xai ko ha g!ahm !'o. "A o dshauma lkanlkana!" Anita koe !'au. Te llhai khaurua Simbegwirre ko g!ahm !'o. Te n‡ahm ‡am ha lkai !'uru te llaq'in n!ang tsaqn.
+ǀAm nǀui, Simbegwire ǀoa ǂxai ko ha gǃahm ǃ'o. "A o dshauma ǀkanǀkana!" Anita koe ǃ'au. Te ǁhai khaurua Simbegwire ko gǃahm ǃ'o. Te nǂahm ǂam ha ǀkai ǃ'uru te ǁaq'in nǃang tsaqn.
 
 ##
-Simbegwire !ka koh ho te ta'am lkau. Ha ll'ae te ko ha te ku glaia !aoh. Ha nlhui ha taqe n‡ahm !abisi, te nlui 'm mh gesin te u. Ha n!uan n!ama ha ba koh n‡au llkoasi he n!uan.
+Simbegwire ǃka koh ho te ta'am ǀkau. Ha ǁ'ae te ko ha te ku gǀaia ǃaoh. Ha nǀhui ha taqe nǂahm ǃabisi, te nǀhui 'm mh gesin te u. Ha nǃuan nǃama ha ba koh nǂau ǁkoasi he nǃuan.
 
 ##
-Te ka ka tsia g!oa, ha ‡xuru !aihan g‡a'in ko g!u tzi, te dua g!ahm ko !aihn ll'hausi. Te ka du l'an tza, ha ge'e: "Aiia, Aiia, Aiia, a nlla mi. A nllah me te sin loa ce lam nlui. Mba lla'ike loa are me. Aia, ll'aea nere a ce tsi? A nllah mi.
+Te ka ha tsia gǃoah, ha ǂxuru ǃaihan gǂa'in ko gǃu tzi, te dua gǃahm ko ǃaihn ǁ'hausi. Te ka du ǀ'an tza, ha ge'e: "Aiia, Aiia, Aiia, a nǁah mi. A nǁah me te sin ǀoa ce nǀm ǀam. Mba ǁa'ike ǀoa are me. Aia, ǁ'aea nere a ce tsi? A nǁah mi."
 
 ##
-Te n!oma, Simbegwire cete ge'e ll'a ge'ea. Te ll'ae dshausi tsi ‡aeha dohm, ll'a si llka !kasi si ku tsa'a !ka ta'am lkau ge'ea llama !aihan g‡a'in nlai !ka. Si koh ‡'ang te ko ka te !aihn n!u'ubusi sa !aihn te tia ge te du tca si llkoa. Te llau te ‡ae‡ae ll'a ge'ea.
+Te nǃoma, Simbegwire cete ge'e ǁ'a ge'ea. Te ǁ'ae dshausi tsi ǂaeha dohm, ǁ'a si ǁka ǃxaisi si ku tsa'a ǃka ta'am ǀkau ge'ea ǁama ǃaihan gǂa'in nǀai ǃka. Si koh ǂ'ang te ko ka te ǃaihn nǃu'ubusi sa ǃaihn te tia ge te du tca si ǁkoa. Te ǁau te ǂaeǂae ǁ'a ge'ea.
 
 ##
-Dshau he se !'an !aihn !'o. Te ka ha se dshauma kota n‡ahm !abia kxae ‡'usi, ha tjin, " Simbegwire mi !o ll'a ‡xae!" Dshau gesin n!om tuih lxoa tcisi llkae te si!a hui ha ko !aihn khaurua. Ha llaq n!ama ha te kare ha !ka n‡ai nla'anga.
+Dshaua he se ǃ'an ǃaihn ǃ'o. Te ka ha se dshauma kota nǂahm ǃabia kxae ǂ'usi, ha tjin, "Simbegwire mi ǃo ǁ'a ǂxae!" Dshau gesin nǃom tuih ǀxoa tcisi ǁka te siǃa hui ha ko ǃaihn khaurua. Ha ǁaq nǃama ha te kare ha ǃka nǂai nǀa'anga.
 
 ##
-Simbegwire ll'a ha gllaq gu ha te tani ua ha ko ha !aoh. Ha l'an ha ko 'msa ll'un,te llallah glluan ha ko g!ahm ko ha taqe n‡ahm. Glu to'a Simbegwire sin tjin n‡ai tza ha l'ae. Ka koh gla'a !usa ku llae khauru ha. Te ha hin !'han tca ha gllaq te ku llau ka !'uin ha.
+Simbegwire ǁ'a ha gǁaq gu ha te tani ua ha ko ha ǃaoh. Ha ǀ'an ha ko 'msa ǁ'un, te ǁahǁah gǁxuan ha ko gǃahm ko ha taqe nǂahm. Gǀu to'a Simbegwire sin tjin nǂai tza ha ǀ'ae. Ka koh gǀa'a ǃusa ku ǁae khauru ha. Te ha hin ǃ'han tca ha gǁaq te ku ǁau ka ǃ'uin ha.
 
 ##
-ll'Ae Sinbegwire ll'a ha ba ce tsia tjulho, ha glae ho te da'ama tju n!ang sin l'hoan. " Hatce re !an Anita ?" Ha tsisa'a lxoa !ka khui. Dshau !oa sara ha ko tca da'ama te !aah u. Mi kare ka ‡um mi, ha koe nllae. Mi hin koh kare ka ha sin to. " Simbegwire ll'a ha ba llama !aoh te tsin llxam ll'a dohma khoea. Te sin ‡aun ua ha dshin tjulho ll'a ha glae tsisa'a ha he ko ha re ca ho Simbegwire.
+ǁ'Aea Simbegwire ǁ'a ha ba ce tsia tjuǀho, ha gǀae h te da'ama tju nǃang sin ǀ'hoan. "Hatce re ǃan, Anita?" Ha tsisa'a ǀxoa ǃka khui. Dshau ǃoa sara ha ko tca da'ama te ǃaah u. "Mi kare ka ha ǂum mi," ha koe nǁae. "Xabe mi hin koh kare ka ha sin to." Simbegwire ǁ'a ha ba ǁama ǃaoh te tsin ǁxam ǁ'a dohma khoea. Te sin ǂaun ua ha tshin tjuǀho ǁ'a ha gǀae tsisa'a ha he ko ha re ca ho Simbegwire.
 
 ##
-Simbegwire koh ge te kui lxoa ha tsoma sin. ll'aea ha hoha ba ko koa ‡xan. Ha koh koqa tca ha te taun, Te kahin ha !aah g!a'am tju n!ang ll'a ha glae djxoma. Te ka ha ba glae ha ko, "Simbegwire, a ho l'ae a l'ae ko a taqe jan. He o ha nle'ea are he ku llau ‡ae ‡ae a. Mi !ka kaice n/a'ng lxoa a te mi are a. Si!a tsa'a khoe tca Simbegwire te ku sin !xoan lxoa ha gllaq ko tca ha ku oo karea.
+Simbegwire koh ge te kui ǀxoa ha tsoma sin. ǁ'Aea ha hoha ba ko koa ǂxan. Ha koh koqa tca ha te taun, Te kahin ha ǃaah gǃa'ama tju nǃang ǁ'a ha gǀae djxoma. Te ka ha ba gǀae ha ko, "Simbegwire, a ho ǀ'ae a ǀ'ae ko a taqe jan. He o ha nǀe'ea are he ku ǁau ǂae ǂae a. Mi ǃka kaice nǀa'ng ǀxoa a te mi are a." Siǃa tsa'a khoe tca Simbegwire te ku sin ǃxoana ǀxoa ha gǁaq ko tca ha ku oo karea.
 
 ##
-Ha lla'ike lho ho ko lam wece. Xabe lloeh sa Anita ku llkae. Ha gu Simbegwire g!au te g‡ara llae l'an. " llae na tcima !o mi koh n!obe du," ha koe tjin. A ku kxoe ka mi cea du se ?" Simbegwire se ha ba lho te ho tca ha ba lho te mani. Te kahin ha ‡'auce te n!un tsi !'ante n!ama Anita.
+Ha ǁa'ike ǀ'hoo ha ko ǀam wece. Xabe ǁoeh sa Anita ku ǁkae. Ha gu Simbegwire gǃau te gǂara ǁae ǀ'an. "ǁae na tcima ǃo mi koh nǃobe du," ha koe tjin. "A ku kxoe ka mi cea du se?" Simbegwire se ha ba ǀho te ho tca ha ba ǀho te mani. Te kahin ha ǂ'auce te nǃun tsi ǃ'an te nǃama Anita.
 
 ##
-Te bekea glae, Anita l'ho Simbegwire, llae lxoa ha tsuma sin kota ha gllaq sin, ko !aoh 'm llkaea. Hatce re jan l'an 'm llkae! Anita toto Simbewire ll'a ha !ka n!ang 'masi, ju nlui woaqn to'a 'm te llka. Te llama da'abi ge te kui te n!ausi ge te n‡oahn. Simbegwire kxae !ka nl'ang te n!un glaoha. Ha ll'ae te ll'ae to'om he n!obe to'om te ha ce ua tjulho ka glae !xoana lxoa ha ba sa taqe gllaq.
+Te bekea gǀae, Anita ǀ'ho Simbegwire, ǁae ǀxoa ha tsuma sin kota ha gǁaq sin, ko ǃaoh 'm ǁkaea. Hatce re jan ǀ'an 'm ǁkae! Anita toto Simbegwire ǁ'a ha ǃka nǃang 'masi, ju nǀui waqn to'a 'm te ǁka. Te ǁama da'abi ge te kui te nǃausi ge te nǂoahn. Simbegwire kxae ǃka nǀ'ang te nǃun gǀaoha. Ha ǁ'ae te ǁ'ae to'om he nǃobe to'om te ha ce ua tjuǀho ka gǀae ǃxoana ǀxoa ha ba sa taqe gǁaq.
 
 ##
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
 * Translation: Fanie Cwi
-
 * Language: ktz
