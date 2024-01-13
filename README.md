@@ -44,6 +44,7 @@ sw | Kiswahili
 ti | Tigrinya
 toi | ChiTonga
 tum | Tumbuka
+xog | Lusoga
 yo | Yoruba
 zne | Zande
 zu | Zulu
