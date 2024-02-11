@@ -1,19 +1,19 @@
-# Mamvekelo
+# Zomverera
 
 ##
 Mutima wanga umvela zinthu zambiri.
 
 ##
-Ndimvera kukondwera ngati ambuye atiuza nthano.
+Ndimvera kukondwera ngati ambuye atiuza nthano m'madzulo.
 
 ##
-Ndimvera kukhala wopusa ngati ndisewera ndi mzanga.
+Ndimvera kukhala wosangalala ngati ndisewera ndi mzanga.
 
 ##
-Ndimvera kukalipa ngati atate akamba kuti alibe ndalama.
+Ndimamvera kuipa ngati atate anena kuti alibe ndalama.
 
 ##
-Ndimvera wokondewa ngati amai andikumbatira.
+Ndimvera wokondedwa ngati amai andikumbatira.
 
 ##
 * License: [CC-BY-NC]

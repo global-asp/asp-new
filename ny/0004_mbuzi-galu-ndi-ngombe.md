@@ -1,28 +1,28 @@
 # Mbuzi, Galu ndi Ng'ombe
 
 ##
-Mbuzi, Galu ndi Ng'ombe anali abwenzi kwambiri. Tsiku lina, anapita paulendo ndi galimoto.
+Mbuzi, Galu ndi Ng'ombe anali mabwenzi kwambiri. Tsiku lina, anapita paulendo ndi galimoto.
 
 ##
-Pamene anafika pothela pa ulendo wao, Mtekenya anawafunsa kuti alipile ndalama. Ng'ombe inalipila.
+Pamene anafika pothera pa ulendo wao, mtekenya anawafunsa kuti alipire ndalama. Ng'ombe inalipira yake.
 
 ##
-Galu analipila ndalama yopitilila chifukwa analibe ndalama yokwanila muyeso wa mtengo.
+Galu analipira ndalama yopitirirapo chifukwa analibe ndalama yoyenera.
 
 ##
-Mtekenya anali pafupi kupasa Galu chenji yake pamene mbuzi inathawa kopanda kulipira.
+Mtekenya anali pafupi kupatsa Galu cenji yake pamene mbuzi inathawa kopanda kulipira.
 
 ##
-Mtekenya anakalipa kwambiri. Anayenda popanda kupasa Galu chenji yake.
+Mtekenya anakalipa kwambiri. Anayenda popanda kupatsa Galu chenji yake.
 
 ##
-Ndiye chifukwa chake,Galu amathangila galimoto kusonjera amene ali ndi chenji yake.
+Ndiye cifukwa cake, ngakhale lero lomwe, Galu amathamangira galimoto kuona mkati ndi kupeza mtekenya amene ali ndi cenji yake.
 
 ##
-Mbuzi imathawa ikamvera galimoto. Imaopa kuti angaimangise chifukwa sanalipile mtekenya.
+Mbuzi imathawa ikamvera galimoto. Imaopa kuti angaimangidwe chifukwa siinalipire mtekenya.
 
 ##
-Ndipo Ng'ombe siimaikako nzelu ngati galimoto ili kubwela. Ng'ombe imayenda pang'ono pang'ono chifukwa adziwa kuti analipila ndalama mokwana.
+Ndipo Ng'ombe siimaikako nzelu ngati galimoto iri kubwela. Ng'ombe imayenda pang'ono pang'ono cifukwa idziwa kuti inalipira ndalama mokwana.
 
 ##
 * License: [CC-BY]

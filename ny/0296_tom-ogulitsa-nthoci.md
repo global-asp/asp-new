@@ -1,34 +1,34 @@
-# Tom wogulisa nthochi
+# Tom ogulitsa nthoci
 
 ##
-Tom wanyamula nswanda.
+Tom amanyamula nswanda.
 
 ##
 Tom amapita ku msika kukagulisa nthochi.
 
 ##
-Anthu pa msika agula ziphaso.
+Anthu pa msika agula ziphatso.
 
 ##
-Koma palibe amene agula nthochi za Tom. Asankha kugula nthochi za azimai.
+Koma palibe amene agula nthoci za Tom. Asankha kugula zipatso za azimai.
 
 ##
-"M'mudzi mwathu, azimai okha ndio amene agulitsa nthochi," anthu amatelo. "Kodi uyu ndi mwamuna wotani?" Anthu afunsa.
+"M'mudzi mwathu, azimai okha ndio amene agulitsa nthochi," anthu amatero. "Kodi uyu ndi mwamuna wotani?" Anthu afunsa.
 
 ##
-Koma Tom saleka. Apunda, " Gulani nthochi zanga! Gulani nthochi zanga zakupsya komanso zonzuna.
+Koma Tom saleka. Apunda, "Gulani nthoci zanga! Gulani nthoci zanga zakupsya komanso zonzuna"
 
 ##
-Mkazi umozi atengapo nthochi zogula. Ayanganisisa nthochi mwachidwi.
+Mkazi umozi atengapo nthochi zogula. Ayanganitsitsa nthoci mwacidwi.
 
 ##
-Mzimai agula nthochi.
+Mzimai agula ntochi.
 
 ##
-Anthu ambiri abwera kusitolo. Agula nthochi za Tom ndi kuzidya.
+Anthu ambiri abwera kusitolo. Agula nthoci za Tom ndi kuzidya.
 
 ##
-Posachedwa, zonse zatha. Tom awerengera ndalama zomwe wapanga.
+Posacedwa, zonse zatha. Tom awerengera ndalama zomwe wapanga.
 
 ##
 Pambuyo pake, Tom agula sopo, shuga, ndi mkhate. Aika zinthu mu nswanda yake.

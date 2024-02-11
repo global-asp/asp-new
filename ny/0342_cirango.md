@@ -1,40 +1,40 @@
-# Chilango
+# Cirango
 
 ##
-Tsiku lina, amai anatenga ziphaso.
+Tsiku lina, amai anatenga zipatso zambiri.
 
 ##
-"Tipemphako ziphaso" Tinapempha. "Tizadya ziphaso usiku walelo" Anatelo amai.
+"Ndipotani tingakhale ndi zipatso?" Tifunsa. "Tidzadya zipatso usiku walero" Anatero amai.
 
 ##
-M'bale wanga Tahim ndiozikonda. Alawa zonse ziphaso. Adya ziphaso zambiri.
+M'bale wanga Rahim ndi ozikonda. Alawa zipatso zonse. Adya ziphaso zambiri.
 
 ##
-"Onani zimene Rahim anachita!" Anakuwa m'bale wanga wamg'ono. "Rahim ndiwamakani ndi wozikonda" Ndinatelo.
+"Onani zimene Rahim anacita!" Anafuula m'bale wanga wamg'ono. "Rahim ndiwamakani ndiponso ozikonda" Nditero.
 
 ##
-Amai ndiokalipa chifukwa cha Rahim.
+Amai ndiokalipa cifukwa ca Rahim.
 
 ##
-Naifenso ndife okwiya chifukwa cha Rahim. Koma Rahim sapepesa.
+Naifenso ndife okwiya cifukwa ca Rahim. Koma Rahim sapepesa.
 
 ##
-"Kodi simuzamupasa chilango?" Afunsa m'bale wamng'ono.
+"Kodi simuzamupatsa cirango?" Afunsa m'bale wamng'ono.
 
 ##
-"Rahim, posachedwa apa, uzachita chisoni", amuchenjeza amai.
+"Rahim, posacedwa apa, uzacita cisoni," amucenjeza amai.
 
 ##
-Rahim wayamba kumvela kudwala.
+Rahim wayamba kumva kudwala.
 
 ##
-"M'mimba mwanga mwayamba kuwawa" awelewetsa Rahim.
+"M'mimba mwanga mwayamba kuwawa" anong'oza Rahim.
 
 ##
-Amai anadziwa kuti izi zizachitika. Chipaso chimupasa chilango Rahim!
+Amai anadziwa kuti izi zidzacitika. Cipatso cimupatsa cirango Rahim!
 
 ##
-Pambuye pake, Rahim apepesa kwa ife. "Sindizakhalanso wazikonda tele," alonjeza. Ndipo timukhulupirira tonse.
+Pambuyo pake, Rahim apepesa kwa ife. "Sindidzakhalanso wazikonda tere,". Alonjeza. Ndipo timukhulupirira tonse.
 
 ##
 * License: [CC-BY]

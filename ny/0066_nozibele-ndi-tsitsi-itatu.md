@@ -1,43 +1,43 @@
-# Nozibele ndi Sisi Litatu
+# Nozibele ndi Tsitsi itatu
 
 ##
 Kalekale, atsikana atatu anayenda kukathyola nkhuni.
 
 ##
-Tsikuli linali lakupya ndipo iwo anaganiza kuti akamyaye kumtsinje. Anasowera ndikutaya manzi nakumyaya mumanzi.
+Tsikuli linali lakupya ndipo iwo anaganiza kuti akasambirekumtsinje. Anasowera ndikuthirana madzi ndi kusambiram'madzi.
 
 ##
-Mwazizi, anaona kuti kwafipa. Anathamangila kumunzi.
+Mwadzidzi, anaona kuti nthawi yatha. Anathamangira kumudzi.
 
 ##
-Pamene anali pafupi na nyumba, Nozibele anaika kwanja yake pakhosi. Anaiwala ndendele mwina mkanda wovala pakhosi. Anapempha anzace kuti abwelele kumtsinje kukatenga ndendele. Koma anzace anati kwafipa kwambiri.
+Pamene anali pafupi ndi kunyumba, Nozibele anaika dzanja lake pakhosi. Anaiwala ndendele yovala pakhosi. "Conde tiyeni tibwerele!" Anapempha anzace. Koma anzace anati kwafipa kwambiri.
 
 ##
-Nozibele anabwelera kumtsinje okha. Anaipeza ndendele nathamangila kunyumba koma anasowa mumudima.
+Nozibele anabwerera kumtsinje yekha. Anaupeza mkanda wake nathamangira kunyumba koma anasowa mumudima.
 
 ##
-Kuyangana patali, anaona ungwelu ucokela pakanyumba kang'ono. Anathamangilako nagogoda pacitseka.
+Kuyangana patali, anaona kuwala kucokera pakanyumba . Anathamangirako nagogoda pacitseka.
 
 ##
-Anadabwa kuona galu isegula citseko ndiponso inati, "Ufuna cani?" "Ndasowa ndifunako malo kogona" anatelo Nozibele. "Ngena, ngati sungena nizakuluma" Inatelo galu. Nozibele anangena.
+Modabwisa,anaona galu akusegula citseko ndikunena, "Ufuna cani?" "Ndasowa ndifunako malo kogona" anatero Nozibele. "Lowa, ngati siuteroa ndizakuluma!" Anatero galu. Nozibele analowa.
 
 ##
-Galu inati, "Ndiphikile" "Sininaphikilepo galu mu umoyo wanga" anatelo Nozibele. "Phika, ngati suphika nizakuluma" Inatelo galu. Nozibele anaphika zakudya zagalu.
+Kenaka Galu anati, "Ndiphikire!" "Sininaphikirepo galu mu umoyo wanga" anayankha Nozibele. "Phika, ngati suphika nizakuluma" Anatero galu. Motero Nozibele anaphika cakudya cagalu.
 
 ##
-Galu inati, "Ndikonzele pogona" Nozibele anati, "Sindinakonzelepo galu pogona mu umoyo wanga" "Ndikonzele pogona, ngati sundikonzela ndizakuluma" Inatelo galu. Nozibele anakonza pogona galu.
+Galu anati, "Ndikonzere pogona!" Nozibele anati, "Sindinakonzelepo galu pogona mu umoyo wanga" "Ndikonzere pogona, ngati sundikonzela ndizakuluma!" Inatelo galu. Nozibele anakonza pogona galu.
 
 ##
-Masiku yonse, anali kuphikira, kupyangila ndi kuwashila galu. Tsiku lina galu anati, Nozibele, ndizayendera anzanga. Pyanga munyuba, phika zakudya, ndiponso undiwashile zinthu zanga ndikalibe kubwelera.
+Masiku onse, anali kuphika, kuphyelerira ndi kuwashira galu. Tsiku lina galu anati, "Nozibele, ndizayendera anzanga. Phyela munyuba, phika zakudya, ndiponso undiwashire zinthu zanga ndikalibe kubwelera."
 
 ##
-Pamane galu inacoka cabe, Nozibele anacosa sisi litatu kucoka kumutu wake. Anaika sisi limodzi pansi pa bedi, yimodzi kumbuyo kwa citseko ndi ina mosungila ng'ombe. Ndiponso iye anathamangila kunyumba mwansanga.
+Pamane galu anangocoka cabe, Nozibele anacotsa tsitsi itatu kucokera m'mutu wake. Anaika tsitsi limodzi pansi pa bedi, limodzi kumbuyo kwa citseko ndi lina mukhoira ya ng'ombe. Kenaka anathamangira kunyumba mwamsanga ndithu.
 
 ##
-Pamene Galu inabwelera, inasakila Nozibele. "Nozibele ulikuti?" Anapunda galu. "Nilikuno kunyansi kwa bedi" Sisi loyamba linayankha. "Nilikuno kumbuyo kwa citseko" Sisi laciwiri linayankha. "Nilikuno kosungila ng'ombe" Sisi lacitatu linayankha.
+Pamene Galu anabwerera, anamsakira Nozibele. "Nozibele ulikuti?" Anafuula galu. "Ndirikuno, pansi pa bedi" Tsitsi loyamba linayankha. "Ndirikuno kumbuyo kwa citseko" Tsitsi laciwiri linayankha. "Ndirikuno kukhoira ya ng'ombe" Tsitsi lacitatu linayankha.
 
 ##
-Gulu inaziwa kuti Nozibele athawa. Gala anathamanga kuyenda kumunzi kwa Nozibele. Koma abale a Nozibele anali kuyembekeza ndi tumitengo tukulutukulu. Galu inabwelela nakuthawa ndiponso ikalibe kuonekelanso kucoka paja.
+Galu anadziwa kuti Nozibele athawa. Galu anathamanga kupita kumudzi kwa Nozibele. Koma abale a Nozibele anali kuyembekezera ndi mitengo ikuluikulu. Galu anabwerera ndikuthawa ndipo akalibe kuonekelanso kucoka pomwepo.
 
 ##
 * License: [CC-BY]

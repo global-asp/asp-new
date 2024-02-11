@@ -1,28 +1,28 @@
 # Zovala za kusukulu
 
 ##
-Iyi delesi ndiyaitali.
+Iyi delesi ndiralitali.
 
 ##
 Iyi Juzi ndiyaikulu.
 
 ##
-Ichi chola ndichacikulu.
+Ichi cola ndicacikulu.
 
 ##
-Iyi beluti ndi...
+Iyi lamba ndi...
 
 ##
-Kasoti ndikakang'ono.
+Kasoti aka ndi kakang'ono.
 
 ##
-Masokisi ndiyafupi.
+Masokisi ndi afupi.
 
 ##
-Koma nsapato ndizanyowani.
+Koma nsapato izi ndizatsopano.
 
 ##
-...zikwana bwino.
+...zikwanira bwino-bwino.
 
 ##
 * License: [CC-BY-NC]

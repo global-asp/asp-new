@@ -1,31 +1,31 @@
 # Ganizo
 
 ##
-Mudzi wanga unali ndi mavuto ambiri. Tinapanga mnyolo omozi kufuna kutunga madzi.
+Mudzi wanga unali ndi mabvuto ambiri. Timaima m’mzere wautali umodzi kutunga madzi pa pompi imodzi.
 
 ##
-Tinayembekezera zakudya zopasiwa ndi ena.
+Tinayembekezera zakudya zoperekedwa ndi ena.
 
 ##
-Tinakhoma manyumba anthu mwamsanga chifukwa choopa akawalala.
+Tinakhoma manyumba athu mwamsanga cifukwa coopa akawalala.
 
 ##
 Ana ambiri analeka sukulu.
 
 ##
-Atsikana anasewenza maganyu m'midzi ina.
+Atsikana ang'ono ang'ono anasewenza maganyu m'midzi ina.
 
 ##
-Anyamata anali kuyendayenda mumidzi ina ndipo ena anali kuchita ganyu m'minda ya ena.
+Anyamata ang'ono ang'ono anali kuyendayenda m'midzi ina ndipo ena anali kuchita ganyu m'minda ya ena.
 
 ##
-Pamene mphepo yakuntha, mapepala opanda nchito anakhalila pa mitengo ndi mipanda.
+Pamene mphepo ikuntha, mapepala opanda nchito anapacikikairpa mitengo ndi mipanda.
 
 ##
-Anthu anadulidwa ndi magalasi oonongeka amane anataidwa mosasamala.
+Anthu anacekedwa ndi magalasi oonongeka amane anataidwa mosasamala.
 
 ##
-Ndipo tsiku lina, pompi inauma ndipo madzi anatha.
+Ndipo tsiku lina, pompi inauma ndipo migomo yathu inalibe madzi .
 
 ##
 Atate anga anayenda khomo ndi khomo kupempha anthu kuti apite ku msonkhano wa m'mudzi.
@@ -34,19 +34,19 @@ Atate anga anayenda khomo ndi khomo kupempha anthu kuti apite ku msonkhano wa m'
 Anthu anasonkhana pansi pa mtengo ukulu ndipo anamvesera.
 
 ##
-Atate anga anaima nati, "Tifunika kusewenzera pamozi kuti tithese mavuto athu."
+Atate anga anaima nati, "Tifunika kusewenzera pamozi kuti tithetse mabvuto athu."
 
 ##
-Wa zaka zisanu ndi zitatu, Juma, omwe anakhala ma nthambi ya mtengo anakuwa nati "Ndingathandize ndi kusesa".
+Juma wa zaka zisanu ndi zitatu, omwe anakhala pa nthambi ya mtengo anakuwa nati "Ndingathandize ndi kusesa."
 
 ##
-Mzimai umozi anati "azimai angasewenze pamozi ndi ine kuti tibyale zakudya."
+Mai m'mozi anati "azimai angasewenze pamozi ndi ine kuti tirime zakudya."
 
 ##
-Bambo wina anaimilila nati "Amuna azakumba chisime."
+Bambo wina anaimirira nati "Amuna azakumba citsime."
 
 ##
-Tonse tinakuwa ndi mau amozi ndikuti, " tifunika kusintha myoyo yathu." Kuchoka pa tsiku lija, tinasewenzera pamozi kuthesa mavuto athu.
+Tonse tinakuwa ndi mau amozi ndikuti, "tifunika kusintha myoyo yathu." Kucoka pa tsiku lija, tinasewenzera pamozi kuthetsa mabvuto athu.
 
 ##
 * License: [CC-BY]

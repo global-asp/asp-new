@@ -1,34 +1,34 @@
 # Nkhuku ndi Nkhwazi
 
 ##
-Panali-panali, nkhuku ndi nkhwazi anali paubwenzi. Anakhala mumutendere ndi nyoni zina. Kulibe kanyoni kamene kanali kumbululuka.
+Panali-panali, nkhuku ndi nkhwazi anali abwenzi. Anakhala mumutendere ndi mbalame zina. Panalibe paiwo amene anali kuuluka.
 
 ##
-Tsiku limodzi, kunali njala kwamene anali kukhala. Nkhwazi anali kuyenda kutali kuti apeze cakudya. Anabwelera olema kwambiri. "Kufunikira njila ina yapafupi mumayendedwe" Nkhwazi inatelo.
+Tsiku lina, kunali njala kudziko. Nkhwazi anali kuyenda kutali kukasaka cakudya. Anabwerako olema kwambiri. "Kufunikira kukhala njira ina yapafupi mumayendedwe" Nkhwazi inatero.
 
 ##
-Mumawa mwace, nkhuku inali ndi cocita. Anayamba kudoba weya wa nyoni iliyonse wamene unagwa. "Tiyeni titungile pamodzi namaweya yamene tili nayo" inatelo nkhuku. "Mwina ici cizakhala capafupi kuyenda".
+Mumawa mwace, nkhuku inali ndi ganizo labwino. Inayamba kutola nthenga za mbalane iriyonse yamene inagwa. "Tiyeni tisokere pamodzi nthenga zamene tiri nazo" inatero nkhuku. "Mwina ici cidzakhala capafupi kuyenda."
 
 ##
-Nkhwazi ndiye anali cabe na nyeleti yotungila pamunzi, iye anayambilira kusoka. Anazipangila maweya yabwino-bwino nakumbululuka pamwamba pa nkhuku. Nkhuku inabweleka nyeleti koma analema kutunga. Anasiya nyeleti yotungila pa kabati ndiponso anayenda kukakonza cakudya ca ana.
+Nkhwazi ndiye anali cabe ndi nsingano yotungira pamudzi, iye anayambirira kusoka. Anazipangira mapiko awiri abwino-bwino nakuuluka pamwamba pa nkhuku. Nkhuku inabweleka nsingano koma analema kutunga. Anasiya nsingano yosokeira pa kabati ndipo anayenda kukakonza cakudya ca ana ake ku khicini.
 
 ##
-Nyoni zina zinamuona nkhwazi kubululuka. Anafunsa nkhuku kuti iwabweleke nyeleti kuti azipangile maphapindo yombululukila nao. Posacedwa, kunali nyoni zambili kumbululuka mumwamba.
+Mbalame zina zinaiona nkhwazi kuuluka. Zinafunsa nkhuku kuti iwabwereke nsingano kuti zipangire mapiko youlukira nao. Mosacedwa, kunali mbalame zambiri kuuluka mumwamba.
 
 ##
-Pamene nyoni yomaliza inabweza nyeleti yotungila, nkhuku siyinaliko. Ana a nkhuku anatenga nyeleti nakuyamba kuisoweletsa. Pamene analema kusowera, anasiya nyeleti mumcanga.
+Pamene mbalame yomalizira inabweza nsingano yosokelira, nkhuku panalibe. Ana a nkhuku anatenga nsingano nakuyamba kusowera nayo. Pamene analema kusowera, anasiya nsingano ija mumcenga.
 
 ##
-Mumazulo, nkhwazi anabwelera. Anapempha nyeleti kuti atunge maweya yamene siyanali bwino kucoka paulendo. Nkhuku inasakila nyeleti pakabati, mophikila, ndi panja pa nyumba. Koma nyeleti sinaoneke.
+Mumazulo, nkhwazi anabwerera. Anapempha nsingano kuti asokere nthenga zimene zinasokomoka paulendo. Nkhuku inasakira nsingano pakabati, mophikira, ndi panja pa nyumba. Koma nsingano sinapezeke.
 
 ##
-"Ndipaseni tsiku limodzi" Nkhuku inapempha nkhwazi. "Kuti mukakonze maweya yanu nakumbululukanso kukasakila cakudya". "Tsiku limodzi cabe" Nkhwazi anatelo. "Ngati siupeza nyeleti, uzanipatsa mwana wako yumozi kukhala malipiro".
+"Ndipatseni tsiku limodzi" Nkhuku inapempha nkhwazi. "Kuti mukakonze phiko lanu ndikuulukanso kukasakira cakudya." "Tsiku limodzi cabe" Nkhwazi anatero. "Ngati siupeza nsingano, uzandipatsa mwana wako m'modzi kukhala malipiro."
 
 ##
-Pamene nkhwazi inabwela tsiku lokonkhapo, anapeza nkhwazi asakila mumucanga kuno nyeleti sanaipeze. Nkhwazi anabwela mwamsanga nakutenga kamwana ka nkhuku kamozi nakuyendanako. Kucoka ija tsiku, nkhwazi ikaonekela cabe, iona nkhuku isakala nyeleti mumicanga.
+Pamene nkhwazi inabwela tsiku lotsatirapo, anapeza nkhuku asakirabe mumcenga, koma nsingano sanaipeze. Nkhwazi anauluka mwamsanga ndikugwira kamwana ka nkhuku kamodzi. Anapita nako kutali. Kucokera nthwiyo, nkhwazi ikaonekela cabe, iona nkhuku isakira nyeleti mumicenga.
 
 ##
-Ngati mudima wa nkhwazi waonekela kucoka kumwamba, nkhuku icenjeza ana ace. "Cokani poonekela". Ndiponso iwo akuyankha, "Sindife oputsa, tizathamanga".
+Ngati mthunzi wa phiko ya nkhwazi waonekela kucoka kumwamba, Nkhuku icenjeza ana ake. "Cokani poonekela." Ndiponso iwo akuyankha, "Sindife oputsa, tizathamanga."
 
 ##
 * License: [CC-BY]

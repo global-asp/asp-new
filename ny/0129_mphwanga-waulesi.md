@@ -4,13 +4,13 @@
 Ndimadzuka ndi kusonkha moto.
 
 ##
-Ndimabwatutsa madzi.
+Ndimawiritsa madzi.
 
 ##
 Ndimadula nkhuni.
 
 ##
-Ndimabvundula madzi yomwe ali pa moto.
+Ndimabvundula m'moto.
 
 ##
 Ndimapsyera munyumba.
@@ -19,7 +19,7 @@ Ndimapsyera munyumba.
 Ndimatsuka mbale.
 
 ##
-Chifukwa nchyani ndimagwira ncthitomwaphanvu ine ndekha... Pamene mphyanga akonda kusewera chabe?
+Chifukwa nciani ndimagwira ncthito mwaphamvu ine ndekha... Pamene mphwanga atanganidwa ndi kusewera cabe?
 
 ##
 * License: [CC-BY-NC]

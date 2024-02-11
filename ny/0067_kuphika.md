@@ -4,25 +4,25 @@
 Ndimashuwa mbatatisi.
 
 ##
-Ndimacheka khabici.
+Ndimaduladula khabici.
 
 ##
-Ndimachosa zakunja za kaloti.
+Ndimapala ma kaloti.
 
 ##
-Ndimasuka kayela.
+Ndimatsuka kayela.
 
 ##
-Ndimacheka matanga.
+Ndimaceka maungu.
 
 ##
-Ndimacheka ndio za sipinachi.
+Ndimaduladula ndio za sipinachi.
 
 ##
-Amai amacheka anyensi.
+Amai amaduladula anyenzi.
 
 ##
-Anyensi imandichosesa misozi ngati yachekedwa.
+Anyenzi imanditulutsa misozi ngati yadulidwa dulidwa.
 
 ##
 * License: [CC-BY-NC]

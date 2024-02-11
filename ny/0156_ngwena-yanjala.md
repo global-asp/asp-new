@@ -1,16 +1,16 @@
 # Ng'wena yanjala
 
 ##
-Panthawi yina, kunali n'gwena yanjala kwambiri.
+Panthawi yina, kunali n'gona yanjala kwambiri.
 
 ##
-Inasakila cakudya mosafulumira ndi mwacetecete. Mosacedwa...
+Inasakira cakudya mosafulumira ndi mwacetecete. Kenako...
 
 ##
-Pow! Ng'wena inagwila!
+Phoo!!! Ng'ona inagwira!
 
 ##
-Kucoka apo, njala yinasila ndiponso, anali osangalala.
+Kucokera apo njala inathira, ndiponso ali osangalala.
 
 ##
 Mpaka akakhalenso ndi njala.

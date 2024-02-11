@@ -7,22 +7,22 @@ Khasu lake linali lalifupi kwambiri.
 Khomo lake linali lalifupi kwambiri.
 
 ##
-Bedi/kama lake linali yalifupi kwambiri.
+Bedi lake linali lalifupi kwambiri.
 
 ##
-Njinga lake linali yalifupi kwambiri.
+Njinga yake inali yaifupi kwambiri.
 
 ##
-Bambo uyu anali wam'tali kwambiri.
+Bambo uyu anali wam'tali kwambiri!
 
 ##
-Anapanga chogwilila khasu chachitali.
+Anapanga mpini wa khasu wautali.
 
 ##
-Anapanga khomo lake kukhala yaitali kwambiri.
+Anapanga mafelemu a zitseko atali kwambiri.
 
 ##
-Anapanga bedi/kama yaitali kwambiri.
+Anapanga bedi lalitali kwambiri.
 
 ##
 Anagula njinga yaitali kwambiri.
@@ -31,7 +31,7 @@ Anagula njinga yaitali kwambiri.
 Anakhala pa m'pando wautali kwambiri. Anadya ndi foloko yaitali kwambiri.
 
 ##
-Anachoka panyumba yake ndipo anakhala ku thengo lalikulu. Anakhala kwa zaka zambiri.
+Anacoka panyumba yake ndipo anakhala ku thengo lalikulu. Anakhala kwa zaka zambiri.
 
 ##
 * License: [CC-BY]

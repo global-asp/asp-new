@@ -1,37 +1,37 @@
-# Ana achikonga
+# Ana aphula
 
 ##
-Tsiku lina, kunali banja lina lokondwera.
+Kale-kale nthawi ina, kunali banja lina lokondwera.
 
 ##
-Sanali kuyambana. Anali kuthandizila makolo ao panyumba ndi kumunda.
+Sanali kuyambana. Anali kuthandiza makolo ao panyumba ndi kumunda.
 
 ##
-Koma sanaloledwe kuyenda pafupi ndi moto.
+Koma sanaloredwe kupita pafupi ndi moto.
 
 ##
-Anali kucita nchito iliyonse usiku. Cifukwa anapandidwa ndi chikonga (wax).
+Anali kucita nchito yonse usiku. Cifukwa anapandidwa ndi chikonga.
 
 ##
-Koma munyamata umodzi anali kufunisitsa kuyenda muzuwa.
+Koma mnyamata umodzi anali kufunitsitsa kuyenda mdzuwa.
 
 ##
-Tsiku lina, kufunisitsa kwake kunayenda pasogolo. Abale ace anamucenjeza...
+Tsiku lina, kufunitsitsa kwake kunakula kwambiri. Abale ace anamucenjeza...
 
 ##
-Koma anacedwa! Anasungunuka muzuwa lakupya kwambiri.
+Koma anacedwa! Anasungunuka mudzuwa lotentha kwambiri.
 
 ##
-Ana achikonga sanakondwele poona m'bale wao asungunika.
+Ana aphula sanakondwele poona m'bale wao asungunika.
 
 ##
-Koma anapangana zocita. Anapanga kanyoni kucoka ku cikonga ca m'bale wao.
+Koma anapangana zocita. Anaumba kambalame kucoka kuphula wa m'bale wao.
 
 ##
-Anapeleka kanyoni m'bale wao pamwamba pa phiri.
+Anapereka m'bale wao mbalame pamwamba pa phiri.
 
 ##
-Pamene zuwa linacoka, kanyoni kanambululuka nakuimba m'mamawa mu zuwa.
+Pamene dzuwa inakwera, kambalame kanauluka ndikuimba m'dzuwa ya m'mamawa.
 
 ##
 * License: [CC-BY]

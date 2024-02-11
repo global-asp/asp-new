@@ -1,28 +1,28 @@
-# Andiswa kaswili wa masowera ampila
+# Andiswa kaswiri wa masowera airmpira
 
 ##
-Andiswa anawonelela anyamata kusowera mpila. Analakalaka kusowera nao. Anapempha asogoleli amasowera ngati angaloledwe kusowera nao.
+Andiswa anapenyerera anyamata akusowera mpira. Analakalaka kusowera nao. Anapempha atsogoleri amasowera ngati angaloledwe kusowera nao.
 
 ##
-Asogoleli amasowera anaika manja yao muchiuno. "Pano pasukulu, anyamata okha ndiye ololedwa kusowera mpila," anatero.
+Atsogoleri amasowera anaika manja yao muciuno cake. "Pano pasukulu, anyamata okha ndiye ololedwa kusowera mpira," anatero.
 
 ##
-Anyamata anamuuza kuti akasowere masowera ampila wam'manja. Ananena kuti mpila wam’manja ndi wa atsikana ndipo mpila wa mendo ndi wa anyamata. Andiswa anakhumudwa.
+Anyamata anamuuza kuti akasowere masowera ampira wamanja. Ananena kuti irmpira wamanja ndi wa atsikana ndipo mpira wa miyendo ndi wa anyamata. Andiswa anakhumudwa.
 
 ##
-Tsiku lotsatila, sukulu inakhala ndi masowera akulu ampila. Asogoleli ampila anadankhawa chifukwa kaswili wao wampila anadwala ndiponso sanakwanise kusewera mpila.
+Tsiku lotsatira, sukulu inakhala ndi masowera akulu ampira. Asogoleri ampira anadankhawa cifukwa katswiri wao wampira anadwala ndiponso sanakwanitse kusewera mpira.
 
 ##
-Andiswa anathamagila kuli asogoleli amasowera ampila kupapata kuti amuvomeleze asowere. Musogoleli sanaziwe chochita. Anaganiza kuti Andiswa angasowere mpila.
+Andiswa anathamagira kwa atsogoleri amasowera airmpira kupapata kuti amuvomeleze asowere. Musogoleli sanadziwe cocita. Anaganiza kuti Andiswa angasowere irmpira.
 
 ##
-Masowera anali obvuta. Kulibe anagolesa kufika pakati panthawi.
+Masowera anali obvuta. Kulibe anagoletsa kufika pakati panthawi yamasewera.
 
 ##
-Munthawi yaciwiri yampila munyamata umodzi anapatsa Andiswa mpila. Musikana anayendesa kukagolesa. Anamenya mpila mwamphamvu nakugolesa kamozi.
+Munthawi yaciwiri yairmpira mnyamata m'modzi anapatsira Andiswa irmpira. Mtsikana anathamanga mwamsanga kupita kugolo . Anamenya mpira mwamphamvu ndikugoletsa cigoli.
 
 ##
-Anthu otamba mpila anakondwela kwambiri. Kuchokera pa tsiku limenelo, atsikana analoledwa kusowera masowera ampila.
+Anthu openyerera irmpira anakondwera kwambiri. Kucokera pa tsiku limenelo, atsikana analoledwa kusewera masowera airmpira pa sukuklu.
 
 ##
 * License: [CC-BY-NC]

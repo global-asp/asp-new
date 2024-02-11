@@ -22,7 +22,7 @@ Kodi ndizawerengera ndani?
 Atate ndi asukulu ndi otangwanika.
 
 ##
-Kodi ndizawerengera ndani? Ndingaziwerengere!
+Kodi ndizawerengera ndani? Ndingaziwerengere ndekha!
 
 ##
 * License: [CC-BY]

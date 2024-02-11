@@ -4,16 +4,16 @@
 Timanja tiwiri togwira.
 
 ##
-Timendo tiwiri tochaira.
+Timiyendo Tiwiri tochaira.
 
 ##
-Timenso tiwiri toyang'anira.
+Timaso tiwiri toyang'anira.
 
 ##
 Timatu tiwiri tomverera.
 
 ##
-Ndi timanja tiwiri tokumbatira.
+Ndi manja awiri okondedwa okumbatira.
 
 ##
 * License: [CC-BY-NC]

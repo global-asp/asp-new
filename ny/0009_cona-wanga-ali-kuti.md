@@ -1,22 +1,22 @@
-# Chona wanga ali kuti?
+# Cona wanga ali kuti?
 
 ##
-Chona wanga ali kuti?
+Cona wanga ali kuti?
 
 ##
-kodi ali panyasi pa kama(bedi)?
+Kodi ali pansi pa bedi?
 
 ##
 Kodi ali pamwamba pa kabati?
 
 ##
-kodi ali kumbuyo kwa mpando?
+Kodi ali kumbuyo kwa mpando?
 
 ##
-Kodi ali pafupi ndi motaila zinyalala?
+Kodi ali pafupi ndi motaira zinyalala?
 
 ##
-Kodi ali mkati mwa nswanda/dengo?
+Kodi ali mkati mwa nswanda?
 
 ##
 Kodi ali pabwalo pa nyumba?

@@ -1,64 +1,64 @@
 # Mwana wa Bulu
 
 ##
-Kanali kamwana kakakazi kang'ono komwe kanaona chinthu cha maonekedwe odabwisa patali.
+Kanali kamwana kakakazi kang'ono komwe kanaona cinthu ca maonekedwe odabwitsa patali.
 
 ##
-Pamane chinthu chinabwela pafupi, anaona kuti anali mzimai ome anali ndi mimba yaikulu.
+Pamane cinthu cinabwela pafupi, anaona kuti anali mzimai omwe anali ndi mimba yaikulu.
 
 ##
-Mwamanyazi koma mopanda mantha, kamwana kayenda pafupi ndi mzimai. "Tifunika kukhala nao pamozi," anthu a kamwana kakazi anavomekezana. "Tizamusunga ndi mwana wake bwino-bwino.
+Mwamanyazi koma mopanda mantha, kamwana kanasendera pafupi ndi mzimai. "Tifunika kuwasunga.," anthu a kamwana kakazi anaganizira. "Tizamusunga ndi mwana wake bwino-bwino.
 
 ##
-Mwana anali pafupi kubadwa. "Kankha!" "Bwelesani zovimba!" "Water!" "Kankhaaaa!!!"
+Mwana anali pafupi kubadwa. "Kankha!" "Bwelesani zovimba!" "Manzi!" "Kankhaaaa!!!"
 
 ##
-Koma pamene anaona mwana wakhanda, aliyense anabwelera m'mbuyo ndi kudabwa. "Bulu?!"
+Koma pamene anaona mwana wakhanda, aliyense analumpha modabwa. "Bulu?!"
 
 ##
-Aliyense anayamba kukangana. "Tinakamba kuti tizamusunga pamozi ndi mwana wake bwino-bwino, ndipo tizachita motero," ena anatero. "Koma azatibweretsera soka!" enanso ananena.
+Aliyense anayamba kukangana. "Tinanena kuti tizasunga make pamozi ndi mwana wake bwino-bwino, ndipo tizacita motero," ena anatero. "Koma azatibweretsera soka!" enanso ananena.
 
 ##
-Chifukwa cha icho, mzimai anasala yekha. Anavutika kuganiza zomwe azachita ndi mwana wodabwisa. Anavutika kuganiza kuti azazichita chani.
+Cifukwa ca ico, mzimai anakhalanso yekha. Anabvutika kuganiza zomwe azacita ndi mwana wodabwisa. Anabvutika kuziganizira cocita..
 
 ##
-Koma pothera, anafunika kuvomela kuti bulu anali mwana wake ndipo anali mai wake.
+Koma pothera, anavomera kuti bulu anali mwana wake ndipo anali mai wake.
 
 ##
-Tsono, ngati mwana anakhala chimozimozi, ndi thupi ing'ono, zinthu zinakakhalako bwino. Koma bulu anakula ndi kukula kufikila nthawi yomwe sankakhala pa mbuyo pa mai wake. Ndipo mukhalidwe wake unasiyana ndi munthu. Amai ake anli olema nthawi zambili komanso aukali. Nthawi zina, anatuma mwana kuchita nchito zomwe zinafunikila kuchitika ndi nyama.
+Tsopano, ngati mwana anakhala cimodzimodzi, ndi thupi ing'ono, zinthu zinakakhalako mosiyana. Koma bulu anakula ndi kukula kufikira nthawi yomwe sankakhala pa msana pa mai wake. Ndipo mkhalidwe wake unasiyana ndi munthu. Amai ake anli olema nthawi zambriri komanso aukali. Nthawi zina, anatuma mwana kucita nchito zomwe zinafunikira kucitika ndi nyama.
 
 ##
-Msokonezo ndi mkwiyo unakula mu mtima wa bulu. Anali kulephela kuchita zilizonse. Analephela kukhali ndi mkhalidwe weni weni. Anali okwiya kotelo kuti, tsiku lina, anamenyesela amai ake pansi.
+Msokonezo ndi mkwiyo unakula mu mtima wa bulu. Anali kulephela kucita zirizonse. Analephela kukhali ndi mkhalidwe weni weni. Anali okwiya kotero kuti, tsiku lina, anamenyela amai ake pansi.
 
 ##
-Bulu anachita manyazi. Anayamba kuthawila kutali komwe angathe kupita.
+Bulu anacita manyazi. Anayamba kuthawira kutali komwe angathe kupita.
 
 ##
-Pa nthawi yamene analeka kuthawa, unali usiku, Bulu anasowa. "Hee, hyu?" anatelo ku mdima. Anafika pamathelo. Anayamba kusanduka. Anagona mu tulo twatukulu twa mavuto.
+Pa nthawi imene analeka kuthamanga, unali usiku, Bulu anasowa. "Hee, hyu?" ananong'oneza ku mdima. Anafika pamathero. Anayamba kusanduka. Anagona mu tulo twatukulu twa mabvuto.
 
 ##
-Bulu anauka ndi kupeza nkhalamba ili kumuyangana. Anayangana mu maso a mdala ndi kuyamba kukhala ndi chiyembekezo.
+Bulu anauka ndi kupeza nkhalamba iri kumuyangana. Anayangana mu maso a nkhalambayo ndi kuyamba kukhala ndi ciyembekezo.
 
 ##
-Bulu afuna kukhala ndi mdala, omwe anamuphunzisa njira zambili zomwe angakhalilemo umoyo. Bulu anamva ndi kuphunzila, chimozi mozi mdala nayenso anamvesera ndi kuphunzila. Anathandizana ndipo anaseka pamozi.
+Bulu anapita kukakhala ndi nkhalamba ija, imene inam'phunzitsa njira zambiri zomwe angakhaliremo. Bulu anamvetsera ndi kuphunzira, cimodzi-modzi nkhalamba nayenso inamvetsera ndi kuphunzira. Anathandizana ndipo anaseka pamodzi.
 
 ##
-Tssiku lina m'mawa, mdala anapempha Bulu kuti amunyamule kumupeleka pa mwamba pa phiri.
+Tsiku lina m'mawa, nkhaalamba inapempha Bulu kuti ainyamule kuipereka pa mwamba pa phiri.
 
 ##
-Pamwamba pa mithambo, anagona. Bulu analota kuti amai ake anli kudwala ndipo anali kumuitana. Ndipo pamene anauka...
+Pamwamba pa mithambo, anagona. Bulu analota kuti amai ake anali kudwala ndipo anali kumuitana. Ndipo pamene anauka...
 
 ##
-Mithambo inachoka pamozi ndi mzake, mdala.
+….Mithambo inasowa pamozi ndi mzake, nkaalamba ija.
 
 ##
-Bulu anaziwa zomwe anafunika kuchita.
+Bulu pomaliza anadziwa zomwe anafunika kucita.
 
 ##
-Buu anapeza amai ake, okha ali kulilila mwana wao wosowa. Anapenyana kwakanthawi, ndipo anakumbatilana mwamphamvu.
+Bulu anapeza amai ake, okha ali kulirira mwana wao wosowa. Anapenyana kwakanthawi. Kenaka anakumbatirana mwamphamvu.
 
 ##
-Bulu ndi amai ake akulila pamozi ndi anapeza nzila zosiyanasiyana zokhalilamo pamozi. Pang'ono pang'ono, onse anthu okhala pafupi nao ndi banja lao ayamba kukhala nao pamozi mopanda vuto lenileni.
+Bulu ndi amai ake akulira pamozi ndipo anapeza njira zosiyana-siyana zokhaliramo pamodzi. Pang'ono pang'ono, onse anthu okhala pafupi nao, mabanja lao anayamba kukhala nao pamozi mopanda vuto leni-leni.
 
 ##
 * License: [CC-BY]

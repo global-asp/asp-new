@@ -1,28 +1,28 @@
-# Nicifukwa Cani Mvuwu Alibe Sisi
+# Ncifukwa Ciani Mvuu zilibe Tsitsi
 
 ##
 Tsiku limodzi, Kalulu analikuyenda mumbali mwamtsinje.
 
 ##
-Mvuwu naye analiko kusowera, kuyenda-yenda ndi kudya mauzi.
+Mvuu naye anali komwekonso, kuyenda-yenda ndi kudya udzu.
 
 ##
-Mvuwu sanaone kuti kalulu naye alipo ndiponso mosadziwa, anadyaka pakwendo yakalulu. Kalulu anayamba kupunda nakukalipila Mvuwu, "Iwe Mvuwu! suona kuti wanidyaka pakwendo?"
+Mvuu sanaone kuti kalulu naye alipo ndipo mosadziwa, anaponda pamwendo wa kalulu. Kalulu anayamba kufuula ndikukalipira Mvuu, "Iwe Mvuu! Suona kuti wandiponda pamwendo?"
 
 ##
-Mvuwu anaphepetsa kwa kalulu "Phepani. Sindinakuoneni. Mundikhululukile!" Koma kalulu sana mvera phepetso nakalipila Mvuwu "Iwe wacitila dala! Tsiku limodzi uzaona ndizabwezera!"
+Mvuu anapepesa kwa kalulu "Pepani. Sindinakuoneni. Mundikhululukire!" Koma kalulu sanamvera pepeso nakalipira Mvuu "Iwe wacitira dala! Tsiku limodzi uzaona ndizabwezera!"
 
 ##
-Kalulu anayenda kusakila moto ndiponso anati "Yenda, kamushoke Mvuwu akacoka mumanzi pakudya mauzu. Anandidyaka!" Moto unayankha, "Palibe bvuto kalulu munzanga. Ndizacita motere".
+Kalulu anapita kusakira moto ndiponso anati, "Pita, umutenthe Mvuu akacoka mumadzi pakudya udzu. Anandiponda!" Moto unayankha, "Palibe bvuto kalulu munzanga. Ndizacita motero."
 
 ##
-Pambuyo pache, Mvuwu analikudya mauzu patali ndi manzi pamene "whoosh!" moto unayamba. Moto unayamba kushoka sisi la Mvuwu.
+Pambuyo pace, Mvuu analikudya mauzu patali ndi madzi pamene "whoosh!" moto unayamba. Moto unayamba kutentha tsitsi la Mvuu.
 
 ##
-Mvuwu anayamba kulila nakuthamangila mumanzi. Sisi lake lonse linapya ndi moto. Mvuwu anapitiliza kulira, "Sisi langa lapya ku moto! Sisi langa lonse layenda! Sisi langa labwino!"
+Mvuu anayamba kulira nakuthamangira mumadzi. Tsitsi lake lonse linapya ndi moto. Mvuu anapitiriza kulira, "Tsitsi langa laphya ku moto! Tsitsi langa lonse lapita! Tsitsi langa labwino!"
 
 ##
-Kalulu anakondwela kuwona sisi la Mvuwu lapya. Nipaka lelo, kuyopa moto, Mvuwu samayenda kutali ndi manzi.
+Kalulu anakondwera kuwona tsitsi la Mvuu lapya. Mpaka lero, pakuwopa moto, Mvuu samayenda kutali ndi madzi.
 
 ##
 * License: [CC-BY]

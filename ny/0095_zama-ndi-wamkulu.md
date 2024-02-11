@@ -1,28 +1,28 @@
-# Zama ndi wamphamvu
+# Zama ndi wamkulu
 
 ##
-M'ngono wanga amacedwa kugona.Ndimauka m'mamawa cifukwa ndine wa ngwilo!
+M'ngono wanga amacedwa kugona. Ndimauka m'mamawa cifukwa ndine wamkulu!
 
 ##
-Ndine ndimatsegulako kuti dzuwa lilowe.
+Ndine ndimalowetsa dzuwa.
 
 ##
-"Ndiwe nthanda yanga," amatelo amai kundiwuza.
+"Ndiwe nthanda yanga yam'mawa," amatero amai.
 
 ##
-Ndimadzisamba ndekha matsiku onse, sindifunanso thandidzo ai.
+Ndimasamba ndekha masiku onse, sindifunanso thandizo iriyonse.
 
 ##
-Sindimaganiza zakuti madzi ndiyodzidzila, kapena sopo wa kamtambo wocapila dzobvala.
+Ndingasambe ndi madzi odzidzira, ndi sopo wamtambo onunkhira.
 
 ##
-Amai amandikumbutsa kuti "osayiwala kutsuka mano." Ndimawayanka kuti "Ine ai, sindingaiwale ai!"
+Amai amandikumbutsa,"osayiwala kutsuka mano." Ndimawayanka kuti "ine ai, sindingaiwale ai!"
 
 ##
-Ndikamalidza kusamba, ndimapatsa moni agogo amuna ndi alongo awo atate anga.Ndimawafunila tsiku labwino.
+Ndikasiriza kusamba, ndimapatsa moni agogo amuna ndi alongo a atate anga. Ndimawafunira tsiku labwino.
 
 ##
-Ndipo ndimabvala ndekha."Ndine wamkulu tsopano amama," ndimawaudza.
+Kenaka ndimabvala ndekha. "Ndine wamkulu tsopano amama," ndimanena.
 
 ##
 Ndimanga mabatani komanso nthambo za nsapato ndekha.
@@ -31,10 +31,10 @@ Ndimanga mabatani komanso nthambo za nsapato ndekha.
 Ndimayesetsa kuti mbale wanga adziwe nkhani zonse za kusukulu.
 
 ##
-Ndimacita zonse zothekela munjira mukalasi.
+Mukalasi ndimacita zonse zothekera munjira iriyonse.
 
 ##
-Ndimacita zabwino zonsezi tsiku ndi tsiku.Koma ndimakondetsetsa kusowela kwambili!
+Ndimacita zabwino zonsezi tsiku ndi tsiku. Koma cimene ndikondetsetsa kwambiri ndi kusowera!
 
 ##
 * License: [CC-BY]

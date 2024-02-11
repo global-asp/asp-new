@@ -1,7 +1,7 @@
 # Thupi Langa
 
 ##
-Ndimanga nalo.
+Ndingathamange nalo.
 
 ##
 Ndingajumphe nalo.
@@ -10,13 +10,13 @@ Ndingajumphe nalo.
 Ndingavine nalo.
 
 ##
-Ndinganyaye nalo.
+Ndingasambire nalo.
 
 ##
 Ndingasewere nalo.
 
 ##
-Ndingamenye m'pira nalo.
+Ndingamenye nalo.
 
 ##
 Ndingathawe nalo.

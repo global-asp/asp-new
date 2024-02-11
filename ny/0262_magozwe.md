@@ -1,52 +1,52 @@
 # Magozwe
 
 ##
-Mu tauni ya Nairobi, kutali nama banja, kunali kunkala anyamata analibe mabanja. Anangonkala mwa siku pa siku. Kuseni kwina, anyamata anali kulonga mpasa zao pambuyo pogona pampepo mumbali mwa museu. Kusewenzesa vinyalala, anayasa moto kuti asangenewe mpepo. Pagulu la anyamata ili panali Magozwe. Iye ndiye anali wamung'ono.
+Mu tauni ya Nairobi, kutali ndi umoyo wosungidwa bwino kunyumba, kunali kukhala anyamata analibe mabanja. Anangokhala mwa tsiku momwe ingabwerere. Tsiku lina m'mawa, anyamata anali kulonga mpasa zao pambuyo pogona pampepo mumbali mwa museu. Kusewenzesa vinyalala, anayasa moto kuti adziteyteze ku mphepo. Pagulu la anyamata iri panali Magozwe. Iye ndiye anali wamung'ono.
 
 ##
-Pomwe makolo ake Magozwe anamwalila, iye anali na zaka cabe kumi. Ndipo anayenda kunkala na amalume ake. Amalume ake sanatayeko nzelu kwa mwana. Sanali kumupasa cakudwa cokwanila Magozwe. Ndipo anali kugwilisa ncito zambili.
+Pomwe makolo ake Magozwe anamwalira, iye anali ndia zaka cabe zisanu. Ndipo anapita kukakhala ndi amalume ake. Amalume ake sanamusamalirebwino mwanayu. Sanali kumupatsa cakudwa cokwanira Magozwe. Ndipo anali kugwiritsa nchito zambiri zolimba.
 
 ##
-Ngati Magozwe wafunsa mwina wadandaula, amalume ake anali kumumenya. Pomwe anafunsa kuti ayende kusukulu amalume ake anamumenya nanena nati "Ndiwe cisilu kwambili sungapunzile kalikonse." Patapita zaka zitatu zosungiwa mozuzindwa, Magozwe anataba kucoka pa nyumba pa amalume ake. Ndipo anayamba kunkala pa museu.
+Ngati Magozwe wafunsa mwina wadandaula, amalume ake anali kumumenya. Pomwe anafunsa kuti apite kusukulu, amalume ake anamumenya nanena nati "Ndiwe citsiru kwambiri sungaphunzire kalikonse." Patapita zaka zitatu zosungidwa mwankhanza, Magozwe anathawa kucoka pa nyumba pa amalume ake. Anayamba kukhala m'mseu.
 
 ##
-Kunali kovuta kunkala kwa pa museu ndipo anyamata ambili anali kuvutika masiku onse kupeza cakudya. Masiku ena anamenyedwa, ntawi zina anagwilidwa na apolisi. Akadwala kunalibe muntu owatandiza. Ndalama zomwe anapeza mukupempa pempa, kugulisa ma pulasitiki na zina, ndiye ndalama zomwe zinali kuwatandizila. Umoyo unavutilako cifukwa magulu ena a anyamata anali kufuna kulanda malo osiyana siyana mu tauni.
+Kunali kobvuta kukhala kwa m'mseu ndipo anyamata ambiri anali kubvutika masiku onse kupeza cakudya. Masiku ena anamenyedwa, nthawi zina anagwiridwa ndi apolisi. Akadwala kunalibe munthu owathandiza. Ndalama zomwe anapeza mukupempa pempha, kugulitsa ma pulasitiki ndi zina, ndiye ndalama zomwe zinali kuwathandizira. Umoyo unabvutirako cifukwa magulu ena a anyamata anali kufuna kulanda malo osiyana-siyana mu tauni.
 
 ##
-Siku lina pamene Magozwe anali kusakila-sakila muvinyalala, anapeza buku lina losila long'ambika. Anacosako madoti ndipo analiika mu saka. Siku lililonse lokonkapo, anacosa buku ndipo anayamba kulangana vitunzi tunzi mu buku. Sanali kuziwa kuwelenga mau.
+Tsiku lina pamene Magozwe anali kusakira-sakira muvinyalala, anapeza buku lina losira long'ambika. Anacosako madoti ndipo analiika mu nsaka. Tsiku lirironse lotsatira, anatulutsa bukulo ndipo anayamba kuona zitunzi-thunzi mu bukulo. Sanali kudziwa kuwerenga mau.
 
 ##
-Vitunzi tunzi vinalangiza munyamata omwe anakula kunkala oyendesa ndeke. Magozwe analota na muzuba momwe, kunkala oyendesa ndeke. Ntawi zina anaziona kuti ndiye wamene anali munyamata wamubuku.
+Zithunzi-thunzi zinalangiza mnyamata emwe anakula kukhala oyendetsa ndeke. Magozwe analota ndi msana momwe, kukhala oyendesa ndeke. Nthawi zina anaziona kuti ndiye amene anali mnyamata wamubuku muja.
 
 ##
-Kunali kozizila ndipo Magozwe anaimilila pa museu kupempa-pempa. Muzibambo wina anabwela pafupi naye. "Bwanji, ndine Thomas. Nisewenza pafupa napano, pamalo pamene ungapeze cakudya," anakamba. Anasonta nyumba yacikasu, ya malata yobilibila. "Niziwa uzayenda kuti utengeko cakudya?" anafunsa. Magozwe analangana muzibambo nalangana nyumba. "Kapena nizayenda," anayanka, ndipo anacokapo.
+Kunali kozizira ndipo Magozwe anaimirira m'mseu kupempha-pempha. Bambo wina anabwera pafupi naye. "Bwanji, ndine Thomas. Ndisewenza pafupa ndi pano, pamalo pamene ungapeze cakudya," anatero bamboyo. Analoza nyumba yacikasu, ya tsindwi yamtambo. "Ndikhulupiriraa udzapitako kuti utengeko cakudya?" anafunsa. Magozwe anayangana bambo nayangana nyumba. "Kapena ndidzapita," anayanka, ndipo anacokapo.
 
 ##
-Panapita Mwezi, ndipo anyamata alibe mabanja anali kuonana na Thomas. Thomas anali kukonda kukamba na antu makamaka antu onkala pa museu. Thomas ananvesela nkani za antu awa. Anali wacidwi ndipo wonkazikika mutima, ndiponso sanataye ulemu. Anyamata ena anayamba kuyenda kunyumba yacikasu ya malata obilibila, kutenga cakudya muzuba.
+Patapita Miyezi ingapo yotsatira, anyamata osowapokhala anazolowera kuonana ndi Thomas. Thomas anali kukonda kukamba ndi anthu maka-maka anthu okhala m'miseu. Thomas amamvetsera nkhani za anthu awa. Anali wacidwi ndipo wokhadzikika mtima, ndiponso sanataye ulemu. Anyamata ena anayamba kupita kunyumba yacikasu ya tsindwi yamtambo kukatenga cakudya masana.
 
 ##
-Magozwe anali nkale mumbali mwa museu alangana vitunzi tunzi mu buku yake pamene Thomas anabwela nankala pafupi naye. "Ikamba cani nkani?" anafunsa Thomas. "Ikamba pali munyamata amena anankala oyendesa ndeke," anayanka Magozwe. "Nindani zina munyamata?" anafunsa Thomas. "Kaya, siniziba kuwelenga," anayanka Magozwe mwacisinsi.
+Magozwe anali nkhale mumbali mwa mseu akuyangana zithunzi-tunzi mu buku yake pamene Thomas anabwera nakhala pafupi naye. "Kodi nkhani Ikamba za ciani?" anafunsa Thomas. "Ikamba pa za mnyamata amena anakhala oyendesa ndeke," anayankha Magozwe. "Nindani dzina lake mnyamatayo?" anafunsa Thomas. "Kaya, sindidziwa kuwerenga," anayankha Magozwe mwakacetecete.
 
 ##
-Pomwe anakumana, Magozwe anayamba kuuza Thomas, nkani za umoyo wake. Anamuuza za mwamene anatawila kucoka kwa amalume ake. Thomas sanakambe kwambili, ndipo sanauze Magozwe vocita koma anamvesela mwacidwi. Ntawi zina Magozwe na Thomas anakambilana pamene anali kudya munyumba ya malata obilibila.
+Pomwe anakumana, Magozwe anayamba kuuza Thomas, nkhani za umoyo wake. Anamuuza za mwamene anathawira kucoka kwa amalume ake. Thomas sanakambe zambiri, ndipo sanauze Magozwe zocita koma anamvetsera mwacidwi. Nthawi zina Magozwe ndi Thomas anakambirana pamene anali kudya munyumba ya tsindwi yamtambo.
 
 ##
-Pomwe Magozwe anali pafupi nakukwanisa zaka kumi, Thomas anamupasa buku. Buku inali pali munyamata wa mumunzi wamene anakula kunkala womenya bola wozibika kwambili. Thomas anamuwelengela Magozwi kwambili, mpaka siku lina anakamba nati, "Niganiza kuti uyambe kuyenda ku sukulu, kuti ukapunzile kuwelenga. Uganizapo bwanji?" Thomas anakamba kuti anali kuziba malo kumene ana angayende kunkala ndiponso kupunzila kwameneko.
+Pomwe Magozwe anali pafupi ndikukwanitsa zaka khumi, Thomas anamupatsa buku. Buku inali pa za mnyamata wa m'mudzi amene anakula kukhala womenya bola odziwika kwambiri. Thomas anamuwerengera Magozwe kambiri, mpaka tsiku lina anakamba nati, "Niganiza kuti uyambe kupita ku sukulu, kuti ukaphunzire kuwerenga. Uganizapo bwanji?" Thomas ananena kuti anali kudziwa malo kumene ana angapite kukhala ndiponso kuphunzira kwameneko.
 
 ##
-Magozwe anaganizila za kumalo uko ndiponse zoyenda ku sukulu. Nanga kapena amalume ake anakamba zoona kuti anali cisilu kwambili ndipo sangapunzile kalikonse? Nanga ngati bamumenya uku kumalo kwinangu? Anayopa. "Kapena cilibwino kupitiliza kunkala pa museu," anaganiza.
+Magozwe anaganizira za kumalo atsopano komweko ndiponse zakupitaa ku sukulu. Nanga kapena amalume ake anakamba zoona kuti anali citsiru kwambiri ndipo sangapunzire kalikonse? Nanga ngati bamumenya kumalo atsopanowa? Anayopa. "Kapena ciribwino kupitiriza kukhala pa m'seu," anaganiza.
 
 ##
-Anamuuza Thomas kuti anali na manta. Thomas anamusimikizila kuti, azankala na umoyo wabwina uku kumalo.
+Anamuuza Thomas kuti anali ndi mantha. Thomas anamusimikidzira kuti, azakhala ndi umoyo wabwina kumalo atsopanowa.
 
 ##
-Ndipo Magozwe anapita kunkala mu cipinda mu nyumba ya malata amusipu. Anankala na anyamata ena awili mu cipinda. Pamozi anali anyamata kumi amene anali kunkala pamozi mu nyumba. Pamozi na a Anti Cissy na amuna ao, magalu atatu, ka kiti na mbuzi yokalamba.
+Motero Magozwe anapita kukhala mu cipinda mu nyumba ya tsindwi yamsipu. Anakhala ndi anyamata ena awiri mu cipinda. Pamodzi onse anali anyamata khumi amene anali kukhala panyumba paja. Pamodzi ndi a Anti Cissy ndi amuna ao, agalu atatu, cona ndi mbuzi yokalamba.
 
 ##
-Magozwe anayamba sukulu ndipo inali yovuta. Nivambili vamene anali kufunikila kuziwa kuti alingane na anzake. Ntawi zina anali kufuna kuleka. Koma anaganizila oyendesa ndeke na omenya bola a muma buku ake. Monga aja anyamata amumabuku, sanaleke.
+Magozwe anayamba sukulu ndipo cinali cobvuta. Ndizambiri zimene anali kufunikira kudziwa kuti alingane ndi anzake. Nthawi zina anali kufuna kuleka. Koma anaganizira oyendetsa ndeke ndi omenya bola a mu mabuku ake anthano. Monga iwo anyamata a mu mabuku, sanaleke.
 
 ##
-Magozwe anali nkale panja panyumba ya malata a musipu, awelenga buku lake lakusukulu, pamene Thomas anabwela nonkala pafupi pake. "Ikamba cani nkani?" anafunsa Thomas. "Ikamba pali munyamata amene anankala mupunzisi," anayanka Magozwe. "Nindani zina munyamata?" anafunsa Thomas. "Zina lake ni Magozwe," anayanka Magozwe mosekelela.
+Magozwe anali khale panja panyumba ya tsindwi ya msipu, akuwerenga buku lake lakusukulu, Thomas anabwera ndi kukhala pafupi naye. "Ikamba ciani nkhani uwerenga?" anafunsa Thomas. "Ikamba pa za mnyamata amene anakhala mphunzitsi," anayankha Magozwe. "Ndani dzina munyamata?" anafunsa Thomas. "Dzina lake ndi Magozwe," anayankha Magozwe momwetula.
 
 ##
 * License: [CC-BY]

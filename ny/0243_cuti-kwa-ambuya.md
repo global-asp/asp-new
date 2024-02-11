@@ -1,64 +1,64 @@
 # Cuti Kwa Ambuya
 
 ##
-Udongo na Apiyo anali kunkala mu tauni na atate awo. Anali kukonda ntawi yamene masikulu anali ovala, cifukwa anali kuyenda pacuti kwa ambuya awo. Ambuya awo anali kunkala mu muzi wa pafupi na musinje waukulu.
+Odongo ndi Apiyo anali kukhala mu tauni ndi atate awo. Amakondwerera masiku acuti. Sikuti Kamba kakuti masukulu anatsekera, koma cifukwa amapita kwa agogo. Awo Agogo awo anali kukhala m'mudzi wogwira nsomba pafupi ndi nyanja yaiukulu.
 
 ##
-Udongo na Apiyo anali okondwela cifukwa inali ntawi yoyenda pa cute kwa ambuya awo. Usiku analonga vyola vawo kukonzekela ulendo. Usiku uyo, ana awa, anakangiwa kugona ndipo anaceza usiku onse pazaulendo.
+Odongo ndi Apiyo anali okondwera cifukwa inali nthawi yokayenderanso agogo awo. Usiku wa ulendo usanacitike, analongelato katundu kukonzekela ulendo wautali kupita kumudzi. Usiku uyu, anawa, sanagone ndipo anacezera kulankhula usiku wonse pa za cuti.
 
 ##
-Kuseni seni anayambapo, ulendo woyenda kumunzi mu motoka ya atate awo. Anapitilila mapili, vinyama vamusanga ndiponso minda za masamba. Ana awa, anawelenga mamotoka munjila ndipo anayimba nyimbo.
+Kuseni seni anayambapoM'mamawa kutaca, ulendo unapangika wopita kumudzi mgalimoto ya atate awo. Anayenda kupitirira mapiri, nyama zamuthengo ndi minda ikulu-ikulu kwambiri. Ana awa, anawelenga magalimoto munjira ndipo anayimba nyimbo.
 
 ##
-Panapita ntawi ndipo ana awa anagona cifukwa analema.
+Patapita nthawi, ana awa analema ndipo anagona.
 
 ##
-Pamene anafika pa munzi, atate a Odongo na Apiyo ana usa ana. Ana anapeza ambuya awo aligone pa mpasa munsi mwa mutengo. Ambuya awo anali muzimai wampamvu, ndipo wokongola kwambili.
+Pamene anafika mu mudzi, atate awo anautsa Odongo ndi Apiyo. Anapeza Nyar-Kanyada, ambuya awo aligone pa mpasa munsi mwa mutengo. Nyar-Kanyada muciruo, atanthauza kuti "mwana wamkazi wa a Kanyada". Ambuya awo anali muzimai wampamvu, ndipo wokongola kwambiri.
 
 ##
-Ambuya anakondwela kwambili ndipo anavina vina, nayimba nyimbo zacisangalalo. Azukulu nawo anakondwela kwambili, ndipo anapasa ambuya awo mpaso zomwe anawabwelesela. "Yambililani kusegula yanga mpaso," anati Odongo. "Yambililani yanga," anati Apiyo.
+Ambuya anakondwera kwambiri ndipo anavina vina, nayimba nyimbo zacisangalalo. Azukulu nawo anakondwera kwambiri, ndipo anapasa ambuya awo mpaso zomwe anawabwelesela. "Yambirirani kusegula yanga mpaso," anati Odongo. "Yambirirani yanga," anati Apiyo.
 
 ##
 Pomwe anasegula mpaso, Ambuya awo anawadalisa azukulu awo monga mwa mwambo.
 
 ##
-Ndipo Odongo na Apiyo anayenda panja nayamba kupilikisa ma bulaula na mbalame.
+Ndipo Odongo na Apiyo anayenda panja nayamba kupirikisa ma bulaula na mbalame.
 
 ##
-Ana awa, anakwela mitengo ndipo anasewela na manzi.
+Ana awa, anakwera mitengo ndipo anasewera m'madzi amnyanja.
 
 ##
-Pamene kunafipa, ana anabwelela kunyumba mukudya cakudya ca usiku. Koma ana awa anagona akalibe kusiliza kudya.
+Pamene kunada, ana anabwerera kunyumba kukadya cakudya ca madzulo. Koma akalibe kutsiriza kudya, anayamba kumva tulo!
 
 ##
-Mumawa mwake, atate ake a Odongo na Apiyo anabwelele ku tauni. Ana anasala na ambuya awo.
+M'mawa mwake, atate awo a Odongo ndi Apiyo anabwerera ku tauni ndikuwasiya ndi ambuya awo Nyar-Kanyada.
 
 ##
-Odongo na Apiyo anatandiza ambuya awo na zincito za panyumba. Ana awa anatapa manzi na kusakila nkuni. Anadoba mazila ndipo anatyola ndiyo mumunda.
+Odongo ndi Apiyo anathandiza ambuya awo nchito za panyumba. Ana awa anatunga madzi ndi kusakira nkhuni. Anatola mazira ankhuku ndi kuthyola ndiyo m'dimba.
 
 ##
-Ambuya anapunzisa azukulu awo kupika nsima, nsomba, na ndiyo zina zakumunzi.
+Ambuya awo anapunzisa adzukulu awo kuphika nsima, nsomba, ndi ndiyo zina zakumudzi.
 
 ##
-Kuseni kwina, Odongo anayenda kudyesela ng'ombe. Ng'ombe zina zinayenda mumunda mwa antu ena. Antuwa ankalipa kwambili ndipo ananena kuti azazigwila ng'ombe. Odongo ana punzila, ndipo anatayako nzelu kuti Ng'ombe zisazipanga milandu.
+Tsiku lina,, Odongo anapita kukadyetsera ng'ombe. Ng'ombe zina zinalowa m'munda mwa anthu ena. Mlimiyu anakalipira Odongo kwambiri. Anaopseza kuti adzasunga pakudya mbewu zake. Patapita tsikulo, munyamata anatsimikidza kuti ng'ombe zisakhalenso mumabvuto.
 
 ##
-Siku lina ana anayenda ku musika na ambuya awo. Anayenda kukagulisa ndiyo za mumunda, shuga na sopo. Apiyo anali kukonda kuuza antu mitengo za vintu. Odongo anali kukonda kulongeza vintu vamena antu anali kugula.
+Tsiku linanso, ana anapitaa ku musika ndi ambuya awo. Anali ndi stolo yogulitsamo ndiyo za m'munda, shuga ndi sopo. Apiyo anali kukonda kuuza anthu ogulamitengo ya zinthu. Odongo anali kukonda kulongeza zinthu zimene anthu anali kugula.
 
 ##
-Pakusila kwa siku ana anatandiza ambuya awo kuwelenga ndalama, ndipo pamozi anamwa tiyi.
+Pakuthera kwa tsiku anali kumwa tiyi ya chai pamodzi. Anathandiza ambuya awo kuwerenga ndalama zimene analinazo.
 
 ##
-Mwazizizi, masiku yonkala pa cute yanasila ndipo ana anafunika kubwelela ku tauni. Ambuya anapasa Odongo kapu ndipo anapasa Apiyo covala ca mpepo. Ambuya analonga cakudya capaulendo.
+Koma mosacedwa cuti cinali kutha ndipo ana amafunika kubwerera ku tauni ir. Ambuya anapatsa Odongo kapu ndipo anapatsa Apiyo juzi. Ambuya analonga cakudya capaulendo.
 
 ##
-Odongo na Apiyo sibanafune kubwelela ku tauni. Ana anapempa ambuya awo kuti ayende nawo ku tauni. Koma ambuya anati "Ndine nkalamba ndipo siningankale mu tauni, koma mukabwela kuno kumuzi muzakanipeza."
+Odongo ndi Apiyo sibanafune kubwerera ku tauni. Anapempha ambuya awo kuti apitee nawo ku tauni. Koma ambuya anamwetula nati, "Ndine okalamba kwambiri ndipo sindingahkale mu tauni. Ndizayamba kukuyembekeza kuubweranso kwanu kuno kumudzi ."
 
 ##
-Odongo na Apiyo analayilana na ambuya awo.
+Odongo ndi Apiyo anakumbatirana nao ambuya awo nalayirana .
 
 ##
-Pamene Odongo na Apiyo anabwelele ku sukulu, anauza anzao za umoyo wakumunzi. Anzao ena anakonda umoyo wamu tauni koma ena anakonda umoyo wakumunzi. Koma onse ana ananena kuti ambuya a Odongo na Apiyo ni abwino mutima.
+Pamene Odongo nda Apiyo anabwerera kusukulu, anauza anzao za umoyo wakumudzi. Ana ena anadziwa kuti umoyo wa mtauni ndi wabwino. Ena anakonda umoyo wakumudzi. Koma ambiri a iwo, onse ananena kuti ambuya a Odongo ndi Apiyo anali abwino mtima!
 
 ##
 * License: [CC-BY]

@@ -1,4 +1,4 @@
-# Uchita Chani?
+# Ucita Ciani?
 
 ##
 Ndiimba.
@@ -19,10 +19,10 @@ Aitana.
 Ndiyankha.
 
 ##
-Amvesera.
+Amvetsera.
 
 ##
-Uchita chani.
+Ucita ciani?
 
 ##
 * License: [CC-BY]

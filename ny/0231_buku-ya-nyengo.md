@@ -4,25 +4,25 @@
 Ndikouma.
 
 ##
-Dzuwa ndilotentha.
+Dzuwa ndirotentha.
 
 ##
-Mphepho ikugunda.
+Kuli Mphepho yokuntha.
 
 ##
-Kuli makumbi.
+Kuli mitambo.
 
 ##
-Ndikozizira.
+Ndikodzidzira.
 
 ##
-Mvula ilokwa.
+Mvula irokwa.
 
 ##
 Kuli mphezi.
 
 ##
-Ndili kuona utawaleza.
+Ndiri kuona utawaleza.
 
 ##
 * License: [CC-BY-NC]

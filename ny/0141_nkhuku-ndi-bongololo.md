@@ -1,40 +1,40 @@
 # Nkhuku ndi Bongololo
 
 ##
-Nkhuku ndi Bongololo anali abwenzi. Koma anali kukonda kupikisana. Tsiku lina, anaganiza kuchaya m’pila wa myendo kuti aone ngati katswili ndi ndani.
+Nkhuku ndi Bongololo anali abwenzi. Koma anali kukonda kupikisana paiwo okha. Tsiku lina, anaganiza kusewera m'pira wa myendo kuti aone ngati katswiri ndani.
 
 ##
-Anayenda kubwalo la m’pila ndipo anayamba masewera awo. Nkhuku inafulumira, koma Bongololo anafulumira kopambana. Nkhuku inachaila kutali koma bongololo anachaila kutali mopambana. Nkhuku inayamba kukalipa.
+Anayenda kubwalo la m'pira ndipo anayamba masewera awo. Nkhuku inafulumira, koma Bongololo anafulumira kopambana. Nkhuku inapandira kutali koma bongololo anapandira kutali mopambana. Nkhuku inayamba kukalipa.
 
 ##
-Anagaza kuti achaye mapenoti. Bongololo anayabila kukhala wogwila m’pila. Nkhuku inamwesa cigoli cimodzi. Tsopano inali nthawi yankhuku kuti igwile m’pila.
+Anagaza kuti asewere mapenoti. Bongololo anayambira kukhala wogwira m'pira. Nkhuku inamwesa cigoli cimodzi. Tsopano inali nthawi yankhuku kuti igwire m'pira.
 
 ##
-Bongololo anachaya ndipo anamwetsa. Bongololo ananyunya ndi kumwetsa. Bongololo anamwesanso ndi mutu. Bongololo anamwetsa zigoli zisanu.
+Bongololo anasewera ndipo anamwetsa. Bongololo ananyunya ndi kumwetsa. Bongololo anamwesanso ndi mutu. Bongololo anamwetsa zigoli zisanu.
 
 ##
-Nkhuka inakalipa kuti inagonja. Inagonja kothelathu. Bongololo anayamba kuseka cifukwa ca madandaulo amuzake pambuyo pakugonja.
+Nkhuka inakalipa kuti inagonja. Inagonja kothelathu. Bongololo anayamba kuseka cifukwa ca madandaulo amnzake pambuyo pakugonja.
 
 ##
-Nkhuku inakalipa kwambiri ndikusengula kamwa namela bongololo.
+Nkhuku inakalipa kwambiri ndikutsegula kamwa nameza bongololo.
 
 ##
-Pamene nkhuku inali kuyenda kunyumba, inakumana ndi amake abongololo. Amake Bongololo anafunsa nati, "Kodi wamuonako mwana wanga?" Nkhuku siyinalankhule ciliconse. Amake Bongololo anada nkhawa.
+Pamene nkhuku inali kuyenda kunyumba, inakumana ndi amake abongololo. Amake Bongololo anafunsa nati, "Kodi wamuonako mwana wanga?" Nkhuku siyinalankhule ciriconse. Amake Bongololo anada nkhawa.
 
 ##
-Amake Bongololo anamva kaliu kakang'ono. "Ndithandizeni amai!", liu linalila. Amake Bongololo anayangana uku ndi uku, ndi kumvetsetsa ndi cidwi. Mau anacokera mumimba mwa nkhuku.
+Amake Bongololo anamva timau tating'ono. "Ndithandizeni amai!" liu linalira. Amake Bongololo anayangana uku ndi uku, ndi kumvetsetsa ndi cidwi. Mau anacokera mumimba mwa nkhuku.
 
 ##
-Amake Bongololo anakuwa nati, "Sewenzesa mphamvu zako zapadela mwana wanga!" Bongololo atha kununkha ndi kusamveka bwino. Nkhuku inayamba kumvela kudwala.
+Amake Bongololo anafuula nati, "Sewenzetsa mphamvu zako zapadela mwana wanga!" Bongololo atha kununkha ndi kusamveka bwino. Nkhuku inayamba kumvela bwino mthupi.
 
 ##
-Nkhuku inageya. Ndipo inamela ndi kutaya mata. Ndipo inakhosomola. Bongololo anali kunyansisa.
+Nkhuku inageya. Ndipo inamela ndi kutaya mata. Ndipo inakosomola. Bongololo anali kunyansisa.
 
 ##
-Nkhuku inakhosomola kufikira itakhosomolela panja Bongololo amene anali mumimba mwake. Bongololo ndi amai ake anakalawa ndi kukwela m’tengo kubisala.
+Nkhuku inakosomola kufikira itakosomolela panja Bongololo amene anali mumimba mwake. Bongololo ndi amai ake anakalawa ndi kukwera m'mtengo kubisala.
 
 ##
-Kucokela apo, Bongololo ndi Nkhuku anakhala adani.
+Kucokera pamenepo, Bongololo ndi Nkhuku anakhala adani.
 
 ##
 * License: [CC-BY]
