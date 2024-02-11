@@ -1,41 +1,41 @@
-# Abana ba ipula
+# Abaana bepula
 
 ##
-Patile akantu, kwali ulupwa ulwaleikala ulwasansamuka.
+Patiile akantu, kwali ulupwa ulwaikeele mu mutende ne nsansa.
 
 ##
-Tabatalile abalwa bekabeka. Baleyafwa abafyashi babo pa ng'anda na mu ibala.
+Tabatalile abalwa beka-beka. Baaleeyafwa abafyashi baabo pa ŋanda na mwibala.
 
 ##
-Lelo tabasuminishiwe ukupalama ku mulilo.
+Nomba tabaaleebasuminisha ukupalama ku mulilo.
 
 ##
-Balebomba imilimo yabo yonse ubushiku. Pantu bapangilwe na ipula.
+Baaleebomba imilimo yabo yonse ubushiku. Pantu bapangilwe ne pula.
 
 ##
-Lelo umulumendo umo alifulwike ukuya panse mu kasuba.
+Nomba umo pa balumendo aaleefwaisha ukuya panse mu kasuba.
 
 ##
-Bushiku bumo ukufuluka kwalicililemo. Ba ndume yakwe balimucengeshe.
+Ubushiku bumo icakufwaya ukuya pa kusuba cacilamo. Bandume yakwe baalimusokele...
 
 ##
-Lelo inshita yalipitile kale. Alisungulwike mu kasuba akakaba.
+Nomba balicelelwe. Asunguluka mu kasuba kaakaba.
 
 ##
-Abana ba ipula bali ababulanda pakumona uko ndume yabo alesunguluka.
+Abaana bepula baali no bulanda pa kumona uko ndume nabo aleesunguluka.
 
 ##
-Lelo balyumfwene. Balipangile icuuni ukufuma ku ipula ilya sungulwike.
+Nomba baalyumfwene. Baapangile icuuni ukufuma kwipula ilyasungulwike.
 
 ##
-Balisendele ndume yabo mu cuuni pa mulu walupili ulutali.
+Baasendele ndume nabo bapangile mu cuuni pa muulu wa lupili ulutali.
 
 ##
-Elyo lintu akasuba katulile, alipupwike aleimba mu cengelo ca lucelo.
+Lilya akasuba katula, aalipupwike aya aleimba mu cengelo ca lucelo.
 
 ##
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: AGNES CHIBAMBA
+* Translation: Agnes Chileshe Chibamba
 * Language: bem

@@ -1,40 +1,40 @@
 # Inkoko ne Ciyongoli
 
 ##
-Inkoko ne Ciyongoli fyali fibusa. Nomba lyonse bale cinfyanayafye. Bushiku bumo, baile mukuteya umupila wakumakasa pakuti bamone uwingacinfya umunankwe.
+Inkoko ne Ciyongoli fyali fibusa. Nomba lyonse baaleecimfyanya. Ubushiku bumo, baatontonkenye ukuti bateye umupila pakuti bamone uwaishibishe ukuteya.
 
 ##
-Baile kucibansa camupila nokwamba ukuteya. Inkoko yali iya angukilwa nomba iciyongoli calyangukishe ukucilapo. Inkolo epakupantila ukutali nomba iciyongoli tepakupantisha ukucilapo. Inkoko epakwamba ukunfwa ububi.
+Baile ku cibansa ca mupila no kwamba ukuteya. Inkoko yali iyayangukilwa nomba Iciyongoli calyangukishe ukucilapo. Inkoko yapantiile ukutali nomba Iciyongoli capantiile ukutali ukucilapo. Inkoko epakwamba ukumfwa ububi.
 
 ##
-Efyo. batile katupantefye iyakwingisha mufipanda. Iciyingoli ecabalilepo ukuya mucipanda. Inkoko yaingishako kamo. Epakucinjana pakuti inkoko nayo iyemucipanda.
+Baumfwene ukuti kube ukupantafye iyakwingisha mu cipanda. Iciyongoli ecabalilepo ukwikata mu cipanda. Inkoko yaingishafye kamo. Epakucinjana pakuti Inkoko nayo yaba mukwikata mu cipanda.
 
 ##
-Iciyongoli epakupanta nokwingisha. Iciyongoli calafyanya nokwingisha. Iciyongoli epakusenda umupila nokuya ingisha. Iciyongoli caingisha utukato tusano.
+Iciyongoli epakupanta no kwingisha. Iciyongoli cabela no kwingisha. Iciyongoli cauma iyakumutwe no kwingisha. Iciyongoli caingisha utukato tusaano.
 
 ##
-Inkoko epakufulwa ukuti yalusa. Pantu yalilusa ububi sana. Iciyongoli epakwamba ukuseka umunankwe pakuilishanya.
+Inkoko yalifulilwe ukuti yaluusa umupila. Iciyongoli caatampile ukuseka umunankwe pantu aaleilishanya.
 
 ##
-Inkoko yalifulwa sana epakwamba ukusonsobola iciyongoli nokucilya.
+Inkoko yalifulilwe saana yasoba iciyongoli no kucilya.
 
 ##
-Cilya inkoko ileya kung'anda epakukumanya nyina waciyongoli. Nyina waciyongoli epakwipusha, "Naumonako umwana wandi?" Inkoko tayaaswike nangu cimo. Nyina waciyonoli tepakusakamana.
+Cilya inkoko ileeya ku ŋanda, yakumanya nyina wa ciyongoli. Nyina waciyongoli eipusha ati, "Bushe naumonako umwana wandi?" Inkoko tayayaswike nangu cimo. Nyina wa ciyongoli tepakusakamana.
 
 ##
-Elyo nyina waciyongoli aunfwile akalishiwi akanono. "Mutule mayo!" Nyina waciyongoli ekulolesha lolesha no kunfwikisha. Ishiwi lyalefuma mumala yankoko.
+Elyo nyina wa ciyongoli aumfwile akalishiwi akanoono. "Mutuule maayo!" Nyina wa ciyongoli aloleeshalolesha no kumfwikisha. Ishiwi lyaleefuma mu mala ya nkoko.
 
 ##
-Nyina waciyongoli epakupunda, "bonfya amaka yobe mwana wandi!" Iciyongoli limo cilanunka ububi sana, nokunfwika ifibi mukanwa. Inkoko epakwamba ukunwa ukulwala.
+Nyina wa ciyongoli epakupunda ati, "Bomfya amaka yobe mwana wandi!" Iciyongoli limo cilanunka ububi saana, no kumfwika ububi mu kanwa. Inkoko epakwamba ukumfwa ububi.
 
 ##
-Inkoko epekubukula. Elya yaisa mina nokufwisa futi. Yaisa tesula nokukola, nakabili yakoka. Iciyongoli waliyunfwisha ubunani.
+Inkoko yalibyolele. Yamina amate kabili yafwisa. Elyo yatesula no kukoola. Yakoola kabili. Iciyongoli tepabubi.
 
 ##
-Inkoko epakukola mpaka yakola iciyongoli icali mumala. Nyina waciyongoli nommwana wakwe efyo bakulike nokunina icimuti emobabelama.
+Inkoko yakoola mpaka yakoola Iciyongoli icali mu mala. Nyina wa ciyongoli no mwana wakwe efyo baninine ku cimuti eko babelama.
 
 ##
-Ukufuma apopena inkoko nefiyongoli fyalipatana.
+Ukufuma apopene inkoko ne fiyongoli fyalipatana.
 
 ##
 * License: [CC-BY]

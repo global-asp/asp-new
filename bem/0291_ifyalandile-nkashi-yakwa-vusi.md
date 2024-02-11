@@ -1,47 +1,47 @@
 # Ifyalandile nkashi yakwa Vusi
 
 ##
-Ubushiku bumo ulucelo Vusi balimwitile kuli ba nakulu, "Vusi, napapata twala ilini ili ku bafyashi bobe. Balefwaya ukupanga keke iyikalamba iya pa bwinga bwakwa nkashi yobe."
+Ubushiku bumo ulucelo Vusi balimwitile kuli banakulu, "Vusi, napaapaata twala ilini ili ku bafyashi bobe. Baleefwaya ukupanga keeke iikalamba iyapabwinga bwakwa nkashi yobe."
 
 ##
-Munshila pakuya ku bafyashi bakwe, Vusi akumenye abalumendo babili baletola fuluti. Umulumendo umo asompwele ilini kuli Vusi alitoba ku cimuti. Ilini lyalitobeke.
+Mu nshila pakuya ku bafyashi bakwe, Vusi aakumenye abalumendo babili baleetoola ifitwalo. Umulumendo umo asompwele ilini kuli Vusi alitoba ku cimuti. Ilini lyalitobeke.
 
 ##
-"Finshi wacita?" Vusi ali lilile. " Ilini lilya lyaciba lya keke. Keke yaciba yapa bwinga bwakwa nkashi yandi. Finshi nkashi yandi alalanda nga takwabe keke ya bwinga.?
+"Ngefi wacita?" efyailishenye Vusi. "Ilini lilya lyaciba lyakupangila keeke. Keeke yaciba no kuba yapa bwinga bwakwa nkashi yandi. Nkashi yandi alalanda shani nga takwabe keeke yapa bwinga?"
 
 ##
-Abalumendo balilombele ubwelelo pa kutumfya Vusi. " Tapali ifyo twingacita pali keke, lelo senda inkonto upele nkashi yobe," efyo umo asosele. Vusi alikonkenyepo ubulendo bwakwe.
+Abalumendo balilombele ubwelelo pafyo baacushishe Vusi. "Tapali ifyo twingacita pali keeke, lelo senda inkonto upeele nkashi yobe," efyo umo aasosele. Vusi alikonkenyepo ubulendo bwakwe.
 
 ##
-Munshila akumenye abaume babili balekula ing'anda. " Kuti twabomfyako icimuti ico icakosa?" efyo umo aipwishe. Lelo icimuti tacakosele icakukulilako, efyo caputwike.
+Mu nshila aakumenye abaume babili baleekuula iŋanda. "Bushe kuti twabomfyako icimuti ico icakosa?" efyo umo aipwishe. Lelo icimuti tacakosele icakubomfiwa mu makuule, efyo caputwike.
 
 ##
-"Finshi wacita?" Vusi ali lilile. "Ico icimuti caciba bupe bwakwa nkashi yandi. Abatola ama fuluti ebacimpela icimuti pantu ba citoba ilini lya keke. Keke yaciba yapa bwinga bwakwa nkashi yandi. Nomba tapali ilini, tapali keke, elyo tapali na ubupe. Finshi nkashi yandi alalanda?
+"Ngefi wacita?" Vusi ailishanya. "Ico icimuti caciba buupe bwakwa nkashi yandi. Abacilatoola ifitwalo ebacimpeela icimuti pantu bacitoba ilini lyakupangila keeke. Keeke yaciba no kuba yapa bwinga bwakwa nkashi yandi. Nomba tapali ilini, tapali keeke, elyo kabili tapali no bupe. Nkashi yandi alalanda shani? "
 
 ##
-Bakakula balilombele ubwelelo paku kontola icimuti. "Tapali ifyo twingacita pali keke, lelo bula ifyani ifi upele nkashi yobe," efyo umo asosele. Lelo Vusi alikonkenyepo ubulendo bwakwe.
+Bakakuula balilombele ubwelelo pafyo baakontwele icimuti. "Tapali ifyo twingacita pali keeke, lelo buula icaani ici upeele nkashi yobe," efyo umo aasosele. Vusi alikonkenyepo ubulendo bwakwe.
 
 ##
-Munshila, Vusi akumenye umulimi na ing'ombe. "Yangu ifyani ifi ubusuma, kuti nalyapo utunono?" efya ipwishe ing'ombe. Lelo ifyani fyaliweme sana icakuti ing'ombe yalilile fyonse.
+Mu nshila, Vusi aakumenye umulimi ali ne ŋombe. "Yangu icaani ici ubusuma, bushe kuti nalyapo cinoono?" efyaipwishe iŋombe. Lelo icaani caliweme saana icakuti iŋombe yaliliile conse!
 
 ##
-"Finshi wacita?" Vusi ali lilile. "Ifyani ifyo fyaciba bupe bwakwa nkashi yandi. Bakakula bacimpela ifyani pantu ba cikontola icimuti icacifuma ku batola amafuluti. Abatola amafuluti ba cimpela icimuti pantu bacitoba ilini lya keke yakwa nkashi yandi. Keke yaciba yapa bwinga bwakwa nkashi yandi. Nomba tapali ilini, tapali keke, elyo tapali na ubupe. Finshi nkashi yandi alalanda?
+"Ngefi wacita?" efyailishenye Vusi. "Icaani ico caciba buupe bwakwa nkashi yandi. Bakakuula bacimpela icaani pantu bacikontola icimuti icacifuma ku bacilatoola ifitwalo. Abacilatoola ifitwalo bacimpeela icimuti pantu bacitoba ilini ilyakupangila keeke yakwa nkashi yandi. Keeke yaciba no kuba yapa bwinga bwakwe. Nomba tapali ilini, tapali keeke, elyo kabili tapali no bupe. Nkashi yandi alaayalanda shani? "
 
 ##
-Ing'ombe yali lomba ubwelelo pali bu kaitemwe. Umulimi ali sumina ukuti ing'ombe iye na Vusi nga ubupe bwakwa nkashi yakwe. Efyo Vusi akonkenyepo.
+Iŋombe yalilomba ubwelelo pali ubu buliili. Umulimi alisumine ukuti Vusi asende iŋombe nga ubupe bwakwa nkashi yakwe. Efyo Vusi akonkenyepo.
 
 ##
-Lelo ingo'mbe yalibutwike ukubwelela kuli shibulimi panshita ya cakulya ca mulalilo. Na Vusi alilubile pa bulendo bwakwe. Afikile ku bwinga bwakwa nkashi yakwe ubushiku sana. Abeni baitile ninshi nabatampa na ukulya.
+Lelo iŋombe yalibutwike no kubwelela ku mulimi ilyo inshita ya kulya icakulya ca mulalilo yafikile. Vusi nao alilubile pa bulendo bwakwe. Aafikile ku bwinga bwakwa nkashi yakwe ubushiku saana. Abaitilwe ku bwinga ninshi nabatampa no kulya.
 
 ##
-"Nalacita shani?" Vusi ali lilile. "lIya ing'ombe iyi butwike yali ya bupe, pa fyani bakakula bampele. Bakakula bacimpela ifyani pantu ba cikontola icimuti ica cifuma ku batola ama fuluti. Abatola ama fuluti ba cimpela icimuti pantu ba citoba ilini lya keke. Keke yaciba yapa bwinga. Nomba tapali ilini, tapali keke, elyo tapali na ubupe."
+"Nalacita shani?" efyailishenye Vusi. "lIya ŋombe ibutwike yaciba buupe, pa caani bakakuula bampeele. Bakakuula bacimpeela icaani pantu bacikontola icimuti icacifuma ku bacilatoola ifitwalo. Abacilatoola ifitwalo bacimpeela icimuti pantu bacitoba ilini lyakupangila keeke. Keeke yaciba no kuba yapa bwinga. Nomba tapali ilini, tapali keeke, kabili tapali no bupe."
 
 ##
-Nkashi yakwa Vusi alikutumene panshita iyitali, elyo asosele ati, nshisakamene pa fyabupe, nangu ukusakamana pali keke! Nintemwe ukuti bonse tuli kuno abansansa. Nomba fwaleni ifyakufwala fyenu ifisuma elyo tusefye ubu bushiku! Nacine efyo Vusi acitile.
+Nkashi yakwa Vusi alikutumene panshita iitali, elyo asosa ati, "Nshisakamene pa fyabupe, nangu pali keeke! Nintemwe pantu bonse tuli kuno kabili tuli abansansa. Nomba fwaleni ifyakufwala fyenu ifisuma tusefye ubu bushiku!" Nacine efyo Vusi aacitile.
 
 ##
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: AGNES CHIBAMBA
+* Translation: Agnes Chileshe Chibamba
 * Language: bem

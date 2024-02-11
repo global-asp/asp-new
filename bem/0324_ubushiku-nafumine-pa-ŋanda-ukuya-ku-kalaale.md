@@ -1,52 +1,52 @@
-# Ubushiku nafumine kung'anda ukuya kukalale
+# Ubushiku nafumine pa ŋanda ukuya ku kalaale
 
 ##
-Icitesheni ca sacha mumushi wandi pali abantu abeni nama scha ayaisula. Panshi ninshi pali nafimbi ifyakulonga. Bakaponya ninshi balependilila ukuleya ama sacha.
+Pa citesheni ca saaca mu mushi wandi pali abantu abengi na basaaca abaiswilemo abantu. Panshi napo ninshi pali ifipe na fimbi ifyakulonga. Abalumendo ninshi baleependilila ukuleya basaaca.
 
 ##
-" Kukalale! kukalale! Abaleya kumasamba!" Nabomfwa bale punda, iyi esacha nfwile nanina.
+"Ku kalale! Ku kalale! Abaleya ku masamba!" Naumfwile baleepunda. Eesaaca nalingile ukuniina.
 
 ##
-Sacha ninshi ilinamukwisula, nomba abantu bacili baleisunka ukwingila. Bambi balongele ifipe munshi yasacha. Bambi balongele mutushimbi mukati.
+Saaca yaaleeya ku kalaale ninshi ili mukwisula, nomba abantu beena ninshi bacili balelwisha ukuniina. Bambi baalongele ifipe munshi ya saaca. Bambi baalongele pa tushimbi twa mukati ka saaca.
 
 ##
-Abalenina baleipatika pakuti bafwaye apakwikala mucintu bwingi. Bana mayo abali nabana balikele bwino palwendo pantu lutali.
+Abaaleniina baikatiliile utumatikiti lintu baalefwaya apakwikala muli saaca iyaiswile abantu. Banamaayo abaali na baana baafwaile abaana babo apakwikala bwino pa bulendo ubutali.
 
 ##
-Efyo naipatikishe kwiwindo. Ebonapalamene nabo balifukatile icola ca katapa katapa. Bafyele indyato ishakale, ikoti ilyasapuka nokumoneka abasakamana.
+Naifyantike mupeepi ne windo. Abo naikeele nabo mupeepi baikete akacola ka pulashitiki akakatapakatapa. Baafwele indyato ishakale ne jaketi ilyapwa kabili baaleemoneka mwenso-mwenso.
 
 ##
-Nalolesha panse ya sacha, ukumona uku nesha umushi wandi, umushi uonakulilamo. Ukuya kukalale.
+Naloleshe panse ya saaca elyo caisa mu maano ukuti ciine-ciine naaleefuma mu mushi wandi, incende nakuliilemo. Naleeya ku musumba ukulu.
 
 ##
-Bapwisha ukulonga nabantu bonse baikala. Abakushitisha ninshi bacili balepitana muli sacha ukushitisha amakwebo yabo kubantu. Cilamuntu alepunda ifyo aleshitisha. Ifingi fyalensekesha.
+Bapwisha ukulonga na bantu bonse baikala. Abakushitisha ninshi bacili balepitana muli saaca mu kushitisha utwamakwebo yabo ku bantu. Cila muntu alepunda amashina yafyo aaleeshitisha. Aya mashiwi baaleelanda yaaleesekesha.
 
 ##
-Bamo bamo bashita ifyakunwa, nambi bashita ifyakulya nokwanba ukulya. Abashakwete indalama ngaine twaletambakofye.
+Abalendo abanoono baashitile ifyakunwa, bambi bashita utwakulya batampa no kulya. Abashakwete indalama nga ine baletambakofye.
 
 ##
-Ifyalecitica fyaisa fulunganishiwa nauta ya sacha, iyi uta yakutila twalaima nomba. Kondakita epakupundila bakashitisha ati bafumine panse.
+Ukushitisha no kushita kwapumfyanishiwe lintu uuta ya saacai yalilile, ukulangisha ukuti yaali mukwima. Kondakita epakupundilila bakashitisha bonse ukuti bekile muli saaca.
 
 ##
-Ifyalecitica fyaisa fulunganishiwa nauta ya sacha, iyi uta yakutila twalaima nomba. Kondakita epakupundila bakashitisha ati bafumine panse.
+Bakashitisha balasunkana pa kufuma muli bashi. Bambi baleebwesesha cenji ku baali pa bulendo. Bambi nabo balelwisha ukushitishako ifyakulekelesha.
 
 ##
-Cilya Sacha ilefuma mu chitesheni. Nalengela pawindo. Nasakamana nati bushe nkatala bwele kumushi nafuti.
+Cilya saaca yafuma mu citesheni, nalaalolesha pa windo. Nalaatontokanya nga cakuti nkatala nkabwelelemo ku mushi na kabili.
 
 ##
-Cilya tuleya, muli sacha mwakaba. Naisala amenso ukuti ningashipulako.
+Cilya tuleya, muli saaca mwakaba. Naisala amenso ukuti ningashipulako.
 
 ##
-Nomba amano yandi yabwelela kung'anda. Bushe bamayo bakabafye bwino? Bushe bakalulu bandi bakambweshesha indalama? Bushe ndume yandi akulaibukisha ukutapili ifilimwa fyandi?
+Nomba amaano yandi yabwelela ku ŋanda. Bushe bamaayo bakekala umutende? Bushe bakalulu bandi bakashitishiwa? Bushe ndume yandi akulaibukisha ukutapilila utumuti twandi?
 
 ##
-Munshila naya neswatila amashina yancende ukwaleikala bayama mukalale. Ncili ndetamanshila naponenamutulo.
+Mu nshila naya ndesungila ishina lya ncende ukwaleikala bayaama mu kalaale. Ncili ndeilumbula mu kapoopo naponena mutulo.
 
 ##
-Panuma yansa pabula, nabuka pakunfwa icongo, baleita abantu abalebwekelamo kumushi kumwesu. Nasompola akacola nokufuma muli sacha.
+Panuma yansa pabula, nabukila mu congo cabalepunda no kupumpusha ukwita abaleebwekelamo ku mushi wesu. Nasompola akacoola no kufuma muli saaca.
 
 ##
-Sacha yalebwekelamo yaya ileisula bwangu bwangu. Nombalinefye yalaima ukubwekelamo kukabanga. Icikalamba uli ine nomba kwamba ukufwaya ukwikala bayama.
+Bwangu-bwangu saaca yakubwelelamo yayaileisula. Nombalinefye yalaima ukubwekelamo kukabanga. Icaali icikalamba kuli ine pali ii nshita kwamba ukufwaya iŋanda ya bayaama.
 
 ##
 * License: [CC-BY]

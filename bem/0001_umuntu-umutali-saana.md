@@ -1,37 +1,37 @@
-# Umwaume umutali sana
+# Umuntu umutali saana
 
 ##
-Ulukasu lwakwe lwali ulwipi.
+Ulukasu lwakwe lwali ulwipi saana.
 
 ##
-Umwishi wa pacibi cakwe wali uwipi.
+Umwinshi wakwe wali uwipi saana.
 
 ##
-Ubusanshi bwakwe bwali ubwipi sana.
+Ubusanshi bwakwe bwali ubwipi saana.
 
 ##
-Inchinga yakwe yali iipi.
+Incinga yakwe yali iipi saana.
 
 ##
-Uyu umwaume ali umutali sana.
+Uyu muntu aalilepeshe saana.
 
 ##
-Apangile ulukasu ulutali sana.
+Aapangile umupini wa lukasu uutali saana.
 
 ##
-Apangile umwishi wacibi cakwe uutali.
+Aapangile umwinshi uutali saana.
 
 ##
-Apangile ubusanshi bwakwe ubutali.
+Aapangile ubusanshi ubutali saana.
 
 ##
-Alishita inchinga iitali.
+Aashitile incinga iitali saana.
 
 ##
-Aikele pacipuna icitali sana. Alelila kuli foloko iitali.
+Aaikele pa cipuna icitali saana. Aaleliila kuli foloko iitali saana.
 
 ##
-Ashile ing'anda yakwe nokuya mukwikala mumpanga. Aikele imyaka iingi.
+Aashile iŋanda yakwe no kuya mukwikala mu mpanga. Aikeele imyaka iingi.
 
 ##
 * License: [CC-BY]

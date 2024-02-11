@@ -1,28 +1,28 @@
-# Khalai alitemwa ifilimbwa
+# Khalai Alasosha Icaani ne Fimuti
 
 ##
-Uyu ni Khalai. Ali nemyaka cinelubali. Mu Cibemba, Ishina lyakwe lipilibula "umuntu umusuma".
+Uyu ni Khalai. Ali na imyaka cine-lubali. Ishina lyakwe mu lulimi lwakwe, ulwa Cilubukusu lipilibula "umusuma".
 
 ##
-Lyonse Khalai nga ashibuka alalaanda ku cimuti cama cungwa ati: "Wecimuti cama cungwa, napapaata kula, utwaale namacungwa ayeengi, utupeleko tulyeko."
+Lyonse Khalai nga ashibuka alasosha icimuti ca macungwa ati: "We cimuti ca macungwa, napaapaata kula, utwaale na macungwa ayaapya ayeengi."
 
 ##
-Khalai nga aleenda lyonse pakuya kusukuulu alalaanda kufyani ati: "We cani, napapaata moneka uwayemba elyo kabili wilauma."
+Khalai nga aleenda lyonse pa kuya ku sukuulu alasosha icaani ati: "We caani, napaapaata moneka uwayemba elyo kabili wilauma."
 
 ##
-Khalai nga asaanga amaluba yampanga nayo alayeba ati: "Mwe maluba mulebaluula bwino bwino pakuti ndeswako nokufwala mumutwe wandi."
+Khalai nga asaanga amaluba ya mpanga nayo alayeba ati: "Mwe maluba muleebalula bwino-bwino pakuti ndeswako no kubiika mu mushishi wandi."
 
 ##
-Khalai nga afika kusukulu, lyonse alalaanda kucimuti icabeela pakati kalubansa lwesukulu ati: "Wecimuti, napapaata kula utwale nemisaambo iyakutupeela icintelelwe icakuti tuleikalamo pakubeleenga."
+Khalai nga afika ku sukulu, lyonse alasosha icimuti icabeela pakati ka lubansa lwe sukulu ati: "We cimuti, napaapaata kula utwale ne misambo iyakutupeela icintelelwe icakuti tuleikalamo pa kubelenga."
 
 ##
-Elyo kabili, Khalai alalaanda kulupango lwesukulu ati: "We lupango ube uwakosa saana pakuti ulelesha ifipondo ififwaya ukwingila mukati ke sukuulu lyesu."
+Elyo kabili, Khalai alasosha utumuti utwacingilila isukulu ati: "Mwe tumuti mube abakosa saana pakuti mulelesha ifipondo ukwingila mukati ke sukulu lyesu."
 
 ##
-Khalai nga ainuka lyonse, alaya mukupempula icimuti camacungwa nokucipuusha ati: "Bushe amacungwa yobe nanoomba tayalapya?"
+Khalai nga ainuka lyonse, alaya mu kupempula icimuti ca macungwa no kucipusha ati: "Bushe amacungwa yobe na nomba tayalapya?"
 
 ##
-Aaaa! Amacungwa yacili ayabishi! Nkesa kumonako nakabili mailo. Limbi nkasangako nangu icungwa limo nalipya.
+"Amacungwa yacili ayabishi!" efyasosa Khalai. "Nkesa kumonako mailo we mucungwa” efyasosa Khalai. Limbi lyena nkasanga naukwata icungwa ilyapya."
 
 ##
 * License: [CC-BY]

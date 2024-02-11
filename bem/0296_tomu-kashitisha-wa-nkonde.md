@@ -1,40 +1,40 @@
-# Tomu kashitisha wa Nkonde
+# Tomu kashitisha wa nkonde
 
 ##
-Tomu alasenda ulupe lwa nkonde ishapya.
+Tom alasenda ulupe lwa nkonde ishapya.
 
 ##
-Tomu alaya kumaliketi mukushitisha inkonde.
+Tom alaya ku maliketi mu kushitisha inkonde.
 
 ##
-Abantu kumaliketi balashita ifinsabwa nsabwa.
+Abantu pa maliketi baleeshita ifitwalo.
 
 ##
-Nomba tapali nangu umo uuleshita kuli Tomu
+Nomba tapali nangu umo uuleshita kuli Tomu.
 
 ##
-"Mumushi wesu, banamayofye ebashitisha ifinsabwansabwa", efilanda abantu. "Mwaume wamusango shani uyu?"
+"Mu mushi wesu, banamaayofye ebashitisha ifitwalo," efilanda abantu. "Mwaume wa musango shani uyu?" efyo bepusha.
 
 ##
-Nomba Tomu taleka. Aleta abantu, "shiteni inkonde shandi! Shiteni inkonde shandi ishapya elyo ishalowa!"
+Nomba Tomu taleka. Aleeta abantu, "Shiteni inkonde shandi! Shiteni inkonde shandi ishapya kabili ishalowa!"
 
 ##
-Namayo umo asendapo umusemo umo palupe. Bashilolekesha sana.
+Namaayo umo asendapo inkonde shimo pa lupe. Ashilolekesha bwino-bwino.
 
 ##
-Banamayo bashita inkonde.
+Uyu namaayo ashita inkonde.
 
 ##
-Abantu abengi balesa kwituka. Balashita inkonde shakwa Tomu nokushilya.
+Abantu abengi baisa pali Tomu. Balashita inkonde shakwa Tomu no kushilya.
 
 ##
-Panonofye ulupe lwapwa. Tomu epakupenda indalama apanga.
+Ukwabula ukupoosa inshita, inkonde shapwa mu lupe. Tomu apenda indalama apanga.
 
 ##
-Tomu ashitamo isopo, insukale no mukate. Abika ifintu fyakwe palupe.
+Tomu ashitamo isopo, shuga no mukate. Afibiika mu lupe.
 
 ##
-Tomu alatengesela ulupe lwakwe pa mutwe nokubwekela kung'anda.
+Tomu alaatengeseela ulupe lwakwe pa mutwe no kubwelela ku ŋanda.
 
 ##
 * License: [CC-BY]

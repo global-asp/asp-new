@@ -1,28 +1,28 @@
 # Ifyakufwala fya kusukulu
 
 ##
-Ilaya ili litali.
+Ilaya ili liitali.
 
 ##
 Sweta iyi ikulu.
 
 ##
-Icola ici cikulu.
+Icoola ici ciikulu.
 
 ##
 Umushipi uyu...
 
 ##
-Icisote ici cinono.
+Icisote ici ciinoono.
 
 ##
 Insokoshi shiipi.
 
 ##
-Nomba insapato ishi shipya.
+Nomba insapato ishi shiipya.
 
 ##
-Shilalinga bwino.
+… Shilalinga bwino.
 
 ##
 * License: [CC-BY-NC]

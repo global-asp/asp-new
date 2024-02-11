@@ -1,28 +1,28 @@
 # Umubili wandi
 
 ##
-Kuti nabutuka nao
+Kuti nabutuka nao.
 
 ##
-Kuti natoloka nao
+Kuti natoloka nao.
 
 ##
-Kuti nasha nao
+Kuti nashana nao.
 
 ##
-Kuti na owa nao
+Kuti naowa nao.
 
 ##
-Kuti naciluka nao
+Kuti naciluka nao.
 
 ##
-Kuti napanta nao
+Kuti napanta nao.
 
 ##
-Kuti naluba nao
+Kuti nafyuka nao.
 
 ##
-Teti impupuke nao
+Nomba teti impupuke nao.
 
 ##
 * License: [CC-BY-NC]

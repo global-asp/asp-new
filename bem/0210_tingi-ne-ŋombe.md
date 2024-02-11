@@ -1,37 +1,37 @@
-# Tingi na in'gombe
+# Tingi ne ŋombe
 
 ##
-Tingi aleeikala naba nakulu.
+Tingi aaleikala na banakulu.
 
 ##
-Aaleafwa banakulu ukusunga in'gombe.
+Aaleafwa banakulu ukucema iŋombe.
 
 ##
-Bushiku bumo abashilika baishile.
+Ubushiku bumo abashilika balishile.
 
 ##
-Baasendele In' gombe no kuya nasho
+Baasendele iŋombe no kuya nasho.
 
 ##
-Tingi na banakulu baabutwike.
+Tingi na banakulu baalibutwike babelama.
 
 ##
 Baabeleme mu mpanga mpaka bwaila.
 
 ##
-Elyo abashilika baishile nakabili.
+Abashilika balishile na kabili.
 
 ##
-Banakulu baafishile Tingi panshi yamabula.
+Banakulu baafishile Tingi panshi ya mabuula.
 
 ##
-Umo pa bashilika aabikile ulukasa palya pene pali Tingi, nomba Tingi aali fye tondolo.
+Umushilika umo aanyantile Tingi, lelo Tingi aalifye tondolo.
 
 ##
-Lintu abashilika baile, Tingi na banakulu bafisamwike.
+Lintu abashilika baile, Tingi na banakulu balifisamwike.
 
 ##
-Baile ku n,ganda umutalalila.
+Baile ku ŋanda umutalalila.
 
 ##
 * License: [CC-BY]

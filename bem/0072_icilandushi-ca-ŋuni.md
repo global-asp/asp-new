@@ -1,37 +1,37 @@
-# Icilandushi cakwa kalinda wa buchi
+# Icilandushi ca ŋuni
 
 ##
-Akakalyashi kakwa Ngede, kalinda wa buchi na Gingile uwakaso. Bushiku bumo ninshi Gingile aile mukulunga aunfwile Ngede alemwita. Mukanwa kakwa Ngele mwaiswilila pakunfya ikyashi lya buchi. Efyo aiminine ukunfwikisha, ayamba ukunfwikisha, ukufwailisha mpaka amona iconi bucimuti pamulu wamutwe wakwe. "Chitik-chitik-chitik," akacini kalila cilya kalepululuka ukuya kucimuti cimbi, nacimbi. "chitik-chitik-chitik" nokwiminina limolimo pakushininkisha ukuti Ginglie alekonka.
+Ili lyashi lili pa ŋuni iitungulula ku buuci iyaleitwa ukuti Ngede, elyo no mulumendo wakaso Gingile. Ubushiku bumo ilyo Gingile aali mu mpanga alelunga, aumfwile aka kooni ka Ngede kalelila. Gingile aatontokenye pa buuci, awe na mate mu kanwa yasabuka. Gingile aaliminine aumfwikisha, uku ninshi aleefwailisha mpaka akamona mu misambo ya muti pa muulu wa mutwe wakwe. "Citiki-citiki-citiki," efyalelila akooni, elyo kaima kapupuka ukufuma ku muti ukuya kuli umbi. "Citiki-citiki-citiki," kalemwita, uku ninshi kaletanauka ku miti no kuloleela pa kushininkisha ukuti Gingile aleekakonka.
 
 ##
-Panuma yakashita kanono, bafika pacimuti icikulu. ngede ekeamba ukutantala mumisambo. Elyo aisa ikala pamusambo umo nokusontelela Gingile kumutwe kwati alemwalula ," Pano! isa nomba! Ninshi ulecita palyaponse?" Gingile tamwene inshimu munshi yacimuti lelo alicetekele Ngede.
+Panuma ya kashita kanoono, bafika pa mukunyu uukalamba. Ngede alatanauka nga uupenene mu misambo. Elyo aikala pa musambo umo no kuŋunusha umutwe kwati aleecesha Gingile ukuti, "Ubu apa! Isa nomba. Cinshi uleekokwela?" Gingile taamwene inshimu ku muti ukufuma apo aiminine lelo alicetekele ukuti Ngede teeti abeepe.
 
 ##
-Efyo abikile umufwi wakwe mwisamba lyacimuti, alonganika utukuni akosha nomulilo. Ututukuni twali utwacushi sana ngatule yaka. Eyo aninine kucimuti naikatilila kumpela yatumuti kumeno yakwe.
+Efyo aabikile ifumo lyakwe mwisamba lya cimuti, alonganika utusansu akosha umulilo. Elyo umulilo wayakile, aabulile akamuti akatali akauma akabiika pa mulilo. Gingile aalishibe na kale ukuti aka kamuti kaalefuusha saana icuushi nga kalepya. Aatampile ukuniina ku muti, aasumine ku lubali lwa kamuti ukwatalele ukushalefuuka cuushi.
 
 ##
-Panonofye aunfwa uko inshimu shile pupuka. Shalefuma nokwingila mubwendo bwa cimuti- mulupako lwanshimu. Cilya Gingile afika palupako, asunkilisha kumpeka yachusi mucipunda. Inshimu epakufulumukamo, nashikalipa. Shapupuka shaya pantu tashatemwa ichushi- lelo shalisha shamusumaulako Gingile.
+Mu kashita kanoono aumfwa uko inshimu shilelila. Shalefuma no kwingila mu lupako lwa cimuti – umo shaleikala. Cilya Gingile afika pa lupako, aingisha ulubali lwa kamuti ukwalefuuka icuushi mu lupako. Inshimu shalapupuka ukufumamo, nashikalipa. Shapupuka shaya pantu tashatemenwe icuushi – lelo lintu tashilaya shimo shasha shamusuma shamushiila ne imbola ishakalipa.
 
 ##
-Cilya shaya, aingisha ukuboko micinsa. Asendamo ubuchi buletona, ubusuma, ubwamafuta. Epakubika bwino bwino mukacola kakwe asndele pakubeya nokwamba ukwikila.
+Cilya inshimu shaya, aingisha ukuboko mu lupako. Asendamo ifipeepe, ifyaisula ubuuci ne fyana fya nshimu ifyaina. Abiika ifipeepe bwino-bwino mu kacoola aakobeeke pa kubeya atampa no kwikila.
 
 ##
-Ngede ninshi aletamba fyonse. Alelolelafye ukumushila icipandwa cabuchi bwakwe pakumutasha- pakumulanga apali ubuchi. Ngede apitana kunisambo mpaka aya alefika panshi. Mpaka afika panshi, ayamba ukusobaula panshi mupepi nomulumendo pakulolela icabupe cakwe.
+Ngede aaleetamba fyonse ifyaleecita Gingile. Aaleeloleela ukumushilako icipeepe icatikama pa kumutotela pafyo amutungulwile ku buuci. Ngede aile aleetanuka ku misambo aleepalamina panshi. Gingile asuka afika panshi ya cimuti. Ngede aikala pelibwe mupeepi no mulumendo alaaloleela icilambu.
 
 ##
-Lelo Gingile ashimya nomulilo, asenda umufwi wakwe ayamba nokubwekela kumushi ukwabula nokuposa amano kuli Ngede. "Vic-torr! Vic-torr!" Gingile epakwiminina nokulolesha icuni, ayamba ukuciseka. "mune ulefwaya ubuchi? nine nacibomba incito yonse, nine inshimu shacisuma. Ninshi nalakupelelako ubuchi bwandi?" Efyo aile nokuya. Ngede tepakufulwa! Lelo alifilwa ukulandula.
+Lelo Gingile aashimishefye umulilo, abuula ifumo lyakwe ayamba no kubwekela ku mushi ukwabula no kupoosa amaano ku kooni. Ngede alila ati, "Fikici-to! Fiki-to!" Gingile aiminina alolesha akooni, ayamba no kukaseka. "Mune uleefwaya ubuuci? Nine nacibomba incito yonse, nine inshimu shacisuma. Cinshi nalakupeelelako ubuuci bwandi?" Efyo aile no kuya. Ngede tepakufulwa! Lelo aalishibe ukuti akalandula.
 
 ##
-Bushiku bumbi futi, Gingile aunfwa ubuchi buleita Ngede. Aibukisha ubuchi ubusuma nakabili akonkamo mucuni. Cilya bafika kumpela yampanga, Ngede aiminina pakuti atushako mwisaamba lyacimuti camyunga. "Ahh, ulupako lufwile lwaba mucimuti umu." Bwangu bwangu ayasha umulilo ayamba na ukunina icimuti, icushi cilepita namumeno. Ngede ninshi naikala aletamba.
+Ubushiku bumbi panuma ya milungu iingi, Gingile na kabili aumfwile Ngede aleita. Aibukisha ifyo ubuuci bwalowele, na kabili akonka akooni. Panuma yakupishanya Gingile mumbali ya miti, Ngede aikala mwisamba lya cimuti ca myunga pakuti atusheeko. "Ahh, ubuci bufwile ukuba kuli uyu muti," efyatontonkenye Gingile. Bwangu-bwangu akosha akamulilo ayamba no kuniina ku cimuti, nasuma na kamuti akaleefuusha icuushi. Ngede ninshi naikala aleetamba.
 
 ##
-"Chinshi inshimu tashilefumina filya ciba lyonse, limbi ulupako naluya sana apatali". Aya kumusambo umbi, ukwisa isanga aleloleshanya nembwili mumenso. Imbwili tepakufulwa pauipunfyanya utulo. Yatontomesha amenso, nokwisula akanwa nameno yatwa yamoneka.
+Gingile aniina ku muti nomba camupapusha pantu taaleumfwa inshimu nga lyonse. Mu maano alaatontonkanya ati,	"Limbi inshimu shaaba mukati kalupako ulutali." Aya ku musambo umbi. Nomba ese aloleshe, baloleshanya ne mbwili. Imbwili tepakufulwa pa kuifulunganishisha utulo. Yatina amenso, no kwasama pa kulangisha ameeno ayatali ayatwa.
 
 ##
-Cilya imbili tailati ipilibuke, Gingele abutuka ukwikila kucimuti. Mukubutuka apusa umusambo umo epakuisanga panshi, aikontola nanokulu. Aesha ukuikula bwangu bwangu, iceshuko imbwili yali notulo, tayamupepeke. Ngede kalinda wabuchi efyo alandwile elyo na Gingile abambililepo ukukana itemwa.
+Bwangu-bwangu Imbwili tailamufoola, Gingile apululuka ku muti. Mu kufwaya ukwikila lubilo-lubilo apusa umusambo, no kuya ponena panshi na luntu aifyutula ne nkolokoso. Aya ulubilo alesunta. Iceshuko, Imbwili yali no tulo tayamupepeeke. Ngede, iŋuni, efyo aalandwile. Gingile nao efyo aasambiliile.
 
 ##
-Kanshi abana bakwa Gingile ngabaumfwa ilyashi lyakwa Ngede bacindi utoni utunono. Lyonse ngabapanda ubuchi, balatushilapo ubuchi bumo ubwakwa kalinda wabuchi.
+Kanshi ilyo abaana bakwa Gingile bomfwa ili lyashi lyakwa Ngede, balacindika aka kooni. Lyonse nga bapanda ubuuci, balashilako iŋuni icipeepe ca buuci icikulu.
 
 ##
 * License: [CC-BY]

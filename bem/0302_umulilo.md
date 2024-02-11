@@ -4,16 +4,16 @@
 Mona, umulilo!
 
 ##
-Umulilo uloca.
+Umulilo ulooca.
 
 ##
-Umulilo ulepikilwako.
+Umulilo ulabomba mukwipika.
 
 ##
-Umulilo ulapela icikabilila.
+Umulilo ulapeela icikabilila.
 
 ##
-Umulilo ulapela ulubuto.
+Umulilo ulapeela ulubuto.
 
 ##
 Mona, umulilo!
@@ -22,7 +22,7 @@ Mona, umulilo!
 Umulilo usuma.
 
 ##
-Elo kabili, walikwata amaka.
+Elyo kabili walikwata amaka.
 
 ##
 * License: [CC-BY]

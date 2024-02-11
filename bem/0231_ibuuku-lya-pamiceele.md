@@ -1,10 +1,10 @@
-# Ibuku lya mpepo
+# Ibuuku lya pamiceele
 
 ##
 Taileloka.
 
 ##
-Namukaba mukasuba.
+Akasuba nakakaba.
 
 ##
 Umwela uleepuupa.
@@ -16,7 +16,7 @@ Kuli amakumbi.
 Nakutalala.
 
 ##
-Ileeloka.
+Imfula ileeloka.
 
 ##
 Ileepanta.

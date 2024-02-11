@@ -1,32 +1,32 @@
-# Ukupenda inama
+# Ukupenda Inama
 
 ##
-Insofu imo ileya mu kunwa amenshi.
+Insofu imo ileeya mu kunwa ameenshi.
 
 ##
-Indyabuluba shibili shileya mu kunwa amenshi.
+Indyabuluba shibili shileeya mu kunwa ameenshi.
 
 ##
-Imboo shitatu na ifyuni fine nafyo fileya mu kunwa amenshi.
+Imboo shitatu ne fyuni fine nafyo fileeya mu kunwa ameenshi.
 
 ##
-Ba Cisongo basano na injili mutanda baleya ku menshi.
+Impombo shisaano na bamunjili mutanda baleeya ku meenshi.
 
 ##
-Ba Colwa cinelubali balebutukila ku menshi.
+Bacoolwa cine-lubali baleebutukila ku meenshi.
 
 ##
-Ba cula cinekonsekonse na isabi pabula balesamba mu menshi.
+Baacuula cine-konse-konse ne sabi pabula fileesamba mu menshi.
 
 ##
-Inkalamo imo yabuluma. Nayo ilefwaya ukunwa. Nani aletina inkalamo?
+Inkalamo imo yabuluma. Nayo ileefwaya ukunwa ameenshi. Naani aletiina inkalamo?
 
 ##
-Insofu imo ilenwa amenshi na inkalamo.
+Insofu imo ilenwa ameenshi ne nkalamo.
 
 ##
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: AGNES CHIBAMBA
+* Translation: Agnes Chileshe Chibamba
 * Language: bem

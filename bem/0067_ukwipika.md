@@ -1,28 +1,28 @@
 # Ukwipika
 
 ##
-Mpala imfyumbu.
+Mpala Imfyumbu.
 
 ##
 Mputaula kabeci.
 
 ##
-Nsesa kalota.
+Nseesa kalota.
 
 ##
-Nsamba cilemba.
+Nsamfya cilemba.
 
 ##
 Mputula utupushi.
 
 ##
-Mputula bashipinaci.
+Mputula shipinaci.
 
 ##
 Bamaayo baputula onyoni.
 
 ##
-Onyono ilenga ukuti nalila nga ileeputulwa.
+Onyoni ilalenga ukuti nalila ifilamba nga ileputulwa.
 
 ##
 * License: [CC-BY-NC]

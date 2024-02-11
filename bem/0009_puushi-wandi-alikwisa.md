@@ -1,25 +1,25 @@
-# Puushi wandi ali kwisa?
+# Puushi wandi alikwisa?
 
 ##
-Puushi wandi ali kwisa?
+Puushi wandi alikwisa?
 
 ##
 Bushe ali mwisamba lya busanshi?
 
 ##
-Bushe ali pamulu wa kabati?
+Bushe ali pa muulu wa kabati?
 
 ##
 Bushe ali kunuma ya cipuna?
 
 ##
-Bushe ali mupepi na umwakuposa ifisoso?
+Bushe ali mupepi na iŋungulu?
 
 ##
-Bushe ali mu bashiketi?
+Bushe ali muli bashiketi?
 
 ##
-Bushe ali panse ya ng'anda?
+Bushe ali panse ya ŋanda?
 
 ##
 Uyu ali kuno!

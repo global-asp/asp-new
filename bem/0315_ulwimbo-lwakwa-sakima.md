@@ -1,58 +1,58 @@
 # Ulwimbo lwakwa Sakima
 
 ##
-Sakima aaleikala naba fyashi bakwe pamo nankashi yakwe uwa myaka ine. Baleikala pancende ya mukankaala. Ng'anda yabo iya fiilu yaikeele kumpela yamiti.
+Sakima aaleikala na bafyashi bakwe pamo na nkashi yakwe uwamyaka ine. Baleikala pancende ya mukankaala umo. Iŋanda yabo iyafyani yabeleele kumpela ya miti.
 
 ##
-Lintu Sakima aali nemyaka itatu, alipofwike kumulandu wabulwele. Sakima aali umulumendo wetalanta.
+Ilyo Sakima aali ne myaka itatu, alipofwile ku mulandu wa bulwele. Sakima aali mulumendo uwakwete icabupe.
 
 ##
-Sakima aalecita ifintu ifingi efyo abalumendo bamyaka mutanda balefilwa. Mukulangilisha, aleikala paba kulu bamumushi na ukulanshanya pamafya yacindima.
+Sakima aaleecita ifintu ifingi efyo abalumendo bamyaka mutanda baaleefilwa. Ico mwingamwenako cimo cakuti, uyu Sakima aaleikala pa bakulu bamumushi no kulanshanya pa milandu iikankaala.
 
 ##
-Abafyashi bakwa Sakima baalebomba pa ng'anda yamukankaala. Baalefumapo kumaca nokubwela inshita yabushiku. Sakima aleshaala na nkashi yakwe
+Abafyashi bakwa Sakima baaleebomba pa ŋanda ya mukankaala. Baaleefuma pa ŋanda ku macaaca no kubwela inshita ya bushiku. Sakima aaleeshaala na nkashi yakwe.
 
 ##
-Sakima aalitemenwe ukwimba inyimbo. Bushiku bumo ba nyina balimwipwishe, "Usambilila kwisa ishi nyimbo Sakima?"
+Sakima aalitemenwe ukwimba inyimbo. Ubushiku bumo banyina balimwipwishe abati, "Usambilila kwisa ishi nyimbo, Sakima?"
 
 ##
-Sakima alyaswike ukutila "Nashishibafye ba mayo, nda shumfwa mumutwe elyo nashimba".
+Sakima ayaswike ati "Shiisafye, maayo, nshumfwa mu mutwe elyo nashimba."
 
 ##
-Sakima alitemenwe ukwimbila nkashi yakwe, maka maka nkashi yakwe ngaumfwa insala. Nkashi yakwe aalekutika Sakima ale imba ulwimbo atemenwe saana, ninshi ayamba ukuyisunsuntila ku ci unda ca lwimbo.
+Sakima alitemenwe ukwimbila nkashi yakwe, maka-maka nkashi yakwe nga aumfwa insala. Nkashi yakwe aaleekutika uko Sakima aleimba ulwimbo atemenwe saana, ninshi ayamba ukuisunsuntila ku ciunda ca lwimbo.
 
 ##
-Nkanshi yakwe aalepapata "bushe kuti waimba nakabili Sakima." Sakima aalesumina na ukubwekeshapo ukwimba ulwimbo. Imiku iingi
+Nkanshi yakwe aaleemulomba ati, "Njimbilako na kabili, Sakima." Sakima aaleesumina no kubwekeshapo ukwimba ulwimbo imiku iingi.
 
 ##
-Bushiku bumo lintu aba fyashi bakwe ba bwelele pa ng'anda, bafikile tondolo. Sakima aalishibe ukutiila pali ifilubene.
+Ubushiku bumo ilyo abafyashi bakwe baabwelele pa ŋanda, baalifye tondolo. Sakima aalishibe ukutiila pali ifyalubene.
 
 ##
-"Nindo ilubene ba mayo na ba tata?" efo ayipwishe. Sakima alisambilile ukutiila umwana wamukankaala aali luba. Umukankaala aali uwa cikonko nowabulanda.
+"Finshi ifilubene, maayo, taata?" efyo aabepwishe. Sakima Baamwebele ukutiila umwana wa mukankaala aalilubile. Umukankaala aali no bulanda nganshi kabili aalifye eka bulanda-bulanda.
 
 ##
-"Kuti na mwimbila. Kuti aikalako uwansansa nakabili," abafyashi bakwe bamwipwishe ukutiila. Uyu muntu mukankaala saana. Uli mulumendo wapofuka amanso epela. Uletontokanya ukutiila ulwimbo lobe elwinga mwafwilisha?
+"Kuti namwimbilako. Limbi kuti asansamuka na kabili," efyo Sakima aebele abafyashi bakwe. Nomba abafyashi bakwe balikene. Abati, "Uyu muntu mukankaala saana. Iwe uli mwaice kabili taumona. Uleetontokanya ukutiila ulwimbo lobe kuti lwamwafwilisha?"
 
 ##
-Sakima taanenwiike. Nkashi yakwe aalimwafwilishe. Atiile, "Inyimbo shakwa Sakima shilantalalika elyo ndi nensala." Shi katalalika na umukankaala.
+Sakima taanenwiike. Nkashi yakwe aalimulandiileko. Aatiile, "Inyimbo shakwa Sakima shilantalalika nga ndi ne nsala. No mukankaala wine kuti shamutalalika. "
 
 ##
-Ubushiku bwakonkelepo, Sakima ayebele nkashi yakwe ukumutungulula kung'anda yamukankaala.
+Ubushiku bwakonkelepo, Sakima aebele nkashi yakwe ukumutungulula ku ŋanda ya mukankaala.
 
 ##
-Aiminine mwisamba lya nsolokoto nokwamba ukwimba ulwimbo lwakwe. Panono panono, umutwe wamukankaala wayambile ukulanga pansolokoto.
+Aiminine mwisamba lye windo ilikalamba no kwamba ukwimba ulwimbo aatemwishishe. Panoono-panoono, umutwe wa mukankaala wayambile ukumoneka pa windo.
 
 ##
-Aba bomfi baalekele imilimo yabo. Baalekutika ku lwimbo lwakwa Sakima ulwawama nganshi. Abaume bamo basosele ukutiila "tapaaba nangu umo uwakwanisha ukutalalika ba bwana. Bushe uyu mulumendo wapofuka alemona kwati kuti abatalalika?"
+Ababomfi baaleekele imilimo yabo. Baaleekutika ku lwimbo lwakwa Sakima ulwawama nganshi. Nomba shitaata umo aatiile, "Tapaaba nangu umo uwakwanisha ukutalalika ba bwana. Bushe uyu mulumendo wapofula aleemona kwati kuti abatalalika?"
 
 ##
-Sakima alipwishishe ukwimba ulwimbo lwakwe nokupilibuka ati ambeko kumwabo. Nomba umukankaala alifumine panse nokutila "Napapata, imba nakabili."
+Sakima alipwishishe ukwimba ulwimbo lwakwe kabili alimine ukuti aleeya ku mwabo. Nomba umukankaala alifumine panse no kutiila "Napaapaata, imba na kabili."
 
 ##
-Ukutula Ubushiku bulya, abaume babili bafikile nabasenda umuntu pamacila. Ba sangile umwana wamukankaala napumwa nokushiiwa kumbali ya musebo.
+Apopeene kwaishile abantu babili nabasenda umuntu pa macila. Baasangile umwana wa mukankaala nabamupuma ku fipondo kabili bamushiile mumbali ya musebo.
 
 ##
-Umukankaala aali uwa nsansa pakumona umwana wakwe nakabili. Aali lambwile Sakima pa kumutalalika kumutima. Asendele umwana wakwe na Sakima ku cipataala mukumona nga kuti Sakima amona nakabili.
+Umukankaala aalisansamwike pa kumona umwana wakwe na kabili. Aalilambwile Sakima pa kumutalalika ku mutima. Aatwele umwana wakwe na Sakima ku cipataala mu kumona nga kuti Sakima atampa ukumona na kabili.
 
 ##
 * License: [CC-BY]

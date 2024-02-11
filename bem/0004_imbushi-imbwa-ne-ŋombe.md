@@ -1,28 +1,28 @@
-# Imbushi, Imbwa na Ing'ombe
+# Imbushi, Imbwa ne ŋombe
 
 ##
-Imbushi, Imbwa na Ing'ombe bali ifibusa sana. Bushiku bumo baile palwendo muli ka motoka.
+Imbushi, Imbwa ne ŋombe baali fibusa saana. Ubushiku bumo baile pa bulendo muli motoka.
 
 ##
-Elyo bafikile ukobaleya, namutekenya abebele ukulipila indalama. Ing'ombe ifyo yaiilipilile.
+Ilyo baafikile uko baaleya, namutekenya aabebele ukulipila indalama. Iŋombe yalilipiile.
 
 ##
-Imbwa yalipila ukucishapo pantu tayakwete indalama ishalungama.
+Imbwa yaalipile indalama iikalamba pantu tayakwete indalama iinoono.
 
 ##
-Namutekenya cilya ati apele imbwa ishapulilepo, Imbushi imbushi epakubutuka ukwabula ukulipila ifili fyonse.
+Namutekenya cilya aalimukupeela Imbwa cenji, Imbushi yabutuka ukwabula ukulipila nangu lumo.
 
 ##
-Namutekenya tepakufulwa sana. Efyo aenseshe kamotoka ukwabula ukubwesesha Imbwa indalama shapulilepo.
+Namutekenya tepakufulwa. Efyo aenseshe motoka ukwabula ukubwesesha Imbwa cenji.
 
 ##
-Eco mpaka nalelo imbwa shipepekela motoka pakuti shimone mukati ngacakuti namutekenya aikwatila indalama emwali.
+Eco, mpaka na leelo, Imbwa ipepekela motoka pakuti imone mukati nga cakuti namutekenya uwaikwatila indalama emwali.
 
 ##
-Imbushi shilabuta iciunda camotoka. Ilatina ukuikata pamulandu wakukana lipila indalama.
+Imbushi ilabutuka iciunda ca motoka. Ilatiina ukuikata pa mulandu wa kukaana lipila indalama.
 
 ##
-Elyo ing'ombe yena taisakamana nangu motoka ileisa. Yendafye cilumba cilumba nangu motoka ileisa pakuciluka umusebo pantu yalishiba ukuti yalilipila indalama shonse.
+Elyo Iŋombe yena taisakamana nangu motoka ileisa. Yendafye cilumba-cilumba pa kuciluka umusebo nangu motoka ileisa pantu yalishiba ukuti yalilipila indalama shonse.
 
 ##
 * License: [CC-BY]

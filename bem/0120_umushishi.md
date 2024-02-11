@@ -1,28 +1,28 @@
 # Umushishi
 
 ##
-Thuli abanomushishi uwipi
+Thuli akwata umushishi uwipi.
 
 ##
-Anna abanomushishi uutali
+Anna akwata umushishi uutali.
 
 ##
-Cathy abanomushishi uutali pali bonse
+Cathy akwata umushishi uutali ukucila bonse.
 
 ##
-Zama naluka umushishi wakwe
+Zama naluka umushishi wakwe.
 
 ##
-Baba aba nomwefu
+Baba alikwata umwefu.
 
 ##
-Zanele nasakula umushishi wakwe
+Zanele nasakula umushishi wakwe.
 
 ##
-Thabo nabeya umushishi wakwe
+Thabo nabeya umushishi wakwe.
 
 ##
-Themba nabeya umushishi wakwe
+Themba nabeya umushishi wakwe.
 
 ##
 * License: [CC-BY-NC]

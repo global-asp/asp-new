@@ -13,7 +13,7 @@ Utumenso tubili utwakumwenako.
 Utumatwi tubili utwakumfwilako.
 
 ##
-Utumaboko tubili utwacitemwiko utwakukumbatilako.
+Utumaboko tubili utwacitemwiko kabili utwakukumbatilako.
 
 ##
 * License: [CC-BY-NC]

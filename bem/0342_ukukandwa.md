@@ -4,37 +4,37 @@
 Ubushiku bumo bamaayo balikwete ifisabo ifingi.
 
 ##
-Twalipwishe, "Ni lilali tuleelyako ifisabo?" Bamaayo abati, "Tuleelya ifisabo ubushiku."
+Twaipusha ati, "Ni nshitanshi twalalyapo ifitwalo?" Bamaayo abati, "Tuleelya ifitwalo ubushiku."
 
 ##
-Ndume yandi Rahim alifunuka. Aletoma fyonse ifisabo. Alile ifingi.
+Ndume yandi Rahim alifunuka. Alyako ku fitwalo fyonse. Aalya ifingi.
 
 ##
-"Moneni ifyo Rahim acitile." kandume yandi kapunda. Nayasuka ati, "Rahim toomfwa kabili aliitemwa."
+"Moneni ifyo Rahim acitile," efyapundile kandume yandi. Nayasuka nati, "Rahim toomfwa kabili aliitemwa."
 
 ##
-Bamaayo balifulilwe Rahim saana.
+Bamaayo naabamufulilwa saana Rahim.
 
 ##
-Bonse naifwe twalifulilwe Rahim. Nomba Rahim tasakamene.
+Na ifwe bonse naatumufulilwa Rahim. Nomba Rahim tasakamene.
 
 ##
-Akamwaice kandi kaipwishe ati, "Tamwamukande Rahim."
+Akaice kandi kaipusha akati, "Bushe tamwamukande Rahim?"
 
 ##
-Bamaayo bamusokele abati, "Calakubipila nomba line."
+Bamaayo bamusoka ati, "Rahim caalakubipila nombaline."
 
 ##
-Rahim atampile ukumfwa ukulwala.
+Rahim atampa ukuumfwa ukulwala.
 
 ##
-Rahim atotosha ati, "Ulufumo lwandi lwalakalipa."
+Rahim atootoosha ati, "Ulufumo lwandi lwalakalipa."
 
 ##
-Bamaayo balishibe ukuti ifi filecitika. Ifisabo fileekanda Rahim.
+Bamaayo baalishibe ukuti ifi efyali no kucitika. Ifitwalo filekanda Rahim.
 
 ##
-Panuma, Rahim alombele ubwelelo kuli ifwe. "Nshakafunuke nakabili."Alaya. Bonse twalimusuminishe.
+Panuma, Rahim alomba ubwelelo kuli ifwe. Alaya ati, "Nshakafunuke na kabili." Bonse twamusuminisha. Takabwekeshepo icimusango cakuitemwa.
 
 ##
 * License: [CC-BY]

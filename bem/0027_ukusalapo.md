@@ -1,52 +1,52 @@
 # Ukusalapo
 
 ##
-Mumushi wandi mwaliba amafya ayengi. Twali tantama mumulini pakuti twaingatapa amenshi kuli pompi imo.
+Mu mushi wandi mwali amafya ayengi. Twalitantame umulongo pakuti twingatapa ameenshi kuli pompi umo.
 
 ##
-Twalelolela ifyakulya ifyakupelwa ukufuma kumbi.
+Twaleeloleela ifyakulya ifyakupeelwa ukufuma ku bantu bambi.
 
 ##
-Twalekoma amayanda yesu bangwu ukutina bakabolala.
+Twaleekoma amayanda yesu bwangu pa mulandu wa bapuupu.
 
 ##
-Abana abengi balilekele amasukulu.
+Abaana abengi balilekele isukulu.
 
 ##
-Utukashana twalebomba incito ya bukaboi mumishi imbi.
+Utukashana twaleebomba incito ya kuwamya mu mayanda mu mishi imbi.
 
 ##
-Utulumenda twalepitana mumushi ninshi bambi balebombela mumabala.
+Utulumenda twaleyangala mu mushi ninshi bambi baleebombela mu mabala.
 
 ##
-Umwela ngawapupa, ifipepala fyalepululukila mufimuti and kwilinga.
+Umwela nga wapuupa, ifipepala bapoosa fyalesama ku miti na ku malinga.
 
 ##
-Abantu baleicena kumabotolo yatomeka ayaleposwafye iciposwe poswe.
+Abantu baleicena ku mabotolo ayatobeka ayaleeposwa iciposweposwe.
 
 ##
-Bushiku bumo, pompi tayalebomba, ifipe fyesu tafyakwete menshi.
+Ubushiku bumo, ameenshi yapwa kupompi ne fipe fyesu tafyakwete ameenshi.
 
 ##
-Batata baile cila ng'anda ukuwita abantu ukwisa sangwa kucilye camushi.
+Bataata baile cila ŋanda mukuwita abantu ukwisasangwa ku cilye ca mushi.
 
 ##
-Abantu baishile ikala mwisamba lyamuti nokukutika.
+Abantu baishileikala mwisamba lya muti no kukutika.
 
 ##
-Batata epakwima abati "Tufwile ukubombela pamo pakuti tupwishe ubu ubwafya bwesu.
+Bataata epakwima abati, "Tufwile ukubombela pamo pakuti tupwishe amafya yesu."
 
 ##
-Umwana wamyaka cine konse konse uweshina lya Juma, uwaikele pamulando epakupunda ati, "kuti nayafwilishako ukupyanga no kuwamya".
+Umwana wamyaka cine-konse-konse uweshina lya Juma, uwaikele pa mulando abilikisha ati, "Kuti nabombako umulimo wa kuwamya."
 
 ##
-Namyo umo asosa ati, "Bana mayo kuti twabombela pamo ukulima ifyakulya."
+Namaayo umo ati, "Banamaayo kuti twabombela pamo ukulima ifyakulya."
 
 ##
-Shitata umbi aminina ati, "Bashitata kuti twaimba icishima."
+Shitaata umbi aiminina ati, "Bashitaata bakemba icishima."
 
 ##
-Bonse epakupunda mwishiwi limo ati, "kuti twapilibula imikalile yesu". Ukufumafye bulyabushiku twalebombela pamo uku pwisha amafya yesu.
+Bonse twapundila pamo atuti, "Tufwile ukwalula imikalile yesu." Ukufuma bulya bushiku twabombele pamo mukupwisha amafya yesu.
 
 ##
 * License: [CC-BY]

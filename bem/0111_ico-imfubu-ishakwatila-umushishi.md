@@ -1,28 +1,28 @@
-# Icoinfubu ishskwatila umushishi
+# Ico imfubu ishakwatila umushishi
 
 ##
-Bushiku bumo, kalulu aile aleenda mululamba lwamumana
+Ubushiku bumo, kalulu aile aleenda mu lulamba lwa mumana.
 
 ##
-Infubu nayo ekoyali, yaletandala nokulwa umulenfwe uusuma sana
+Imfubu nayo eko yaali, yaletandala no kulya umulemfwe uusuma saana.
 
 ##
-Infubu tayamwene ukuti Kalulu nao ekoali, epakumunyanta pakulu. Kalulu ayambile ukupundilila infubu. "Wenfubu iwe! Taulemona ukuti naunyanta pakulu?"
+Imfubu tayamwene ukuti Kalulu nao eko ali, epakumunyanta pa kuulu. Kalulu ayambile ukupundilila imfubu. "Iwe Mfubu! Taulemona ukuti naunyanta pa kuulu?"
 
 ##
-Infubu epakulomba ubwelelo kuli kalulu. "Njelelako, nshacikumona. Napapata njelelako!" Nomba kalulu talefwaya kunfwa, epakukalipila infubu ati, "wacicitilafye umufulo! bushiku bumo ukacimona, nkakulimuna!
+Imfubu epakulomba ubwelelo kuli Kalulu. "Njelelako, nshacikumona. Napaapaata njelelako!" Nomba Kalulu taaleefwaya no kumfwa ifyo yaaleelanda, epakukalipila Mfubu ati, "Wacicitafye umufulo! Ubushiku bumo ukacimona, nkakulimuna!"
 
 ##
-Kalulu epakuya mukufwaya umulilo nokuweba ati, "kabiyeoce infubu ngayafuma mumenshi mukulya icani. Acinyanta! Umuliolo epakwasuka ati, "takuli bwafya mune kalulu, nalacita ifyofine."
+Kalulu epakuya mukufwaya Mulilo no kumweba ati, "Kabiye oce Mfubu nga afuma mu meenshi aisa mu kulya icaani. Acinyanta!" Mulilo epakwasuka ati, "Takuli bwafya mune Kalulu, nalacita ifyo fine."
 
 ##
-Panuma yakakshita, infubu yalelya icani ukutali nomumana, "mutule!" umulilo wabilimuka mulubingu, ulubingu epakwamba ukoca umushishi wanfubu.
+Panuma ya kashita akanoono, imfubu yaleelya icaani ukutali na mumana, "uuuu" Mulilo abilimuka mu lubingu. Ulubingu epakwamba ukooca umushishi wakwa Mfubu.
 
 ##
-Infubu epakwamba ukulila nokubutukila kumenshi. Umushishi waiko onse ukupya kumulilo. Infubu yakonkenyepo ukulila, "umushishi wandi wapya kumulilo! umushishi wandi onse waya! Umushishi wandi ubusuma!"
+Imfubu epakwamba ukulila no kubutukila ku menshi. Mulilo alyoceele umushishi wakwa Mfubu onse. Mfubu akonkenyepo ukulila ati, "Umushishi wandi wapya! Umushishi wandi onse waya! Umushishi wandi ubusuma!"
 
 ##
-Kalulu alitemwa ukuti umushishi wanfubu walipya. Mpaka nalelo, mukutina umulilo, infubu taiya kutali namenshi.
+Kalulu alitemenwe ukuti umushishi wa mfubu walipya. Mpaka na leelo, mukutina umulilo, imfubu taiya kutali na meenshi.
 
 ##
 * License: [CC-BY]

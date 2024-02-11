@@ -1,65 +1,64 @@
-# Cuuti kuli banakulu
+# Cuuti kuli bamaama
 
 ##
-Odongo na Apiyo baleeikala nabawishi kukalaale. Balekabila saana ukuya pacuti. Tepamulandu wakwisalafye amasukuulu lelo nico balefwaisha ukuya mukutandala kuli banakulu. Banakulu baleikala mumushi uwabalondo besabi uwali mupepi na cibeemba icikulu.
+Odongo na Apiyo baaleikala na bawishi ku kalaale. Lyonse baaleekabila saana ukuba pa cuuti. Tepamulandufye wakuti baaleisala isukulu lelo nico baalefwaisha ukuya mu kutandala kuli banakulu. Banakulu baaleikala mu mushi uwabalondo besabi uwali mupepi na cibeemba icikulu.
 
 ##
-Odongo na Apiyo baali sansamwike saana ilyo inshita yakuya muku tandalila banakulu yafikile nakabili. Ubushiku balaliile ubulendo, baalongele ifipe fyabo ukupekanya ubulendo ubuutali ubwakuya kumushi. Ubushiku ubo, tabaaleele iyo, baaceseshe fye ukulanda palicuti.
+Odongo na Apiyo baalisansamwike saana ilyo inshita yakuya mu kutandalila banakulu yafikile na kabili. Ubushiku balaliile ubulendo, baalongele ifipe fyabo ukupekanya ubulendo ubutali ubwakuya ku mushi. Ubo bushiku, tabaaleele iyo, baaceseshefye ukulanda pali cuuti.
 
 ##
-Ubushiku bwakonkelopo uluceelo-ceelo, baimine ubulendo bwakuya kumushi muli motoka yabaawishi. Munshila, bapitile mumpili, bakumenye ne nama shampanga elyo bapitile namu mabala yatii. Munshila balepeenda bamotoka nokwiimba inyimbo.
+Ubushiku bwakonkelopo uluceeloceelo, baimine ubulendo bwakuya ku mushi muli motoka yaba wishi. Mu nshila, bapitile mumpili, bakumenye ne nama shampanga kabili baapitile na mumabala ya tii. Mu nshila balepeenda bamotoka no kwiimba inyimbo.
 
 ##
-Ilyo papitile nshita, abaana baalinakile bapona namutulo.
+Ilyo paapitile nshita, abaana baalinakile bapona na mutulo.
 
 ##
-Ilyo baafikile kumushi, bawishi bashibwishe Odongo na Apiyo. Baasangile banakulu ba Nyar-Kanyada naabasendama pampaasa mwisamba lya cimuti. Ishina lya Nyar-Kanyada mu ci Luo lipilibula, umwana wabena Kanyanda. Nyar-Kanyada aali umusuma saana kabili uwakosa.
- 
-##
-Nyar-Kanyada aalibapokeelele munganda nokutampa ukushana nokwimba nensaansa ishiingi saana. Abeshikulu baakwe balisansamwike saana nokupela banakulu ifyabupe babaleeteele ukufuma kukalaale.
-"Balileenipo ukwisula icabupe ico imileteele," efyasosele Odongo. "Balileenipo ukwisula icandi," e Apiyo. 
+Ilyo baafikile ku mushi, bawishi bashibwishe Odongo na Apiyo. Baasangile banakulu ba Nyar-Kanyada naabasendama pa mpasa mwisamba lya cimuti. Ishina lya Nyar-Kanyada mu ci Luo lipilibula ukuti, umwana wa beena Kanyanda. Ba Nyar-Kanyada baali abayemba saana kabili abakosa.
 
 ##
-Panuma yakwisula ifyabupe, Nyar-Kanyada apaalile abeeshikulu bakwe ukulingana neentambi.
+Ba Nyar-Kanyada balibapokeleele mu ŋanda no kutampa ukushana no kwimba ne nsaansa ishiingi saana. Abeshikulu balisansamwike saana no kupeela banakulu ifyabupe babaleeteele ukufuma ku kalaale. Odongo aasosele ati, "Balileenipo ukwisula icabupe imuleteele." "Awe, balileenipo icabupe imuleteele!" efyasosele Apiyo.
 
 ##
-Panuma yaifi fyonse elyo Odongo na Apiyo baile panse mukwikate fipelebesha neefyuuni.
+Panuma yakwisula ifyabupe, ba Nyar-Kanyada baapaalile abeshikulu babo ukulingana ne ntambi.
 
 ##
-Baleniina ifimuti elyo nokusansana ameenshi ayamuli beemba.
+Panuma ya ifi fyonse, Odongo na Apiyo baile panse. Baatampile ukupepeka fipelebesha ne fyuni.
 
 ##
-Ilyo pafiitile, babweleleemo kung'anda mukulya icakulya cacungulo-bushiku. Ilyo baali tabalapwisha nokulya, baponeene namutulo! 
+Baaleniina ku fimuti elyo no kusansana ameenshi ayamuli beemba.
 
 ##
-Ubushiku bwakonkelepo, baawishi babwelelemo kukalaale bashile Odongo na Apiyo kuli Nyar-Kanyada.
+Ilyo pafiitile, balibwelelemo ku ŋanda mu kulya icakulya ca cungulo-bushiku. Ilyo baali tabalapwisha no kulya, baponeene umutulo!
 
 ##
-Odongo na Apiyo baale afwa banakulu imilimo yonse iya pang'anda. Baaletapa amenshi nokuteeba inkuni. Baaletoola namani yankoko nookusaba umusaalu ukufuuma mwibala.
+Ubushiku bwakonkelepo, bawishi balibwelelemo ku kalaale. Baashile Odongo na Apiyo kuli ba Nyar-Kanyada.
 
 ##
-Banakulu bafundile abeeshikulu baabo ifyakunaya ubwali ubwakuliila no munaani. Alibalangile nefyakwipika umupuunga uwakuliila nesabi ilyakooca.
+Odongo na Apiyo baaleafwa banakulu imilimo yonse iyapaŋanda. Baaletapa ameenshi no kuteeba inkuni. Baaleetoola na mani ya nkoko no kusaba umusaalu ukufuma mwibala.
 
 ##
-Bushiku bumo, Odongo ailemukucema ing'ombe shabanakulu. Ing'ombe shabutukilile mwibala lya bena mupalamano. Umwine webala aafuliilwe Odongo pafyacitiike. Mukumutinyafye, amwebele ukuti alamupoka ingombe nokusuunga pakumuliila ifisabo fyakwe. Ukufuma apo, umulumendo aaliposeleko amano ukumona ukuti ingombe tashileetele imilandu nakabili.
+Banakulu bafundile abeshikulu baabo ifyakunaya ubwali ubwanaka. Baalibalangile ne fyakwipika umupuunga uwakuliila nesabi ilyakooca.
 
 ##
-Ubushiku bumbi, abaana baile na Nyar-Kanyada ku maliketi. Akwete icintamba apo aleshitiisha umusaalu, shuga elyo na sopo. Apiyo atemenwe ukweba abantu umutengo wafintu baleshitisha. Odongo atemenwe ukulonga ifintu ifyo abantu baaleeshita.
+Ubushiku bumo, Odongo aile mu kucema iŋombe sha banakulu. Iŋombe shabutukilile mwibala lya bena mupalamano. Umwine webala aafuliilwe Odongo pafyacitiike. Umulimi aebele Odongo ukuti alamupoka iŋombe pa kumuliila ifilimwa fyakwe. Ukufuma apo, umulumendo aaliposeleko amaano ukumona ukuti iŋombe tashileetele imilandu na kabili.
 
 ##
-Icungulo batemenwe ukunwa tii nabanakulu. Batemenwe ukwafwa banakulu ukupenda indalama balesanga mukushitisha.
+Ubushiku bumbi, abaana baile naba Nyar-Kanyada ku maliketi. Baalikwete incende apo aleshitiisha umusaalu, shuga elyo na sopo. Apiyo aatemenwe ukweba abantu umutengo wa fintu baaleshitisha. Odongo aatemenwe ukulonga ifintu ifyo abantu baaleeshita.
 
 ##
-Tacaposele na inshita cuti alipwile nabaana baali nokubwelelamo kutauni. Nyar-Kanyada aapeele Odongo akasote elyo Apiyo amupeele sweeta. Abalongeele nefilyo ifyakulya pabuleendo.
+Icungulo baanwine tii na banakulu. Panuma, bayafwileko banakulu ukupenda indalama baapangile.
 
 ##
-Ilyo bawishi baishile mukubasenda, tabaleefwaya ukubwelelamo. Abaana bapaapaatile Nyar-Kanyada ukuti baye nankwe ku kalaale. Nakulu amwentwilefye nokutiila, "Nalikota saana uwakwikala kukalaale. Nkala muloleelafye mpaka ilyo mukeesa kuno mushi nakabili."
+Lelo tacaposele ne nshita iitali cuuti alipwile na baana baali no kubwelelamo ku tauni. Ba Nyar-Kanyada baapeele Odongo akasote elyo Apiyo baamupeele sweeta. Baabalongeele ne filyo ifyakulya pa buleendo.
 
 ##
-Odongo na Apiyo bakumbatiile banakulu nokutila shalenipo.
+Ilyo bawishi baishile mu kubasenda, tabaaleefwaya ukubwelelamo. Abaana bapaapaata ba Nyar-Kanyada ukuti baye nabo ku kalaale. Banakulu baamwentwilefye no kusosa ati, "Nalikota saana uwakwikala ku kalaale. Nkalamuloleelafye mpaka ilyo mukeesa kuno mushi na kabili."
 
 ##
-Ilyo Odongo na Apiyo baabweleelemo kusukulu bashimikileko abanaabo pamikalile iyakumushi. Abana bamo bamweene ukuti ubwikalo bwamukalaale bwawamapo ukucila kumushi. Bambi nabo bamwene kwati ubwikalo bwakumushi bwawamapo. Nomba panuma, abaana bonse basumiinishe ukuti Odongo na Apiyo baalikwata nakulu uwa mutima uusuma.
+Odongo na Apiyo bakumbatiile banakulu no kubashalikapo.
+
+##
+Ilyo Odongo na Apiyo baabweleelemo ku sukulu bashimikileko abanaabo pa mikalile yaku mushi. Abaana bamo baamwene ukuti ubwikashi bwamukalaale bwawamapo ukucila ku mushi. Bambi nabo baamwene kwati ubwikashi bwakumushi bwawamapo. Nomba panuma, abaana bonse basumiine ukuti Odongo na Apiyo baalikwete nakulu uwa mutima uusuma.
 
 ##
 * License: [CC-BY]

@@ -1,23 +1,22 @@
-# Anansi na Ukwiluka
+# Anansi na Maano
 
 ##
-Munshita yakale abantu tabaishibe nangu cimo. Tabaishibe ifyakubyala ifilimwa nangu ukupikula, ne fyakupanga amasembe. Lesa Nyambe uwali mumulu umutali ewakwete ukwiluka konse mucalo. Akusungilile munongo.
+Mu nshita yakale saana, abantu tabaishibe nangu cimo. Tabaishibe ifyakubyala ifilimwa nangu ukupikula, nangu ukupanga ifibombelo fya fyela. Leesa Nyame uwali mu muulu umutali ewakwete amaano yonse mu caalo. Aayasungile mu nongo.
 
 ##
-Bushiku bumo, Nyambe atile apele impoto yakwiluka kuli Anansi. aCilanshita Anansi alelolesha munongo, alesambililamo icintu cimo icipya. Cali icakusansamusha sana.
+Ubushiku bumo, Nyame apeele Anansi inongo ya maano. Lyonse ilyo Anansi aalelolesha mu nongo, alesambililamo icintu cimo icipya. Caliweme nganshi.
 
 ##
-Ukuitemwa kwakwa Anansi atontokanya ati, "Nalasunga impoto bwino pamulu wacimuti. Pankuti ibefye yandi neka!" Epakupomba intambo iitaki kunongo nokuikaka pamala.
-Efyo ayambile ukunina icimuti. Nomba cali icayafya ukunina icimuti nempoto, yalemupunka mumakufi cilanshita.
+Anansi mu kuitemwa, aatontonkenye ati, "Ndesungila inongo pa muulu wa muti uutali pakuti tailubile. Lyena ninshi ikabafye yandi neeka!" Apikula intambo iitali, aipomba ku nongo no kuikaka pa mala. Atampa no kuniina ku cimuti. Nomba cali icayafya ukuniina icimuti ne nongo pantu yalemupunka mu makufi cila nshita.
 
 ##
-Inshita yonse iyi, umwana umulumendo uwakwa Anansi aliminine mwisamba lyamuti aletamba. Epakusosa ati, "bushe tacayangukepo ngacakuti mwaka impoto panuma?" Efyo Anansi aeseshe ukukaka inongo panuma nokwanguka cayanguka.
+Inshita yonse ii, umulumendo umwana uwakwa Anansi aiminiine mwisamba lya muti aletamba. Epakusosa ati, "Bushe teeti cangukeko nga mwakakiliile inongo panuma?" Efyo Anansi aeseshe ukukaka inongo ya maano panuma, awe no kwanguka cayanguka.
 
 ##
-Bwangu bwangu afika napamulu wacimuti. Nomba atontonkaya ati, "ninebofye nfwile nakwata ukukwiluka konse, nomba umwana wandi acenjelapo ukuncila!" Anansi epakufulwa sana. Aposa nenongo panshi yacimuti.
+Ukwabula ukupoosa ne nshita afika na pamuulu wa muti. Nomba atala iiminina no kutontonkaya ati, "Nine mfwile ukukwata amaano yonse, nomba apa umwana wandi akwatapo amaano ukuncila!" Anansi afulwa icibi. Apoosa ne nongo panshi ya cimuti.
 
 ##
-Yatobaika pamushili. Efyo cilaonse asendeleko ukwiluka. Ukufuma apo, efyo abantu baishibe ukulima, ukupikula nokufula ifishimbi nafimbipo ifyo abantu baishiba ukucita.
+Iŋongo yapona panshi yatobaika. Amaano nomba yabafye ya muntu onse. Ukufuma apo, efyo abantu baishibe ukulima, ukupikula no kufula ifishimbi na fimbipo ifyo abantu baishiba ukucita pali leelo.
 
 ##
 * License: [CC-BY]

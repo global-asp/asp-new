@@ -1,43 +1,43 @@
-# Nozibele na Umushishi utatu
+# Nozibele no mushishi utatu
 
 ##
-Munshita yakale, abakashana batatu baile mukuteba inkuni.
+Kale saana, abakashana batatu baile mu kuteeba inkuni.
 
 ##
-Kwali ukwakaba sana, eyo baile mumumana mukowa. Bayangele nokowa mumenshi.
+Ubo bushiku kwalikabile saana, efyo baile ku mumana mu koowa. Baaleyangala, baleesabaula ameenshi no koowa.
 
 ##
-Elyo baimwene ati bwaila. Babutukile ukubwelela kumushi.
+Basuka bamona ukuti bwaila. Baendeshe ukubwelela ku mushi.
 
 ##
-Cilya bapalamina kumushi, Nozibele aikete mumukoshi. Alilaba akakufwala mumukoshi, "Napapata nshindikeniko!" Nomba abanankwe bamukanina.
+Cilya bapalamina ku mushi, Nozibele aikete mu mukoshi. Asanga ukuti nalaba ubulungu bwamu mukoshi. Aapapeete abanankwe ati, "Napaapaata nshindikeniko!" Nomba abanankwe bamukanina abati naabwila.
 
 ##
-Nozibele epakubwekelamo kumumana eka. Asendel akakufwala mumukoshi nokubweluluka bwangu bwangu ku mushi. Nomba aliluba munfifi.
+Nozibele epakubwekelamo ku mumana eka. Asanga ubulungu asenda atampa no kubwelela ku ŋanda. Nomba aaluba pantu kwalifiitile.
 
 ##
-Akatalamukila, amona ulubuto mukasaka. Eko aya bwangubwangu mukukonkosha pacibi.
+Akatalamukila, aamwene ulubuto ulwalefuma mu kayanda. Aendesha ukuyako no kuya konkonsha pa ciibi.
 
 ##
-Camupapwishe ukuti imbwa eyaiswile kucibi nokumwipusha, "Finshi ulefwaya?" Nozibele ati "Ninduba eico ndefwaya aponingasendama", embwa aiti "Ingila pantu nalakusuma!" Nozibele epakwingila.
+Nozibele camupapwishe nganshi pa kumona Imbwa eyaisula iciibi no kumwipusha aiti, "Finshi ulefwaya?" Nozibele nao ati, "Ninduba, ndefwaya apo ningasendama." Imbwa aiti, "Ingila nga teifyo naalakusuma!" Nozibele epakwingila.
 
 ##
-Imbwa epakumweba ati, "njipikilako!" Nozibele ati "nomba nshatala ipikilapo imbwa." Imbwa aiti "Ipika pantu nalakusuma". Efyo Nozibele aipikile imbwa ifyakulya.
+Elyo Imbwa yamweba ati, "Njipikilako!" Nozibele ayasuka ati, "Nomba nshatala njipikilapo imbwa." Imbwa aiti, "Ipika nga teifyo naalakusuma." Nozibele epakwipikila Imbwa ifyakulya.
 
 ##
-Imbwa aiti, "Njanshikila ubusanshi!" Nozibele ati "nshatala anshikapo ubusanshi bwambwa." Imbwa aiti, "njashikila ubusanshi pantu nalakusuma"! Efyo Nozibele ayanshike ubusanshi.
+Imbwa kabili aiti, "Njanshikila ubusanshi!" Nozibele nao ati, "Ine nshatala njanshikilapo imbwa ubusanshi." Imbwa aiti, "Njanshikila ubusanshi nga teifyo nalakusuma!" Efyo Nozibele ayanshike ubusanshi.
 
 ##
-Cilabushiku aleipikila imbwa nokuicapila. Bushiku bumo imbwa aiti, "Nozibela, lelo nalaya mukutandalila abanandi. Upyange ing'anda, wipike ifyakulya, uwashe nokuwasha eponshila bwela.
+Cila bushiku aaleipikila Imbwa no kuiwashisha. Ubushiku bumo Imbwa aiti, "Nozibele, leelo mfwile ukutandalila abanandi. Upyange iŋanda, wipike ifyakulya, no kuwasha ifyakufwala fyandi fyonse ilyo nshilabwela."
 
 ##
-Cilyafye imbwa yaya, Nozibele asenda umushishi utatu mumutwe. Abika umushishi umo pabusnahi, umbi kunuma yacibi elyo umbi mwicinka. Efyo abutwike ukuya.
+Cilyafye Imbwa yaaya, Nozibele anukwile umushishi utatu mu mutwe. Abiika umushishi umo panshi ya busanshi, umbi kunuma ya ciibi elyo umbi mwitanga. Elyo abutuka na maka yonse ukuya ku ŋanda.
 
 ##
-Elyi imbwa yabwelele, yaambile ukufwaya Nozibele. yapunda aiti "Nozibele ulikwisa?" Umushishi wali mwisamba lyabusanshi lyabalilapo aliti "ndimuno!" Iyakonkelepo aliti "Indikunuma yacibi". ishiwi Ilyabutatu aliti, "ndimwicinka".
+Ilyo Imbwa yabwelele, yatampile ukufwaya Nozibele. Yapunda ati, "Nozibele, Ulikwi?" Umushishi uwali mwisamba lya busanshi wabalilapo auti, "Ndimuno!" Uwacibili auti, "Ndi kuno, kunuma ya ciibi." Umushishi wacitatu nao auti, "Ndi muno, mwitanga."
 
 ##
-Eyo imbwa yaimwene ukuti Nozibele naicenjesha. Epakubutuka ukukonamo ukuya kumushi. Nomba bandume yakwa Nozibele baleilolela nefimiti. Imbwa epakupilibuka nokubwekelamo ukufumapo tayatalile aimoneka nakabili.
+Imbwa yaishiba ukuti Nozibele naicenjesha naafyuka. Yaabutwike ulubilo ukuya ku mushi. Nomba bandume yakwa Nozibele baleilolela ne fimiti ifikulu. Efyo Imbwa yapilibwike no kubutuka kabili ukufuma apo tayatalile aimoneka na kabili.
 
 ##
 * License: [CC-BY]

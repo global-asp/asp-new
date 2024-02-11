@@ -1,19 +1,19 @@
-# Ifyondeunfwa
+# Ifyo ngumfwa
 
 ##
-Umutima wandi ulonfwa ifintu ifingi.
+Umutima wandi ulomfwa ifintu ifingi.
 
 ##
-Ndatemwa nga bamaama baletushimikila utushimi ichungulo.
+Ndatemwa nga bamaama baleetushimikila utushimi ubushiku.
 
 ##
-Ndofwa ukupuba ngadeangala nabanandi.
+Ndomfwa ukusaamwa nga ndeyangala no munandi.
 
 ##
-Ndofwa ububi nga batata balanda ati tabakwete indalama.
+Nshumfwa bwino bataata nga batiila tabakwete indalama.
 
 ##
-Ndofwa icitemwiko bamayo nga bankumbatila.
+Ndomfwa ukutemwikwa nga bamaayo bankumbatila.
 
 ##
 * License: [CC-BY-NC]

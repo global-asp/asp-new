@@ -7,22 +7,22 @@ Nalitemwa ukubelenga.
 Naani nalaabelengela?
 
 ##
-Nkashi yandi nalaala.
+Nkashi yandi naalaala.
 
 ##
 Naani nalaabelengela?
 
 ##
-Bamaayo nabamaama bali nencito.
+Bamaayo na bamaama bali ne ncito.
 
 ##
-Naani nalaabelengela?
+Naani naalaabelengela?
 
 ##
-Bataata na bashikulu bali nencito.
+Bataata na bashikulu bali ne ncito.
 
 ##
-Naani nalaabelengela? Kanshi nalaibelengelafye nemwine!
+Naani nalaabelengela? Kuti naibelengela nemwine!
 
 ##
 * License: [CC-BY]

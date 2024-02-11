@@ -1,40 +1,40 @@
-# Zama muukali
+# Zama Alicenjela!
 
 ##
-Kandume yandi takalaala bwangu. Ndabuka bwangu pantu ndi mukali!
+Kandume yandi takabuuka bwangu. Ine ndabuuka bwangu pantu nalicenjela!
 
 ##
-Nine njingisha akasuba mu ng'anda.
+Nine njingisha akasuba mu ŋanda.
 
 ##
-Bamaayo batiila "Uli lutanda lwakumacaca yandi."
+Bamaayo batiila, "Uli lutanda lwandi ulwakumacaca."
 
 ##
 Ndaisamba, nshifwaya wakungafwilisha.
 
 ##
-Shakwata bwafya na menshi yatalala nangu sopo wa nunka uwa bulu.
+Nshitiina ameenshi ayatalala nangu sopo yanunka iyamakumbi-makumbi.
 
 ##
-Bamaayo balanjibukisha, "Wilaba ameeno." Naine nayasuka, "Teti, teine."
+Bamaayo balanjibukishako abati, "Wilaba ameeno." Na ine nayasuka nati, "Teeti ndabe ameeno."
 
 ##
-Panuma yakusamba, ndaposha bamaama na bamaayo senge, na ukubashalikapo bwino.
+Panuma yakusamba, ndaposha bamaama na bamaayo-senge, no kubashalikapo bwino.
 
 ##
-Elyo naifwika naati, "Ndi mukalamba nomba maayo."
+Elyo panuma naifwika naati, "Ndi mukalamba nomba maayo."
 
 ##
-Ndamanka amabatani na ukukaka intambo shapa nsapato.
+Ndamanga amabatani no kukaka intambo shapa nsapato.
 
 ##
-Nshipusa ukweba kandume yandi pa ficitaka ku sukulu.
+Nshilaba ukweba kandume yandi ificitika ku sukulu.
 
 ##
-Mu sukulu ndabombesha munshila shonse.
+Mu kalashi ndabombesha munshila shonse.
 
 ##
-Ncita ifi fisuma fyonse cila bushiku. Nomba icikulu ico natemwisha, kwangala na ukwangala.
+Ncita fyonse ifi fisuma cila bushiku. Nomba icikulu ico natemwisha, kwangala.
 
 ##
 * License: [CC-BY]

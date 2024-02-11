@@ -1,34 +1,34 @@
-# Nankoko na Pungwa
+# Inkoko na Pungwa
 
 ##
-Patile akantu, kaikele ngefi, nankoko na pungwa bali fibusa. Baleikala mumutende nefyuni fimbi. Tapali nefyalepupuka.
+Patiile akantu, Inkoko na Pungwa baali fibusa. Baleikala mu mutende ne fyuni fimbi. Ifyuni fyonse tafyalepupuka.
 
 ##
-Bushiku bumo, kwaliponene insala. Pungwa aile alefwaya ifyakulya ukutali sana. Abweleleko ninshi nanaka sana. "Kufwile kwaba inshila yakwendelamo ukwabuka ukucula!"
+Ubushiku bumo, kwaliponene insala. Pungwa aile aleefwaya ifyakulya ukutali saana. Abwelele ninshi nanaka saana. "Kufwile kwabako inshila yakwendelamo ukwabuka ukucuula!" efyasosele Pungwa.
 
 ##
-Panuma yakubuka ulucelo, Nankoko epakusanga inshilaimo iisuma. Efyo ayambile uku longanya amasako yaponene kufyuni fimbi. Tiyeni tubililile pamo aya amasako pamulu waaya twakwata. Limbi kuti catwangukilako mumyendele".
+Panuma yakubuuka ulucelo, Inkoko yakwata amaano. Yatampile ukutoola amasako ukufuma ku fyuni fyonse. Ati, "Tiyeni tubililile pamo aya masako pa muulu wa aya twakwata. Limbi kuti catwangukilako mumyendele. "
 
 ##
-Pungwa ewalifye nakela mumushi, ewabalilapo nokubila. Aipangila amapindo ayasuma sana nokupupukila mumulu umutali. Inkoko epakwashima akela, nomba yalifilwa ukubila kumulandu wakunaka. Epakusha akela pa kabati, nokuya mukupekanya ifyakulya fyabana.
+Pungwa ewalifye na keela mu mushi, kanshi ewabalilepo no kubila. Aipangila amapindo ayasuma saana no kupupukila mu muulu umutali. Inkoko epakwashima akeela, nomba yalifilwa ukubila kumulandu wa kunaka. Epakusha akeela pa kabati, yaaya mukupekanya ifyakulya fya baana.
 
 ##
-Nomba ifyuni fimbi fyalimwene uko pungwa apupwike. Epakulomba nankoko ukubashimako akele pakuti nabo babilileko amasako. Mukashitafye akanono, ifyuni ifing fyayamba ukulapupuka mumulu.
+Nomba ifyuni fimbi fyalimwene uko pungwa apupwike. Fyalomba Inkoko ukufyashimako akeela pakuti nafyo fibilileko amasako. Mu kashitafye akanoono, ifyuni ifingi fyayamba ukulapupuka mu muulu.
 
 ##
-Elyo icuni cakulekelesha caishile mukulomba akela, nankoko talipo. Efyo abana bakwe basendele akela nokwamba ukwangasha. Elyo banakile ukwangala, basile akela mumuchanga.
+Elyo icuuni cakulekelesha caleetele akeela, Inkoko tayalipo. Abaana bankoko baasendele akeela batampa kwangasha. Ilyo banakile ukwangala, baashiile akeela mumucanga.
 
 ##
-Mukasuba, pungwa efyo abwelele. Epakwipusha pakela pakuti alundeko amasako nayambi nokubililila ayanenwike elyo aile pabulendo bwakwe. Nankoko epakwamba ukufwaya. Afwaya mu cikini. Afwaya mulubansa, aleka tekakumoneka.
+Mu nshita ya cungulo, Pungwa abwela. Aaleefwaya akeela pakuti alundeko amasako nayambi no kubililila ayanenwike elyo aile pa bulendo bwakwe. Inkoko ekwamba ukufwaya akeela. Yafwaya mu cikini. Yafwaya mu lubansa, akeela tekakumoneka.
 
 ##
-" Mpelakofye ubushiku bumo," Nankoko apapata. "kuti wiasa bikako amasako kumapindo yobe nokupupuka ukuya mukufwaya ifyakulya nakabili". Pungwa epakuti "nakupelafye ubushiku bumo, ngatawasange akela, ukampeka ukampela umwana obe umo ngamalipilo".
+"Mpelakofye ubushiku bumo," Inkoko yapaapaata Pungwa. "Elyo ukeesabikako amasako ku mapindo yobe no kupupuka ukuya mukufwaya ifyakulya na kabili." Pungwa epakuti "Nakupelafye ubushiku bumo, nga wafilwa ukumona akeela kandi, ukampeela umwana obe umo nga malipilo."
 
 ##
-Ubushiku bwakonkelepo, elyo pungwa aishile, asangile nankoko alefwaya akela mumuchanga. Pungwa epakupupuka bwangu panshi nukwikatapo akameana kankoko. Nokuka senda. Ukufuma apopene lyonse pungwa naisa asanga nankoko alefwaya akela mumuchanga.
+Ubushiku bwakonkelepo, elyo Pungwa aishile, aasangile Inkoko ileefwaya akeela mumucanga. Pungwa epakupupukila panshi bwangu-bwangu no kwikatapo akaana kankoko kamo no kukasenda. Ukufuma apopene lyonse Pungwa nga isa asanga Inkoko ileefwaya akeela mumucanga.
 
 ##
-Ngakwaisa icinshigwa cakwa pungwa, nankoko alacenjesha abana bakwe. "Fumeni palwalala". Elyo tumwasuka ati, "tatuli fipuba, tulebutuka".
+Nga kwamoneka icinshingwa cakwa Pungwa panshi, Inkoko ilacenjesha abaana baiko. "Fumeni palwalala." Elyo tumwasuka ati, "Tatuli fipuba, tulebutuka."
 
 ##
 * License: [CC-BY]

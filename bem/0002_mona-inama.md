@@ -1,28 +1,28 @@
-# Tamba inama
+# Mona Inama
 
 ##
-Tamba inama.
+Mona inama.
 
 ##
-Ing'ombe aiti, "moo."
+Iŋombe aiti, "Moo."
 
 ##
-Imbushi aiti, "meh, meh."
+Imbushi aiti, "Meh, meh."
 
 ##
-Ihoshi aliti, "neei."
+Kabalwe ati, "Neei."
 
 ##
-Inkumba aiti, "ng'a, ng'a."
+Inkumba aiti, "Gru, gru."
 
 ##
-Inkoko aiti, "ko, ko, ko."
+Inkoko aiti, "Ko, ko, ko."
 
 ##
-Imbwa aiti, "bwa, bwa."
+Imbwa aiti, "Boo, boo."
 
 ##
-Shibulimi ati, "shii."
+Umulimi ati, "Shii!"
 
 ##
 * License: [CC-BY-NC]

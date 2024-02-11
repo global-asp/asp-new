@@ -1,19 +1,19 @@
-# Ing'wena yansala
+# Iŋwena iyansala
 
 ##
-Ubushiku bumo kwali Ing'wena yali nensala saana.
+Kwaliko Iŋwena iyali ne nsala saana.
 
 ##
-Yalefwaya ifyakulya mumutalalila ukwabula ukupanga ichongo. Elyo nomba...
+Yaaleefwaya ifyakulya mumutalalila ukwabula ukupanga icongo. Elyo nomba...
 
 ##
-Wiyu!!! Kucheshuko, Ing'wena yaikata icakulya!
+Wiyu!!! Iŋwena yaikata icakulya!
 
 ##
-Panuma yakulya, Ing'wena tayaumfwilepo insala nelyo panono elo yalifye iyasekelela nganshi.
+Panuma yakulya, Iŋwena yaikuta kabili yasansamuka.
 
 ##
-Pakafye yaumfwa insala nakabili.
+Mpaka yaumfwa insala na kabili.
 
 ##
 * License: [CC-BY]

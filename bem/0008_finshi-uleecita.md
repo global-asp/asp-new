@@ -1,10 +1,10 @@
-# Finshi uleecita?
+# Finshi Uleecita?
 
 ##
 Ndeimba.
 
 ##
-Aleesokonya.
+Aleebaibisha.
 
 ##
 Ndetoota.

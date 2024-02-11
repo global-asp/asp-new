@@ -1,27 +1,25 @@
-# Indume umwaice umunang'ani
+# Kandume yandi akanaŋani
 
 ##
-Ndabuka na ukukosha umulilo.
+Ndabuuka no kukosha umulilo.
 
 ##
-Ndakafya amenshi.
+Ndakafya ameenshi.
 
 ##
 Ndateba inkuni.
 
 ##
-Ndepika.
+Ndakumba mu mpooto.
 
 ##
 Ndapyanga.
 
 ##
-Ukusuka imbale.
+Ndasuka imbale.
 
 ##
-Mulandunshi mbombesesha ifi...
-
-Elo ninshi munyinane ena aleangalafye?
+Muulandunshi mbombesesha ifi... ilyo ninshi ndume yandi aleeyangalafye?
 
 ##
 * License: [CC-BY-NC]

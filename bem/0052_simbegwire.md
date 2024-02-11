@@ -1,52 +1,52 @@
 # Simbegwire
 
 ##
-Lintu baanina Simbegwire baafwile, ali uwasakamana sana. Bawishi baaliesha namaka ukumona ukuti Simbegwire ali umutende. Panono panono, baasambilile ukuba abatemwa nakabili, ukwabula baanina Simbegwire. Cila lucelo baaleikala na ukulanda pa bushiku bwakuntanshi. Cila cungulo baalepekanya icakulya ca cungulo capamo. Panuma ya kusuka ifya kuulilapo, bawishi Simbegwire baaleafwa umwana imilimo ya kusukulu.
+Lintu banyina Simbegwire baafwile, aali uwabulanda saana. Bawishi balyesesha na maka yonse ukumusunga bwino no kumusansamusha. Panoono-panoono, baatampile ukusansamuka na kabili, nangu banyina Simbegwire bashalipo. Cila lucelo baleikala pamo no kulanda pafya ubo bushiku buleba. Cila cungulo baaleepekanya umulalilo bonse. Panuma ya kusamfya imbale, bawishi Simbegwire baaleafwako umwana imilimo yaku sukulu.
 
 ##
-Ubushiku bumo, bawishi Simbegwire baaishile pa n'ganda munshita yabushiku ukucila inshiku sha kunuma. Baalitile abati, "ulikwisa we mwana wandi"? . Simbegwire abutukile kuli bawishi. Aliminine lintu amwene ukuti baawishi bekatilile umwanakashi pakuboko. "ndefwaya iwe wishibane no muntu umo umusuma, we mwana wandi. Uyu ni Anita," baalandile mu kumwentula.
+Ubushiku bumo, bawishi Simbegwire baalicelelwe ukubwela ukucila inshita baalebwelelapo lyonse. Baitile Simbegwire abati, "Ulikwisa we mwana wandi?" Simbegwire aabutukiile kuli bawishi. Aileiminina shika ilyo aamwene bawishi nabekatilila ukuboko kwakwa namaayo. "Mwana wandi, ndefwaya uposhe aba njishile nabo. Niba Anita," efyalandile bawishi ninshi baalemwentula.
 
 ##
-Anita aalandile ati, "shani Simbegwire, bawiso baanjebele ifingi pali iwe,". Koma Simbegwire taamwentwile nangu ukuposha uyu mwanakashi mu minwe. Bawishi Simbegwire baali abatemwa na insansa. Baalandile efyo bonse batatu bangekala pamo, na efyo imikalile yabo i ngaba iisuma. Baalandile "we mwana wandi, ndesubila walasumina Anita ukuba nga banoko,".
+Ba Anita abati, "Mwapola Simbegwire, bawiso balinshimikila ifintu ifingi pali iwe." Nomba tabamwentwile nangu ukutambika ukuboka ku mwana. Ba wishi Simbegwire baali temwa na ukusansamuka saana. Balandile pafyo bonse batatu bakalaikala pamo, na pafyo imikalile yabo ikawama. Abati, "We mwana wandi, ndesubila ukasumina ba Anita ukuba banoko."
 
 ##
-Ubwikashi bwa kwa Simbegwire bwacinjishe. Taakwete inshita yakuba nabawishi mu lucelo. Anita aalemupela incito sha pa n'ganda ishingi icalengele ukuti alefilwa uku kwata inshita ne milimo ya kusukulu mu cungulo neco aleenaka sana. Aile mukusendama panuma ya cakulya ca mu cungulo. Ubusumino bwakwe, bwali li langishi lya bulangeti bamupele banyina. Bawishi Simegwire calemoneka kwati tabaishibe kuti umwana wabo taali uwansansa.
+Ubwikashi bwakwa Simbegwire bwalicinjishe. Taakwete inshita yakuba na bawishi ulucelo. Ba Anita baaleemupeela incito shapa ŋanda ishingi saana icakuti aaleenaka aaleefilwa no kubomba imilimo yaku sukulu icungulo. Aaleeyafye mu kusendama panuma ya kulya icakulya ca mulalilo. Icaleemusansamushafye buulangeti bwamalangi ubwamupeele banyina. Calemoneka kwati bawishi Simbegwire tabaishibe kuti umwana wabo taasansamwike.
 
 ##
-Panuma fye ya myeshi inono, bawishi Simbegwire balaile pa n'ganda ukuti balefumapo panshita inono."mfwile ukuya kuncito,"baatile. Koma ninjishiba ukuti mwakulaikala fye bwino. Simbegwire aponya necinso panshi, nomba bawishi taabaishibe. Anita talandile nelyo cimo. Naena taatemenwe iyo.
+Panumafye ya myeshi inoono, bawishi Simbegwire balilaile pa ŋanda ukuti baleefumapo panshita inoono. Abati, "Mfwile ukuya ku ncito. Nomba ninjishiba ukuti mwakulasunganafye bwino." Simbegwire taasansamwike, nomba bawishi taabaishibe. Ba Anita taabalandile nangu cimo. Nabo tabaatemenwe iyoo.
 
 ##
-Ifintu kuli Simbegwire fyacilamo. Nga tapwishishe incito isha mu n'ganda, nangu ngailishanya, Anita aleemubola. Nga nipa cakulya ca cungulo, Anita aleelya ukucila ukushila Simbegwire utwakulya utunono. Cila bushiku nga bwaila, aleelila uku ninshi nafukatila no bulangeti bwa baanina.
+Imikalile yakwa Simbegwire yalibiipiileko. Nga tapwishishe incito isha mu ŋganda, nangu nga ailishanya, ba Anita baaleemuuma. Pa mulalilo, Ba Anita eebaaleelya ifyakulya ifingi, baashilakofye Simbegwire utunoono. Cila bushiku Simbegwire aaleelaala alelila ninshi nakumbatila no bulangeti bwaba nyina.
 
 ##
-Ubushiku bumo ulucelo, Simbegwire alicelwa ukubuuka. "we mwanakashi wabunan'gani iwe!"Anita apaatile. Asuunkile Simbegwire ukumufunya pa busanshi. Ubulangeti bwaiketwe no musomali no ku bulepula mu bili.
+Ubushiku bumo ulucelo, Simbegwire alicelelwe ukubuuka. Ba Anita baapatile ati, "We munaŋani wamwanawe!" Efyo baakulwile Simbegwire ukumufunya pa busanshi. Ubulangeti atemwishishe bwaiketwe ku musomali no kulepuka ukwakanika pabili.
 
 ##
-Simbegwire alifulwa sana. Atontonkenye ukubutuka ukufuma pa n'ganda. Aseendele utupimfya twa bulangeti bwa baanyina, ifyakulya afuma na pa n'ganda. Akoonkele umusebo kwaile bawishi.
+Simbegwire alifulilwe saana. Aasalilepo ukufyuka pa ŋanda. Aasendele utupimfya twa bulangeti bwaba nyina, alonga no twakulya, no kufuma pa ŋanda. Aakonkele umusebo mwapitile bawishi.
 
 ##
-Lintu caishilefika icungulo, aniinine kucimuti icitali mupepi nakamana apanga no busanshi mu mabula. Cilya talapona mu tulo, aimbile: maama, maama, maama, mwalinsha ine. Mwalinsha ukwabula ukubwela. Taata tantemwa nakalya. Mayo nilisa muleisa? Mwalinsha ine.
+Cilya bwaila, aniina ku cimuti icitali mupeepi na kamana no kupanga ubusanshi mu misambo. Pa kulaala, alaimba ati: "Maayo, maayo, maayo, mwalinsha ine. Mwalinsha ukwabula ukubwela. Bataata tabatemwa nomba. Maayo ni lilali mukabwela? Mwalinsha ine."
 
 ##
-Ubushiku bwa konkelepo ulucelo, Simbegwire aimbile ulwimbo nakabili. Lintu banamayo baaishile mu kucapa ifya ku fwala pa mumana, baumfwile ulwimbo lulefumina ku cimuti icitali mumano ukuti cali cipuupu caaletensha amabula, awe bakonkenyepo ne milimo yabo. Koma umo pali bena aumfwile ku lwimbo no bupilibulo.
+Ubushiku bwakonkelepo ulucelo, Simbegwire aimbile ulwimbo na kabili. Ilyo banamaayo baishile mu kucapa ifyakufwala mu mumana, baumfwile ulwimbo lwacililishi lulefumina ku cimuti icitali. Mu maano abati mwela uleelisha amabuula, awe bakonkenyepo ne milimo yabo. Nomba umo pali beena akutikishe ku lwimbo.
 
 ##
-Uyu umwanakashi alooleshe kumulu wa cimuti. Lintu amwene cikashana na utupimfya twa bulangeti, aliila, "Simbegwire, umwana wa ndume yandi!" Banamayo bambi baalekele ukucapa na ukwafwa Simbegwire ukwikila panshi ukufuma ku cimuti. Baanina senge baafukatile umwipwa no kwesha uku mutalalika.
+Uyu namaayo aalooleshe ku muulu wa cimuti. Lintu aamwene akakashana no tupimfya twa bulangeti ubwamalangi, aapundile ati, "Simbegwire, umwana wakwa ndume yandi!" Banamaayo bambi baaleekele ukucapa bayafwilishako Simbegwire ukwikila ku cimuti. Banyina-senge bakumbatile akakashana no kwesha ukukatalalika.
 
 ##
-Baanyina senge Simbegwire baasendele Simbegwire ku n'ganda kumyabo. Baapele Simbegwire icakulya icakaba panuma, no ku mufimbilikisha pa busanshi no bulangeti bwa baanina. Bulya bushiku, Simbegwire aliilile lintu talalaala. Koma fyali filamba fya nsansa. Alishibe ukuti baanina senge balamusunga bwino.
+Banyina-senge baasendele Simbegwire ku ŋanda ku mwabo. Panuma, baamupeele icakulya icakaba, no kumufimbilisha no bulangeti bwaba nyina pa busanshi. Bulya bushiku, Simbegwire aalililile pa kulaala. Nomba fyali fiilamba fyansansa. Aalishibe ukuti banyina-senge bakamusunga bwino.
 
 ##
-Lintu bawishi Simbegwire baabwelele ku n'ganda, baasangile ku muputule wakwa Simbegwire takuli nangu kamo. "ninshi yacitike, Anita?" baipwishe no mutima uwafina. Anita ekulondola ukuti Simbegwire alibutuka. Anita epakulanda ati "naalefwaya alempela umucinshi". Nomba limbi caali cilamo." Bawishi Simbegwire baafumine pa n'ganda no kulola ku mumana. Baapitile mpaka ku mushi waba nkashi yabo ukuya mu kwipusha nga cakuti baali mumonako Simbegwire.
+Ilyo bawishi Simbegwire baabwelele pa ŋanda, baasangile Simbegwire talimo mu muputule wakwe. Baipwishe bulanda-bulanda abati, "Anita, finshi fyacitike?" Namaayo alondolwele ukuti Simbegwire aalifyukile. Ati "Naalefwaya ancindike. Nomba limbi caalicilamo." Bawishi Simbegwire baafumine pa ŋanda no kulola ku mumana. Bakonkeyepo ukuya ku mushi ukwaleikala bankashi yabo mu kuyaipusha nga cakuti baalimweneko Simbegwire.
 
 ##
-Simbegwire aleeangala na bafyala bakwe lintu amwene bawishi pakatalamukila. Aaletina pali limbi nabakalipa, ici calengele ukuti abutukile mu n'ganda mukubelama. Nomba bawishi baile kuli ena na ukulanda ati "Simbegwire, walisanga banoko abapwililika. Banoko abakutemwa kabili abakwishiba efyo waba. Nga pali ici, ine ndi ngo watemwa kabili nalikutemwa. Baalisuminishanya ukuti Simbegwire akekala nabaanyina senge panshita akafwailapo umwine.
+Simbegwire aaleyangala na bafyala bakwe ilyo aamwene bawishi akatalamukila. Aalitinine ukuti limbi balikalipe, icalengele ukuti abutukile mu ŋanda mu kubelama. Nomba bawishi baile kuli ena elyo balanda ati, "Simbegwire, nausanga banoko abalingile. Banoko abakutemwa kabili abakwishiba ifyo waba. Naucitafye bwino elyo kabili naalikutemwa." Baasuminishenye ukuti Simbegwire kuti aikala na banasenge apo aleefwaila.
 
 ##
-Bawishi bale mutandalila cila bushiku. Mpaka pakulekelesha, baishile na Anita. Aikete Simbegwire pakuboko. "unjeleleko we mwana, nali luufyanya,"aliilile. Kuti wansuminisha ukuti njesheko nakabili?" Simbegwire aloleshe bawishi abali ne cinso ca bulanda. Simbegwire aatampwile panono panono ukulola kuli Anita na ukubika amaboko yakwe ukushunguluka Anita.
+Bawishi baalemutandalila cila bushiku. Mpaka pakulekelesha, baishile naba Anita. Ba Anita baikete Simbegwire pa kuboko. Abati, "Unjeleleko we mwana, nalilufyenye. Bushe kuti wansuminisha ukuti njesheko na kabili?" Simbegwire aaloleshe bawishi abaaleemoneka ukusakamana. Simbegwire aendele panoono-panoono no kukumbatila ba Anita.
 
 ##
-Umulungu wakonkelepo, Anita aitile Simbegwire muku mutandalila pamo naba fyala bakwe ukubikapo fye na baanyina senge wakwe. Cakulya ninishi ici! Anita apekenye fye ifya kukulya fya temwa Simbegwire na bonse baipakishe mpaka baikuta. Abaice balyangele elyo abakalamba balyashike. Simbegwire aumfwile insansa ne cilumba. Atontonkenye ukuti nombaline, nombaline sana, akabwelela ku n'ganda mu kwikala nabawishi na baanina bakusangamo.
+Umulungu wakonkelepo, ba Anita baitile Simbegwire ukwisa ku ŋanda ku maliila pamo na bafyala bakwe na banasenge. Yaali maaliila! Ba Anita baapekenye fyonse ifyakulya Simbegwire atemwishishe, na bonse baaliliile mpaka baikuta. Panuma, abaice baile mukwangala elyo abakalamba baashele baleeshimika ilyashi. Simbegwire aumfwile insansa kabili taakwete no mwenso. Aatontonkenye ukuti tacali na kupoosa inshita, aali no kubwelela pa ŋanda mu kwikala na bawishi na banyina ba Anita.
 
 ##
 * License: [CC-BY]
