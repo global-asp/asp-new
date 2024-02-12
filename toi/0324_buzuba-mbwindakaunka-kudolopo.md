@@ -1,52 +1,52 @@
-# Buzuba Mbondakaunka Kudolopo
+# Buzuba Mbwindakaunka Kudolopo
 
 ##
-Ka bbasi kashonto kakaima mumunzi wesu. Zintu zyakabikwa bwindilila, zyimwi zyakacili ansi. Ibambi bantu bakali kupunda mazyina amasena nkwakali kuunka ma bbasi.
+Citisyini cisyoonto camabbaasi cakazwide zyicitika abantu banji amabbaasi azwide bantu. Kwakali zyintu zyinji zyakeelede kukkwezekwa.Aansi aaalo akacili zyintu zinjaanji zyakeelede kukwezekwa. Bambi bantu bakali kwaamba mazyinaa masena nkwaakali kuunka mabbaasi.
 
 ##
-Dolopo, dolopo! kuya kumbo. Ndakanvwu muntu ulapunda. Njenjiyo bbasi njindakeelede kutanta.
+"Dolopo, dolopo! Baya kumbo." Ndakamvwa muntu kaamba cakuyobeka. Njenjiyo bbaasi njindakeelede kutanta.
 
 ##
-Bbasi yakudolopo yakalimukuzula, pesi bantu banji bakacili kuyanda kutanta. Bamwi bakabika ma katundu mujungusi a bbasi. Bamwi bakatanta anzizyo.
+Bbaasi liya kudolopo lyakali kuyanda kuzula, pesi bantu banji bakacili kuyanda kutanta. Bamwi bakabikka zyintu zyabo mujungusi abbaasi. Bamwi bakatanta anzyizyo mukati.
 
 ##
-Bamwi nibakapa tikiti, bakayandaula akukala. Bamakaintu bakali abana bakabakalika kabotu.
+Bamwi nibakabapa matiketi, bakayandaula akukkala mubbaasi. Bamakaintu bakalaa bana bakabakkazyika kabotu.
 
 ##
-Ndakalisyanikizya kukala munsi ampulungwido. Muntu wakakede munsi lyangu, wakajisi cipepa ca nyanzabili. Wakali samide nkwabilo zyakaindi akajansi kajujukide.
+Ndakalisyanikizya akukkala munsi aampulungwido. Muntu wakakkede munsi lyangu wakajisi cipepa canyanzabili. Wakali samide nkwabilo zyakaindi akajansi kajujukide, kaboneka kuyoowa.
 
 ##
-Ndakalanga anze a bbasi, ndabola ndayeye kuti ndizwa mumunzi wangu, mondakakomenena. Ndiinka ku dolopo impati.
+Ndakalanga anze abbaasi, ndamana ndakayeeya kuti ndausiya munzi ookwesu, mwindakakomenena. Nduunka kudolopo lipati.
 
 ##
-Ikubika zivwunta kwakamana. Pesi basambazi bakacili kuyanda kunjila mu bbasi kuti basambale. Aumwi wakali kupunda nzyasambala. Mabbala amwi akali kundisesya.
+Kubikka zyintu mubbaasi kwakamana alimwi basilweendo boonse bakalikkede muzyuuno. Pesi basambazi bakacili kuyanda kunjila mubbaasi kuti basambale. Aumwi wakali kwaamba nzyasambala. Mabala amwi akali kundisesya.
 
 ##
-Basilweendo bakaula zyakunwa a twakulya. ibakanyina mali mbuli ndime bakali kwiide kulanga.
+Basilweendo basyoonto bakaula zyakunywa azyakulya. Aabo bakanyina mali mbuli ndime, bakali kwiide kulanga.
 
 ##
-Bbasi yakaima, basambala bakaambilwa kuti bazwe.
+Eezyi zyakali kucitika zyoonse zyakanyonganinzyigwa akusiba kwabbaasi. Eeci cakali citondezyo cakuti bbaasi lyakali kuyanda kutalika kweenda. Basambala bakaambilwa kuti bazwe anze.
 
 ##
-Basambazi bakatalika kuzwa kumwi kabalimbana. Bamwi bakacili kupilusya mali akali kwiindilila, ibamwi bakacili kusola kuti basambale.
+Basambazi bakatalika kuzwa kumwi kabalimbana. Bamwi bakacili kupilusya mali aakali kwiindilila, bamwi bakacili kusola kuti basambale kamamanino.
 
 ##
-Bbasi yakatalika kweenda. Ndakalanga ampulungwido. Ndayeya ndati hena ndiyo jokela kumunzi alimwi.
+Bbaasi nilyakatalika kweenda, ndakalanga ampulungwido. Ndayeeyela mumoyo kuti ccita naa ndiya kujokela kumunzi alimwi.
 
 ##
-Nitwakeenda musinzo, mubbasi mwakatalika kupya. Ndakasola kujala meso kutegwa ndoone.
+Nitwakeenda musinzo mulamfwu, mubbaasi mwakatalika kupya. Ndakasola kujala meso kutegwa ndoone.
 
 ##
-Mizezo yangu yakajoka kung'anda. Hena bamama balaba kabotu, Hena bakulana bangu banikutilila zisamu nzyekasyanga.
+Mizeezo yangu yakajoka kumunzi. Sena baama banooli kabotu? Sena basulwe mbeevwubide baya kundijanina mali? Sena mwiiinandumi wangu uni kuyeeya kutilila zyisamu nzyeekasyanga?
 
 ##
-Munzila, ndakatalika kuliyezya izyina ya busema nkobakali kukala baiisha mudolopo. Mukacindi kashonto, ndakanvwa tulo akoona.
+Munzila, ndakatalika kuliyeezya zyina lyabusena nkobakali kukkala baacisya mudolopo. Ndakacili kulyaambauzya mukaumuumu nohyakandibweza ŋonzi akoona.
 
 ##
-Nikwakainda maoola ali mafwuka, ndakabuka akunvwa bantu kabapundilila basilweendo baunka kumunzi kwesu. Ndakabweza ka bbeke akuzwa mu bbasi.
+Nikwakainda mawoola ali fwuka, ndakabuka akumvwa bantu kabapundilila basilweendo baunka kumunzi kwesu. Ndakabweza kabbeeke akusotoka kuzwa mubbaasi.
 
 ##
-Bbasi yakali mukuzula akutalika kuya kujwe. Pesi cintu cipati cakali kuyandika, nkuyandaula ng'anda yabaaisha.
+Bbaasi lyakali kuyanda kuzula akutalika kuya kujwe. Pesi cintu cipati cakali kuyandika, nkuyandaula ŋanda yabaacisya.
 
 ##
 * License: [CC-BY]

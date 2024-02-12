@@ -1,43 +1,43 @@
-# Ncakaamba Mucizyi wa Vusi
+# Ncaakaamba Mucizyi wa Vusi
 
 ##
-Mafumofumo, bakapanyina Vusi bakamwita, "Vusi ndakomba utole iji kubazyali bako. Bayanda kupanga cinkwa cakupobwe yamucizyi wako."
+Buzuba bumwi mafwumofwumo, banyinakulu Vusi bakamwiita, "Vusi ndakomba utole ji eeli kubazyali bako. Bayanda kubamba nkukisi mpati yapobwe yabwiinga lyamucizyi wako."
 
 ##
-Nakali kunka munzila, wakajana basankwa bobilo bakali kugoma micelo. Umwi wakamunyanga iji akuiwala mucisamu mpona yakapwaika.
+Naakali kuyuubwenda munzila, wakajana basankwa bobilo bakali kucela micelo. Umwi musankwa wakamunyanga ji akulifwusa mucisamu, mpoona lyakapwaika.
 
 ##
-"Hena watyani?' wakalila Vusi. "eyi iji yali yakupangila cinkwa cakupobwe. Cinkwa cakupobwe cali cakubwiinga bwamucizyi wangu. Mucizyi wanga ulaamba kuti nzi kuti kutabi cinkwa cakupobwe?"
+"Ino watyani?" wakalila Vusi. "Eeli ji lyali lyakubambya nkukisi mpati lyakupobwe lya bwiinga. Nkukisi njakupobwe lyabwiinga lyamucizyi wangu. Mucizyi wangu ulaamba kuti nzi kuti kutabi nkukisi kupobwe?"
 
 ##
-Basankwa bakalilekelela. "Tatukonzyi kugwasha a cinkwa cakupobwe, pesi kobweza nkoli ukamupe mucizyi wako." Vusi wakatolelela alwendo lwakwe.
+Basankwa bakalilekelela. "Tatukonzyi kugwasya ankukisi mpati lyakupobwe, pesi kobweza nkoli ukamupe mucizyi wako." Vusi wakazumanana alweendo lwakwe.
 
 ##
-Nakali kwenda munzila, wakajana balombwana bobilo kabayaka ng'anda. "Hena inga twabelesya kasamu ako kayumu?" Pesi kasamu tikakali kayumu mpona kakatyoka.
+Naakali kweenda munzila, wakajana balombwana bobilo kabayaka ŋanda. "Sena inga twabelesya kasamu ako kayumu?" Pesi kasamu tiikakali kayumu mpoona kakatyoka.
 
 ##
-"Hena mwacita nzi?" wakalila Vusi. "Akaya kasamu cali cipego camucizyi wangu. Basikugoma micelo balindipede akambo kakuti badipwaila iji yakupangila cinkwa cakupobwe. Cinkwa cakupobwe cali cabwinga bwamucizyi wangu. Lino kunyina iji, kunyina cinkwa cakupobwe a cipego. Ulaamba nzi mucizyi wangu?
+"Ino mwacita nzi?" wakalila Vusi. "Ikasamu aaka cali cipego camucizyi wangu. Basikucela micelo balindipede akaambo kakuti bandipwaila ji lyakubamba nkukisi mpati yakupobwe. Nkukisi yakupobwe cali cipego cabwiinga bwamucizyi wangu. Lino kunyina ji, kunyina nkukisi yakupobwe acipego. Ulaamba kuti nzi mucizyi wangu?"
 
 ##
-Bayaki bakalilekela akambo kakutyola kasamu. "Kunyina ncotunga twacita a cinkwa cakupobwe, pesi bweza bwizu obu ukamupe mucizyi wako." Vusi wakatolelela alwendo lwakwe.
+Bayaki bakalilekelela akaambo kakutyola kasamu. "Kunyina ncotunga twacita ankukisi yakupobwe, pesi kobweza bwizu oobu ukamupe mucizyi wako." Vusi wakazumanana alweendo lwakwe.
 
 ##
-Nakatolelela kweenda, wakajana mulimi. "Bwabota bwizu obo, inga tondipi ndilume ashonto?" yakabuzya ng'ombe. Bwizu bwakabotezya, nkabela, ng'ombe yakabulya bonse.
+Naakazumanana kweenda, wakajana mulimi aŋombe. "Bwabota bwizu oobo, inga tondipi ndilume asyoonto?" yakabuzya ŋombe. Bwizu bwakabotesya, nkabela, ŋombe yakabulya boonse.
 
 ##
-"Hena wacita nzi?" wakalila Vusi. "Obuya bwizu cali cipego camucizyi wangu. Bayaki mbibandipa bwizu buya akambo kakuti bandityolela kasamu. Basikugoma micelo balindipede kasamu akambo kakuti badipwaila iji yakupangila cinkwa cakupobwe. Cinkwa cakupobwe cali cabwinga bwamucizyi wangu. Lino kunyina iji, kunyina cinkwa cakupobwe a cipego." Ulaamba nzi mucizyi wangu?
+"Ino wacita nzi?" wakalila Vusi. "Obuya bwizu cali cipego camucizyi wangu. Bayaki mbabandipa bwizu buya akaambo kakuti bandityolela kasamu. Basikucela micelo balindipede kasamu akaambo kakuti bandipwaila ji lyakubambya nkukkisi mpati yakupobwe lya bwiinga. Nkukkisi yakupobwe cali cipego cabwiinga bwamucizyi wangu. Lino kunyina ji, kunyina nkukkisi yakupobwe a cipego." Ulaamba kuti nzi mucizyi wangu?
 
 ##
-Ng'ombe yakalilekelela akambo kakuliyanda. Mpona, mulimi wakazumizya kuti Vusi aunke ang'ombe akape mucizyi wakwe. Lweendo lwaka tolelela.
+Ŋombe yakalilekelela akaambo kakuliyanda. Mpoona, mulimi wakazuminzya kuti Vusi aunke aŋombe ikapegwe mucizyi wakwe cipego ca bwiinga. Lweendo lwakazumanana.
 
 ##
-Pesi ng'ombe yakatija akujokela kumulimi. Vusi wakazimina. Aboobo, wakacelwa kusika kupobwe yamucizyi wakwe.
+Pesi ŋombe yakatija akujokela kumulimi. Vusi wakasweeka nakali kuya ku bwiinga. Aboobo, wakamuka kusika kupobwe lyamucizyi wakwe. Batambe-tambe bakali kulya ciindi Vusi naakasika kupobwe.
 
 ##
-"Ino ndilacita buti?" Vusi wakalila. Zipego ndinyina. Kunyina iji, kunyina cinkwa capobwe, kunyina cipego ciliconse."
+"Ino ndilacita buti?" Vusi wakalila. "Ŋombe yatija cali cipego, kucincanya bwizu bwandipede bayaki. Bayaki bandipa bwizu nkaambo kakuti batyola kasamu kandipede basikucela micelo. Basikucela micelo bandipa kasamu nkaambo bapwaya ji lyakubambya nkukkisi. Nkukkisi yali yakubwiinga bwamucizyi wangu. Zyipego ndinyina. Kunyina ji, kunyina nkukkisi mpati yapobwe, kunyina cipego cili coonse."
 
 ##
-Mucizyi wa Vusi wakayeya kwakacindi, mane wakati, "Vusi mukulana wangu, mebo sibikede maano kuzipego. Siyanda cinkwa capobwe! Cipati ncakuti tuli antomwe. Koya usame zisani zibotu kutegwa tupobole. Vusi wakacita mbuli mbwakambilwa.
+Mucizyi wa Vusi wakayeeya kwaciindi, mpoona wakati, "Vusi mukwesu, nsebikkide maano kapati kuzyipego. Nseyandi nkukkisi mpoati yapobwe! Cipati ncakuti tuli antoomwe, alimwi ndakkomana. Koya usame zyikobela zyibotu kutegwa tupobole." Vusi wakacita mbuli mbwaakaambilwa.
 
 ##
 * License: [CC-BY]

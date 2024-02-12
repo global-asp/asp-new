@@ -1,28 +1,28 @@
-# Hena ucita nzi?
+# Ino Ucita Nzi?
 
 ##
-Ndilaimba.
+Ndila imba.
 
 ##
-Ulabbaibbizya.
+Ula bbaibbisya.
 
 ##
-Ndilakamba.
+Ndila kamba.
 
 ##
-Ulalyolola.
+Ula lyoolola.
 
 ##
 Ulaita.
 
 ##
-Ndilavwila.
+Ndila vwiila.
 
 ##
-Ulaswilila.
+Ulaswiilila.
 
 ##
-Hena ucita nzi?
+Ino ucita nzi?
 
 ##
 * License: [CC-BY]

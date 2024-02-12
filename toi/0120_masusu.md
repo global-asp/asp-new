@@ -1,25 +1,25 @@
 # Masusu
 
 ##
-Thuli ulijisi masusu mavwavwi.
+Thuli ujisi masusu mafwaafwi.
 
 ##
-Anna ulijisi masusu malanvwu.
+Anna ujisi masusu malamfwu.
 
 ##
-Cathy ulijisi masusu malanvwu kapati.
+Cathy ujisi masusu malamfwu kwiinda.
 
 ##
-Zama wakaosa masusu akwe.
+Zama wakaluka masusu aakwe.
 
 ##
-Baba ulijisi malezu.
+Baba ujisi malezu.
 
 ##
-Zenele wakamuna masusu akwe.
+Zanele wakamuna masusu aakwe.
 
 ##
-Thabo wagela masusu akwe.
+Thabo waagela masusu aakwe.
 
 ##
 Themba wagela masusu.

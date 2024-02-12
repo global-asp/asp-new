@@ -1,40 +1,40 @@
-# Zama mukali!
+# Zama Mukali!
 
 ##
-Mukulana wangu mushonto ulacelwa koona. Ndilafwambana kubuka, nkambo ndimukali.
+Musyoonto wangu musankwa ulaccelwa koona. Ndilafwambaana kubuka, nkaambo ndimukali.
 
 ##
 Ndime ndijalwida zuba.
 
 ##
-Baama bamba kuti, "Ulinyenyezi yangu yakumaca".
+Baama baamba kuti, "Ulinyenyezi yangu yakubucedo."
 
 ##
-Ndilasamba endike, siyandi lugwasho lulilonse.
+Ndilasamba endike, nseyandi lugwasyo luli loonse.
 
 ##
-Ndinyina penzi amenda atontola a nsipa inunka yanyanzabili.
+Ndinyina penzi ameenda atontola ansipa inunka yabbuluu.
 
 ##
-Bamama balandiyezya, "Utalubi kucumba meno." Ndaingula ndati "Peepe, kutali ndime. sekonzyi kuluba".
+Baama balandiyeeyezya, "Utalubi kucumba meno." Ndaingula kuti "Peepe, kutali ndime. Nsekonzyi kuluba."
 
 ##
-Ndamana kusamba, ndilanzya bahanene akubambila kuti babe abuzuba bubotu.
+Ndamana kusamba, ndilaanzya bahaanene amunyina baama akubaambila kuti babe abuzuba bubotu.
 
 ##
-Ndamana ndalisamika, "Ndimupati lino baama".
+Ndamana ndalisamika, "Ndimupati lino baama."
 
 ##
-Inga ndajala nkopela akwanga mabbusu.
+Inga ndajala nkopela akwaanga mabbusu.
 
 ##
-Mushonto wangu ndilakumuzyibya makani onse apya akucikolo.
+Musyoonto wangu musankwa ndilamuzyibya makani onse aakucikolo.
 
 ##
-Ndilabeleka cangunzu lyonse mucikolo.
+Ndilabeleka canguzu lyoonse mucikolo.
 
 ##
-Ndilakucita zyintu zyonse zibotu lyonse. Pesi cintu ncendiyandisha nkusobana.
+Ndilacita zyintu zyoonse zyibotu lyoonse. Pele cintu nceyandisya kapati nkusobana.
 
 ##
 * License: [CC-BY]

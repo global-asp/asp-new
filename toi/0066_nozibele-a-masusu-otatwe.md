@@ -1,43 +1,43 @@
-# Nozibele a Masusu Otatwe.
+# Nozibele a Masusu Otatwe
 
 ##
-Mazuba akaindi, basimbi botatwe bakaunkide mukutebba nkuni.
+Ikaindi, basimbi botatwe bakaunkide kukutebba nkuni.
 
 ##
-Oobo buzuba kwakalipide kapati, aboobo, bakainka kumulonga. Bakasobana akusamba mumeenda.
+Oobo buzuba kwakali kupya kapati, aboobo, bakaunka kumulonga. Bakasobana akusamba mumeenda.
 
 ##
-Nikwakatalika kusiya, bakatalika kujoka kumang'anda.
+Nikwakatalika kusiya, bakatalika kujoka kumaanda kwabo.
 
 ##
-Kabali mukusika, Nozibele wakabika kwanza kwakwe mumukosi. Wakaluba kakusama mumukosi! "Ndalomba mundisindikile." Pesi benzinyina bakati cindi caunka.
+Kabali afwaafwi akusika, Nozibele wakabikka kwaanza kwakwe munsingo. Wakaluba kalungu kakusama munsingo! "Ndalomba mundisindikile." Pesi beenzyinyina bakati ciindi caunka kwasiya.
 
 ##
-Mpona, Nozibele wakajokela akukajana kamumukosi. Wakatalika kujokela kung'anda. Mukubula coolwe, wakasoweka nkambo kamudima.
+Mpoona, Nozibele wakajokela akukajana kalungu kakwe kamunsingo. Wakatalika kujokela kuŋanda. Mukubula coolwe, wakasweeka nkaambo kamudima.
 
 ##
-Nakalangisha, wakabona mumuni kauzwa mung'anda. Wakeenda cakufwambana akukonkomona amulyango.
+Naakalangisya, wakabona mumuni kuzwa mukaanda. Wakeenda cakufwambaana akukonkomona amulyango.
 
 ##
-Niwakajalulwa mulyango, kwakazwa mubwa, "Uyanda nzi?" Nozibele wakati, "Ndazimina, aboobo ndiyanda busena bwakoona." "Njila, olo ndilakuluma. Nozibele wakanjila.
+Wakanyandwa, niwakajuka mulyango, kwakazwa mubwa, "Uyanda nzi?" Nozibele wakati, "Ndazimina, aboobo ndiyanda busena bwakoona." "Njila, biyo-biyo ndakuluma." Nozibele wakanjila.
 
 ##
-Mubwa wakati, "Ndijikile". Nozibele wakati, "seninga jikila mubwa mubumi bwangu." Mubwa wakati, "Kujika olo ndilakuluma." Mpoona Nozibele wakajika zyakulya zya mubwa.
+Mubwa wakati, "Ndijikile." Nozibele wakati, "Seninga jikila mubwa mubuumi bwangu." Mubwa wakati, "Kojika biyo-biyo ndakuluma." Mpoona Nozibele wakajika zyakulya zyamubwa.
 
 ##
-Mubwa wakati, "Kondiyalila abulo." "seninga yalide bulo bwa mubwa," wakaingula Nozibele. Mubwa wakati, "Koyala bulo olo ndilakuluma". Mpoona Nozibele wakayala bulo.
+Mubwa wakati, "Kondiyalila bulo." "Seninga yalide bulo bwamubwa," wakaingula Nozibele. Mubwa wakati, "Koyala bulo biyo-biyo ndakuluma." Mpoona Nozibele wakayala bulo.
 
 ##
-Mazuba onse, wakali kujika, kupyaanga akuwashila mubwa. Mubwa wakaambila Nozibele kuti uunka mukuswaya benzinyina. Wakalailila kuti incito zyonse zibelekwe kataninga joka.
+Mazuba oonse, wakali kujika, kupyaanga akuwaccila mubwa. Bumwi buzba, mubwa wakaambila Nozibele kuti uunka kukuswaya beenzyinyina. Wakalailila kuti milimo yoonse ibelekwe kataninga joka.
 
 ##
-Mbwakazwida biyo mubwa, Nozibele wakagusha masusu otatwe kumutwe wakwe akubika yomwe mujungusi abulo, imwi kunze amulyango, aumwi kuluba. Nakamana, wakatijila kung'anda.
+Mbwaakazwida biyo mubwa, Nozibele wakagusya masusu otatwe kumutwe wakwe akubikka lyomwe mujungusi abulo, limwi kunze aacijazyo, limwi muciba. Naakamana, wakatijila kuŋanda.
 
 ##
-Mubwa nakajoka, wakayandaula Nozibele. "Nozibele ulikuli?" Susu yakusanguna yakavwila "Ndili mujungusi abulo." Susu lyabili yakati,"Ndilikunze amulyango." Lyatatu lyakati, "ndili momuno muluba."
+Mubwa naakajoka, wakayandaula Nozibele. "Nozibele uli kuli?" Susu lyakusaanguna lyakavwiila lilaamba "Ndili mujungusi abulo." Susu lyabili lyakati, "Ndili kunze aacijazyo." Lyatatu lyakati, "ndili momuno muciba."
 
 ##
-Nikwakainda cindi, mubwa wakazyiba kuti Nozibele wakamweena. Aboobo, wakatalika kumucilila. Pesi bakulana bakwe Nozibele bakaimikila kunzila azisamu. Mpoona mubwa wakajoka. Kuzwa lyelyo, taningabwenwe.
+Nikwakainda ciindi, mubwa wakazyiba kuti Nozibele wakamucenga. Aboobo, wakatalika kumuccilila. Pesi bana bokwabo Nozibele bakaimikila kunzila azyisamu. Mpoona mubwa wakajoka katija kuumwa. Kuzwa buzuba oobo, kunyina naakabwenwe alimwi mubwa ooyu.
 
 ##
 * License: [CC-BY]

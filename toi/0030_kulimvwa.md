@@ -1,19 +1,19 @@
-# Kunvwa
+# Kulimvwa
 
 ##
-Moyo wangu unvwa zyintu zyinji.
+Moyo wangu ulimvwa zyintu zyinji.
 
 ##
-Ndilanvwa kabotu kuti bakapa bandanina twano masiku.
+Ndilamvwa kabotu akukkomana baneene batwaanina twaano masiku.
 
 ##
-Ndilinvwa kwanguluka kuti kandisobana amwenzuma.
+Ndilimvwa kwaanguluka kuti kandisobana amweenzuma.
 
 ##
-Ndilanvwa kuusa kuti batata bandambila kuti tabajisi mali.
+Ndilimvwa kuusa kuti bataata bandaambila kuti tabajisi mali.
 
 ##
-Ndilinvwa kuyandwa kuti bamama bandikumbatila.
+Ndilimvwa kuyandwa kuti baama bandikumbata.
 
 ##
 * License: [CC-BY-NC]

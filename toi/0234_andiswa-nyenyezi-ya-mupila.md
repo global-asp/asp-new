@@ -1,28 +1,28 @@
-# Andiswa Sibbola Mukali
+# Andiswa nyenyezi ya Mupila
 
 ##
-Andiswa wakali kuebelele Ibalombwa kabasobana ibbola na mupila loonse wakali kulombozya kuti na inga wabasangana, bumwi buzuba wakalomba bayi ba bbola kuti asangana basibola kutengwa baume antomwe.
+Andiswa wakali kulangilizya basankwa kabasobana mupila. Wakali kulombozya kuti inga wabasangana bumwi buzuba. Wakalomba basikusobanya mupila kuti asangane basimupila kutegwa awalo aume antoomwe ambabo.
 
 ##
-Bakalijata akasolo bayi babbola akumwambila kuti imusobano wampila ngwabasankwa biyo ano achikolo.
+Basikusobanya mupila bakalijata akasolo. "Aano acikolo, ibana basankwa mbebazumizidwe kuuma mupila" bakaamba.
 
 ##
-Bamasankwa bakamwimbila kuti aunke kukuma bola yamanza kuleka bbola lyamaulu itegwa njabasankwa. Akookambo kamunyemya Andiswa.
+Basankwa bakamwaambila kuti aunke kukuuma mupila wamaanza nkaambo mupila wamaulu ngwa basankwa. Aako kaambo kakamunyemya Andiswa.
 
 ##
-Ibuzuba bwakatobela ackolo kwali imusobano mupati,ino bayi babbola balityompedwe akaambo kakuti Imulombwana ngubalikushoma wakalichisinwe abobo tanakali kukonzya kuuma bbola.
+Buzuba bwakatobela acikolo kwaali musobano mupati. Bayi ba mupila bakali tyompedwe nkaambo kakuti musankwa ngubakali kusyoma wakalicisidwe, aboobo taakali kukonzya kuuma mupila.
 
 ##
-Andiswa waka balombesesha bayi kuti ba munjizye mumusobano ino bayi tibakazyi chakuchita pele bakumuzumizya kuti aume.
+Andiswa wakazuzila ku bayi ba mupila akubalombai kuti bamunjizye mumusobano. Bayi ba mupila tiibakazyi cakucita aciindi eeco, mpoona bakamuzuminzya kuti aume mupila antoomwe abasankwa.
 
 ##
-Imusobano wakauma kunyina bakanywisinde pee nichamana chibela chakusanguna.
+Musobano wakali muyumu. Kunyina bakanywinsyide pe nicakamana cibeela cakusaanguna.
 
 ##
-Ino muchibela chabili ichamusobano Andiswa wakaibweza bbola wakatiyana kuya kuchipanda nachigolo,wakauma bola mane mundangala.
+Mucibeela cabili camusobano, umwi musankwa wakazi kumupa mupila Andiswa, wakaubweza mupila akutiyaanina kugoolo, wakauma mupila mane muntangala akunywinsya.
 
 ##
-Yoonse mbunga yakuebelela yasotoka mujulu mulukomano Kuzwa buzuba obo bana basimbi muchikolo bakazuminisingwa kuuma bbola yakumaulu.
+Yoonse mbunga yakali kweebelela yakasotoka mujulu cakukkomana. Kuzwa buzuba oobo bana basimbi mucikolo bakazuminzyigwa kuuma mupila wkumaulu.
 
 ##
 * License: [CC-BY-NC]

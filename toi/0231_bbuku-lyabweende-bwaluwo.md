@@ -1,28 +1,28 @@
-# Bbuku Lyakwenda Kwaluo
+# Bbuku Lyabweende Bwaluwo
 
 ##
 Nkuyumu.
 
 ##
-Izuba yaumpa.
+Izuba lyabalisya kulapya.
 
 ##
-Kuli muuwo.
+Kuli muwo.
 
 ##
 Kuli makumbi.
 
 ##
-Kulatontola
+Kulatontola.
 
 ##
-Invwula ilaloka.
+Imvwula ilawa.
 
 ##
-Kuli muzuzumo.
+Kuli kuzuma.
 
 ##
-Ndabona Inkongolo.
+Ndabona vwilicoongo.
 
 ##
 * License: [CC-BY-NC]

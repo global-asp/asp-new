@@ -1,37 +1,37 @@
 # Bana Babunzuka
 
 ##
-Kaindi, kwakali mukwashi wakali kukala cakukomana.
+Kaindi, kwakali mukwasyi wakali kukkala cakukkomana.
 
 ##
-Tibakali kulwana pe. Bakali kugwasha bazyali ang'anda akumunda.
+Tiibakali kulwana pe. Bakali kugwasya bazyali aŋanda akumuunda.
 
 ##
-Pesi tibakali kuzumizyigwa kuswena munsi amulilo.
+Pesi tiibakali kuzuminzyigwa kuswena munsi-munsi amulilo.
 
 ##
-Bakali kujata ncito zyonse masiku. Nkambo bakali pangidwe abunzuka.
+Bakali kubeleka milimo yoonse masiku. Nkaambo bakabambidwe aabunzuka.
 
 ##
-Pesi umwi wabasankwa wakalikuyandishisha kuti aunke muzuba.
+Pesi umwi wabasankwa wakayandisisya kuti aunke muzuba.
 
 ##
-Bumwi buzuba kuyandishisha kwakakomena. Bakulana bakwe bakamucenjezya ...
+Bumwi buzuba kuyandisisya kwakakomena. Bapati bakwe basankwa bakamucenjezya...
 
 ##
-Pesi bakacelwa. Wakasungunuka muzuba ipya.
+Pesi bakaccelwa. Wakeenzemuka muzuba lipya.
 
 ##
-Bana babunzuka bakausa kapati kubona mukulana wabo kasungunuka.
+Bana babunzuka bakausa kapati kubona mupati wabo kaenzemuka.
 
 ##
-Pesi bakajana nzila. Bakabweza bunzuka bwakasungunuka akubumba ciyuni.
+Pesi bakajana muzeezo. Bakabweza bunzuka bwakeenzemuka akubumba ciyuni.
 
 ##
-Bakabika cibumbwa atala amulundu.
+Bakabikka cibumbwa atala amulundu.
 
 ##
-Niyakazwa Izuba, wakauluka kaimba nyimbo mumuumuni wamafumofumo.
+Nilyakazwa zuba, wakauluka kaimba nyimbo mumumuni wamafwumo-fwumo.
 
 ##
 * License: [CC-BY]

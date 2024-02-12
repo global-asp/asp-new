@@ -1,40 +1,40 @@
 # Cisubulo
 
 ##
-Bumwi buzuba, bama bakaleta micelo inji.
+Bumwi buzuba, baama bakaleta michelo minji.
 
 ##
-"Tulalya cindi nzi micelo?" twabuzya. "Tulalya masiku" bakaingula bamama.
+"Tulailya ciindi nzi micelo?" Twakabuzya. "Tulailya masiku" bakavwiila baama.
 
 ##
-Mushonto wangu Rahim ulaliyanda. Wakalabila micelo yonse. Wakalya micelo inji.
+Musyoonto wangu Rahim mulyato. Walabila michelo yoonse. Ulalya michelo minji.
 
 ##
-"Kolanga zyacita Rahim!" wakaompolola mushonto wangu. Ndakati "Rahim tanvwi alimwi ulaliyanda."
+"Langa nzyaacita Rahim!" wakoompolola musyoonto wangu. Ndakati "Rahim tamvwi alimwi ulaliyanda."
 
 ##
-Bamama balinyemede nkambo ka Rahim.
+Baama balinyemede akaambo ka Rahim.
 
 ##
 Aswebo tulinyemede. Pesi Rahim talilekeleli.
 
 ##
-"Hena tamuko mupa cisubulo Rahim?" Wabuzya mushonto wangu.
+"Sena tamukoomupa cisubulo Rahim?" Wabuzya musyoonto wangu.
 
 ##
-"Rahim, linolino ulacibona," bajenjezya bamama.
+"Rahim, lino-lino ulausa," bakacenjezya baama.
 
 ##
-Rahim wakatalika kunvwa kuciswa.
+Rahim watalika kulimvwa kuciswa.
 
 ##
-"Mwida mulacisa," waamba cakupetekezya.
+"Mwida mulacisa," waamba Rahim cakupetekezya.
 
 ##
-Bamama bakalizyi citi citike. Micelo yakali kumusubula Rahim.
+Baama balizyi kuti eeci cilacitika. Muchelo wamusubula Rahim.
 
 ##
-Nikwakainda cindi, Rahim wakalilekelela. "Sikainduluki ikuliyanda," wakashomezya. Tonse twamushoma.
+Nikwakainda ciindi, Rahim wakalilekelela. "Nsekainduluki kuba mulyato alimwi," wakasyomenzya. Toonse twakamusyoma.
 
 ##
 * License: [CC-BY]

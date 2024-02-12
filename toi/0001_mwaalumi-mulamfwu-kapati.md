@@ -1,37 +1,37 @@
-# Mwalumi Mulanfwu Kapati
+# Mwaalumi Mulamfwu Kapati
 
 ##
-Ijamba lwakwe lwakali ifwafwi kapati.
+Ijamba lyakwe lyakali lifwaafwi kapati.
 
 ##
-Mulyango wang'anda wakali mufwafwi.
+Mulyango waŋanda wakali mufwaafwi.
 
 ##
-Ibulo bwakwe bwakali bufwafwi.
+Bulo bwakwe bwakali bufwaafwi.
 
 ##
-Incinga yakwe yakali ifwafwi.
+Ncinga yakwe yakali mfwaafwi.
 
 ##
-Oyu mwalumi wakali mulanfwu.
+Ooyu mwaalumi wakali mulamfwu.
 
 ##
-Wakapanga mujatizyo wajamba mulanfwu.
+Waka panga mwiini wajamba mulamfwu.
 
 ##
-Wakapanga mulyango mulanfwu.
+Wakayaka milyango milamfwu kapati.
 
 ##
-Wakapanga bulo bulanfwu.
+Wakabamba bulo bulamfwu.
 
 ##
-Wakaula ncinga ilanfwu.
+Wakaula ncinga ndamfwu.
 
 ##
-Wakakala acuuno cilanfwu. Wakalya amafoloko malanfwu.
+Waka kkala acuuno cilamfwu. Wakalya amfwoloko ndamfwu.
 
 ##
-Wakazwa mung'anda yakwe akuyokala mushokwe. Wakakala kwamyaka minji.
+Wakazwa muŋanda yakwe akuyoo kkala musyokwe. Wakakkala kwamyaka minji.
 
 ##
 * License: [CC-BY]

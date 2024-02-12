@@ -1,40 +1,40 @@
 # Tom Sikusambala Mabbanana
 
 ##
-Tom wanyamuna mabbanana apide mucinzuma.
+Tom wanyamuna mabbanana abizwide mucinzuma.
 
 ##
-Tom uunka kumusika mukusambala mabbanana.
+Tom waunka kumusyika kukusambala mabbanana.
 
 ##
-Bantu kumusika baula micelo.
+Bantu kumusyika baula michelo.
 
 ##
-Pesi kunyina uula mabbanana akwe Tom. Balombozya kuula micelo kubamakaintu.
+Pesi kunyina uula mabbanana akwe Tom. Balombozya kuula micelo kuli bamakaintu.
 
 ##
-"Mu minzi yesu mbamakaintu biyo basambala micelo," bantu baamba. "Mwalumi ulibuti oyu?" bantu babuzya.
+"Muminzi yesu mbaamakaintu balo basambala michelo," bantu baamba. "Mwaalumi wamusyobo nzi ooyu?" bantu babuzya.
 
 ##
-Tom takatyompwa. Wakaita "Kamuula mabbanana angu! Kamuula mabbanana angu apide alimwi alweela!
+Tom taakatyompwa. Wakaita "Kamuula mabbanana angu! Kamuula mabbanana angu abizwide alimwi alweela!"
 
 ##
-Omwi mukaintu wakanyamuna mabbanana kugusha mucinzuma. Walangishisha mabbanana.
+Umwi mukaintu wakanyamuna mabbanana kugusya mucinzuma. Waalangisisya mabbanana.
 
 ##
-Mukaintu waula mabbanana.
+Mukaintu ulaula ma bbanana.
 
 ##
-Bantu banji basika akula mabbanana kuli Tom akulya.
+Bantu banji balasika ku cintoolo cha Tom kuula ma bbanana akwaalya.
 
 ##
-Mukacindi kanini, mabbanana akamana. Tom wabala mali ngakasambala.
+Mukaindi kaniini, cinzuma Cha Tom cinyina ma bbanana. Tom wabala mali ngaajana kwiinda mukusambala.
 
 ##
-Naakama, Tom wakaula nsipa, ccuka alimwi a cinkwa. Wakabika zyintu mucinzuma cakwe.
+Kwamana, Tom waula nsipa, ccukela alimwi aa cinkwa. Wabikka zyintu eezyi mucinzuma cakwe.
 
 ##
-Tom wakatuka cinzuma amutwe akunka kung'anda.
+Tom watukka cinzuma amutwe akuunka kuŋanda.
 
 ##
 * License: [CC-BY]

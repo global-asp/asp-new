@@ -1,40 +1,40 @@
-# Imbuto Ishonto: Kaano ka Wangari Maathai
+# Mbuto Nsyoonto: Kaano ka Wangari Maathai
 
 ##
-Mukati kamunzi, mujelele ya cilundu citegwa Kenya kujwe ya Afulika, kasimbi kambi kakali kubeleka abanyina. Izina lyakwe ngu Wangari.
+Mumunzi umwi uuli mujeleele lyamulundu utegwa Kenya cisi ca Afulika nkocili kujwe, kasimbi kamwi kasyoonto kakali kubeleka mumyuunda abanyina. Izyina lyankako lyakali Wangari.
 
 ##
- Wangari wakali kuyandisha kuba anze. Mu muunda wamukwasyi, Wangari wakasyanga tumbuto tushonto mubulongo bukasala.
+Wangari wakali kuyandisya kuba anze. Mumuunda wamukwasyi, Wangari wakalima akusyanga tumbuto tusyoonto-syoonto mubulongo bukasaala.
 
 ##
-Wakali kukomana kuti izuba yazwa mukubbila. Kuti na wacileka kubona zisyango, wakalizyi kuti ncindi cakuya kung'anda. Wakali kutolezya kanzila kashonto, mane wasotoka mulonga.
+Wakali kukkomana kapati kuti zuba lyazwa akubbila. Kuti naa waleka kuzibona kabotu zyisyango, wakali kuzyiba kuti kwasiya nciindi cakuya kuŋanda. Wakali kwiinda mukazila kasyoonto kainda mumyuunda mane waakuzabuka mulonga kayoobuya.
 
 ##
- Wangari wakali cenjede, aboobo, wakali kuyandisha kuti ainke kucikolo. Pesi banyina abaushi bakali kuyanda kuti kakala biyo akubagwasha ncito zyaang'anda. Nakasika myaka ciloba, mukulana wakwe wakabakombelezya kuti bamutole kucikolo.
+Wangari wakalimwana musongo amana ucenjede, aboobo wakali kulomohya kapati kuti aunke kucikolo. Pesi banyina abausyi bakali kuyanda kuti kakkala biyo aŋanda akubagwasya milimo. Naakakkwanya myaka ciloba yakuhyalwa, mupati wakwe wakabakombelezya bahyali bakwe kuti bamutole kucikolo.
 
 ##
-Wakali kuyandisha kwiiya! Wakali kwiya zyintu zipya cindi conse kuti wabala mabbuku. Wakali musongo mucikolo. Nakamana, bakamutumya ku America. Wangari wakali kuyandisya kuzyiba zyintu zyinji zyamunyika.
+Wakali kuyandisya kwiiya! Wangari wakali kwiiya zyintu zyipya ciindi coonse kufwumbwa abala bbuku. Wakalaa maanu kapati mucikolo. Wakacita kabotu kwiindilila mucikolo, bakamutamba kuti akaakuiile nyika nkwiili ku hisi hijatene ihya ku America. Wangari wakakkomana. Wakali kuyandisya kuzyiba zyintu zyinji zyamunyika.
 
 ##
-Ku America, wakaiya zyintu zyinji zyipya. Wakali kwiiya lwiyo lyakubambilila zisyango. Wakayeya mbwakali kusyanga nakali mucisi cookwabo ku Kenya.
+Ku America, wakaiya zyintu zyinji zyipya. Wakali kwiiya lwiiyo lwakubambilila zyisyango. Wakayeeya mbwaakali kusyanga zyisyango naakali mucisi cokwabo ca Kenya.
 
 ##
-Lwiyo nilwakali kuya kumbele, cakali kumuyezya mbwayandisyisya bantu baku Kenya. Wakali kuyanda kuti kabakomene alimwe kabangulukide. Mazuba mbwakali kwenda, cakali kumuyezya kung'anda ku Afulika.
+Mwaakali kuya kumbele kwiiya, cakali kumukubulusya mbwaakali kubayandisya bantu baku Kenya. Wakali kuyanda kuti kabakkomene alimwi kabaangulukide. Mazuba mbwaakali kuya bweenda ambwaakali kwiiya ku America, cakali kumuyeeyezya kuŋanda ku Afulika.
 
 ##
-Nakamana lwiyo lwakwe, wakapiluka ku Kenya. Wakajana kuti zyintu zyacinca. Imyuunda yakakomesyegwa. Bamakaintu bakanyina kwakutebba nkuni kuti bajike. Bantu bakalipengede alimwi bana bakali anzala.
+Naakamana lwiiyo lwakwe, wakapiluka ku Kenya. Wakajana kuti zyintu zyakacinca. Myuunda yakakomenzyegwa. Bamakaintu bakanyina kwakutebbela nkuni kuti bajike. Bantu bakalipengede alimwi bana bakali aanzala.
 
 ##
- Wangari wakalizyi cakucita. Wakambila bamakaintu kuti batalike kusyanga zisamu. Bamakaintu bakatalika kusambala zisamu akubelesha mali mukugwasyilizya mikwasyi yabo. Bakakomana kapati. Wangari wakabagwasya alimwi bakalinvwa kuba anguzu.
+Wangari wakalizyi cakucita. Wakayiisya bamakaintu kuti batalike kusyanga zyisamu kubelesya snake zya hisamu. Bamakaintu bakatalika kusambala zyisamu akubelesya mali kugwasyilizya mikwasyi yabo. Bakakkomana kapati. Wangari wakabagwasya alimwi bakalimvwa kuba anguzu.
 
 ##
-Mukuya kwacindi, zisamu zyakakomena. Milonga yakatalika kukunka alimwi. Bantu banji bakanvwa mpuwo ya Wangari. Sunu, zyulu zyazisamu zyakaba akambo ka mbuto zya Wangari.
+Mukuya kwaciindi, zyisamu zyakakomena. Milonga yakatalika kukunka alimwi. Bantu banji bakamvwa mpuwo ya Wangari. Sunu, zyuulu-zyuulu zyazyisamu zyakasyangwa kuzwa kambuto zya Wangari.
 
 ##
- Wangari wakabeleka canguzu. Bantu banji bakamuzyiba mumasena onse anyika. Bakamupa bulumbu ikulumbula milimo yakwe mibotu. Wakali muntu wakusanguna kupegwa bulumbu mu Afulika.
+Wangari wakabeleka canguzu. Bantu banji bakamuzyiba nyika yoonse mboizulwa. Bakamupa bulumbu bwa luumuno butegwa Nobel kulumbula milimo yakwe mibotu. Wakali muntu wakusaanguna kupegwa bulumbu bwa Nobel bwa luumuno bwamusyobo ooyu nyika ya Afulika mbozulywa.
 
 ##
- Wangari wakafwa mu 2011, pesi tulamuyeya twabona bubotu bwazisamu.
+Wangari wakafwa mu 2011, pesi inga tulamuyeeya twabona bubotu bwazyisamu.
 
 ##
 * License: [CC-BY]

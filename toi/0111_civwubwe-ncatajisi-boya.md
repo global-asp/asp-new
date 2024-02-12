@@ -1,28 +1,28 @@
-# Civwubwe Ncatajisili Boya
+# Civwubwe Ncatajisi Boya
 
 ##
-Bumwi buzuba, Sulwe wakali kwenda munsi amulonga.
+Bumwi buzuba, Sulwe wakali kweenda munsi aamulonga.
 
 ##
-Civwubwe wakaliko awalo, wakali kwendeenda akulya twakulya tubotu-botu.
+Civwubwe wakaliko awalo, kayaa kweendeenda akulya twakulya bubotu bwa nyanzabili.
 
 ##
-Civwubwe takalizyi kuti Sulwe wakali munsi-munsi, mpao bakamulyata kumaulu. Sulwe wakatalika kubwentela Civwubwe, "Ebo Civwubwe, tobwene kuti wandalyata kumaulu"?
+Civwubwe taakalizyi kuti Sulwe wakali munsi-munsi, mpoona wakamulyata kumaulu. Sulwe wakatalika kubwentela Civwubwe, "Ebo Civwubwe, tobwene kuti wandilyata kumaulu?"
 
 ##
-Civwubwe wakalomba lulekelelo kuli sulwe, "Tndakubwene. Ndakomba Kundilekela." Sulwe takayanda kutelela. "Wacitila caali kundilyata! Bumwi buzuba, uyo cibona! Uyo abona malipilo."
+Civwubwe wakalomba kulekelelwa kuli Sulwe, "Tiindakubwene. Ndalomba kondilekelela." Sulwe taakayanda kuteelela. "Wacita caali kundilyata! Bumwi buzuba, uyoocibona! Uya kucibbadelela ncoocita sunu."
 
 ##
-Sulwe wakambila mulilo wati "kuya, umuumpe Civwubwe azwa mumenda mukucela bwizu. Wakandilyata!" Mulilo wakavwuwa, "Kwina penzi mwenzuma. Ndilacita Mbubona obo."
+Sulwe wakaunka kuya kuyandaula mulilo akumwaambila kuti "Koya, umuumpe Civwubwe azwa mumeenda kuya kukucela bwizu. Wakandilyata!" Mulilo wakavwuwa, "Kwiina penzi mweenzuma. Ndilacita Mbubwenoobo."
 
 ##
-Civwubwe wakali kulya bwizu kulanfwu amulonga. "maawe!" Mulilo wayakisya. Mulilo wakatalika kuumpa boya bwa Civwubwe.
+Civwubwe wakali kulya bwizu kule amulonga. "maawe!" Mulilo wayakisya. Mulilo wakatalika kuumpa boya bwa Civwubwe.
 
 ##
-Civwubwe wakatalika kulila akubalikila mumenda. Iboya bwakwe bonse bwakapya kumulilo. Civwubwe wakali kwiide kulila. "Boya bwangu bwaumpwa kumulilo. Boya bwangu bwaunka. Boya bwangu bubotu."
+Civwubwe wakatalika kulila akutijaanina kumeenda. Boya bwakwe boonse bwakapya amulilo. Civwubwe wakali kuyaa bulila. "Boya bwangu bwaumpwa amulilo. Boya bwangu bwaunka. Boya bwangu bubotu."
 
 ##
-Sulwe wakakomana kuti boya bwa Civwubwe bwakapya. Kusikila sunu, Civwubwe taunki kule amenda akambo kakuyowa mulilo.
+Sulwe wakakkomana kubona kuti boya bwa Civwubwe bwakapya. Kusikila sunu, Civwubwe taunki kule ameenda akaambo kakuyoowa mulilo.
 
 ##
 * License: [CC-BY]

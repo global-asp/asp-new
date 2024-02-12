@@ -1,28 +1,28 @@
-# Zisani zyakucikolo
+# Zyisani Zyakucikolo
 
 ##
-Eyi delesi njilanvwu.
+Eeli deleesi ndilamfwu.
 
 ##
-Eyi juzi njipati.
+Eeyi nsweta nimpati.
 
 ##
-Eyi BBeeke Njipati.
+Eeli bbeeke ndipati.
 
 ##
-Eyi ntambo yamunkanya nji ...
+Oolu lutambo lwa mucibuno ndu ...
 
 ##
-Eyi heete njishonto.
+Eeyi ngowani ni nsyoonto.
 
 ##
-Masokesi mavwavwi.
+Ma sookesi ma fwaafwi.
 
 ##
-Pesi mabbusi aya mapya.
+Pele mabbusu aaya mapya.
 
 ##
-... Alakwana kabotu.
+... Alakkwana kabotu.
 
 ##
 * License: [CC-BY-NC]

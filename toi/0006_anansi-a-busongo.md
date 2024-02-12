@@ -1,22 +1,22 @@
 # Anansi a Busongo
 
 ##
-Kaindi, ibantu banji kunyina ncebakalizyi. Tibakalizyi kusyanga zisyango, nakuba kusuma zisani, nanka bwakupanga zintu zyakubelesha ang'anda akumyunda. Elyo, kwakali leza wakali kutegwa Nyame wakalijisi busongo bwakupa nyika yonse. Wakabusunga kabotu munongo.
+Kaindi bantu banji kunyina ncibakazyi. Tiibakazyi kusyanga zyisyango, nokuba kusuma zyisani, nokuba bwakubamba zyintu zyakubelesya aŋanda akumyuunda. Eelyo, kwakali leza wakali kutegwa Nyame wakajisi busongo bwakupa nyika yoonse. Wakabuyobola kabotu munongo.
 
 ##
-Bumwi Buzuba Nyame wakayeya kuti ape busongo kuli Anansi. Kuvwumbwa cindi Anansi alanga munongo, wakali kuba akwiya cintu cipya. Cakali cintu cikomanisya.
+Bumwi Buzuba Nyame wakayeeya kuti abupe busongo kuli Anansi. Kufwumbwa ciindi Anansi alanga munongo, wakali kwiiya cimbi cintu cipya. Cakali cintu cikkomaninsya.
 
 ##
-Anansi wakayeya cakuliyanda, "Ndilaibika nongo atala acisamu kutegwa busongo bube bwangu endike." Nakamana, wakalyangilila katambo kunongo amucibuno cakwe akutalika kutanta mucisamu. Wakapengekana kapati akutanta.
+Anansi wakayeeya cakuliyanda, "Ndilaibikka nongo atala acisamu kutegwa busongo bube bwangu endike." Naakamana, wakaangilila katambo kunongo amucibuno cakwe akutalika kutanta mucisamu. Wakapengana kapati akutanta mucisamu nkaambo inongo yakali kuguma magondo naakali kutanta mujulu.
 
 ##
-Mwanaakwe mushoto wakali kulangilila cindi conse munsi acisamu. Wakati, "Inga ticauba-uba kuti mwalyangilila kumusana?" Anansi wakasola, nkabela, cakauba-uba.
+Mwanaakwe musyoonto wakali kulangilila ciindi coonse munsi acisamu. Wakati, "Inga tiicauba-uba kuti mwalyaangilila kumusana?" Anansi wakasola, nkabela, cakamuubaubila kapati.
 
 ##
-Mukaindi kashonto, wakasika atala acisamu. Mpona wakaima akuyeya, "Ndime ndeleede kuba abusongo bonse, pesi mwanaangu ulicenjede kwinda ndime!" Anansi wakanyema kapati akusowa nongo ansi.
+Mukaindi kasyoonto, wakasika atala acisamu. Mpoona wakaima akuyeeya, "Ndime ndeleede kuba abusongo boonse, pesi mwanaangu ulicenjede kwiinda ndime!" Anansi wakanyema kapati akusowa nongo ansi.
 
 ##
-Inongo yakapwaika. Ibusonga bwakaba antangalala kuli bantu bonse. Kuzwa wao, bantu bakacizyiba kulima, kusuma akucita zintu zyonse bantu zyobacizyi kucita.
+Inongo yakapwaika. Busongo bwakacaala antangalala kubantu boonse. Kuzwa waawo, bantu bakacizyiba kulima, kusuma akucita zyintu zyoonse bantu nzyobazyi kucita.
 
 ##
 * License: [CC-BY]

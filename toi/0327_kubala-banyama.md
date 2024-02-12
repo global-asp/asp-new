@@ -1,28 +1,28 @@
-# Kubala banyama
+# Kubala Banyama
 
 ##
-Musovwu omwe uya mukunwa menda.
+Musovwu omwe uya kukunywa meenda.
 
 ##
-Ndudwa zyobilo zyuunka mukunwa menda.
+Nddudwa zyobilo zyuunka kukunywa meenda.
 
 ##
-Minyati yotatwe abayuni bali bone baya mukunwa menda abalo.
+Banyati botatwe abayuni bone baya kukunywa meenda abalo.
 
 ##
-Banakasha bosanwe aminjile ili musanu akamwi baya kumenda.
+Banakasya bosanwe abamunjile baali cisambomwe baya kukunywa meenda.
 
 ##
-Bacibize baliciloba babalikila kumenda.
+Bacibize bali ciloba bazuzila kumeenda.
 
 ##
-Bacula bali lusele answi zyili mafwuka zyilasamba mumenda.
+Bacula bali lusele answi zyili fwuka zyilasamba mumeenda.
 
 ##
-Shumbwa omwi walila. Uyanda kunwa awalo. Nguni uyowa shumbwa?
+Syumbwa omwe walila. Uyanda kunywa meenda awalo. Nguni uyoowa syuumbwa?
 
 ##
-Muzovwu omwe ulanwa menda a shumbwa.
+Muzovwu omwe unywa meenda asyuumbwa.
 
 ##
 * License: [CC-BY]

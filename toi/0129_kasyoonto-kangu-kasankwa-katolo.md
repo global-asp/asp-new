@@ -1,27 +1,25 @@
-# Kashonto kangu kasanka katolo
+# Kasyoonto Kangu kasankwa Katolo
 
 ##
-Ndabuka kumana ndakunka mulilo.
+Ndilabuka ndamana ndakunka mulilo.
 
 ##
-Ndasibika Menda.
+Ndajika meenda.
 
 ##
 Ndagonka nkuni.
 
 ##
-Ndakumba mumupika.
+Ndakopa mumpoto.
 
 ##
-Ndapyanga ansi.
+Ndakukula ansi muŋanda.
 
 ##
-Ndasanzya mbale.
+Ndasanzya mitiba.
 
 ##
-Ncinzi ncendibelekela canguzu ... 
-
-... kakuli mushonto wangu wiide kusobana?
+Nkaambo nzi ncendibelekela canguzu boobu... ... kakuli musyooonto wangu wiide kusobana?
 
 ##
 * License: [CC-BY-NC]

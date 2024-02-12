@@ -1,28 +1,28 @@
-# Mubili wangu
+# Mubili Wangu
 
 ##
-Ngandatija anguwe.
+Inga ndatijaana anguwo.
 
 ##
-Ngandasotoka anguwe.
+Inga ndasotoka anguwo.
 
 ##
-Ngandazyana anguwe.
+Inga ndazyana anguwo.
 
 ##
-Ngandasamba anguwe.
+Inga ndayamba anguwo.
 
 ##
-Ngandainzya anguwe.
+Inga ndasotooka anguwo.
 
 ##
-Ngandauma anguwe.
+Inga ndafwusa kuulu anguwo.
 
 ##
-Ngandasimuka anguwe.
+Inga ndaloboka anguwo.
 
 ##
-Pesi sikonzyi kuuluka anguwe.
+Pele nsekonzyi kuuluka anguwo.
 
 ##
 * License: [CC-BY-NC]

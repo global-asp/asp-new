@@ -4,25 +4,25 @@
 Ndayupa magwili.
 
 ##
-Ndatenda kabici.
+Ndatenda kkabicci.
 
 ##
-Ndatenda makaloti.
+Ndatenda makkalutu.
 
 ##
-Ndasanzya cilemba.
+Ndasanzya nyabo.
 
 ##
-Ndatenda zitende.
+Ndatenda zyitende.
 
 ##
-Ndatenda sipinaci.
+Ndatenda sipinacci.
 
 ##
-Bamama batenda wanyensi.
+Baama batenda hanyisi.
 
 ##
-Wanyensi ilandipa kulila akutenda.
+Hanyisi undipa kulila noutendwa.
 
 ##
 * License: [CC-BY-NC]

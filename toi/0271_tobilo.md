@@ -1,19 +1,19 @@
 # Tobilo
 
 ##
-Manza obilo ashonto ajate.
+Maanza obilo masyoonto akujata.
 
 ##
-Maulu obilo ashonto aume.
+Maulu obilo masyoonto aume.
 
 ##
-Meso obilo ashonto alange.
+Meso obilo masyoonto alange.
 
 ##
-Matwi obilo ashonto aswilile.
+Matwi obilo masyoonto aswiilile.
 
 ##
-Alimwi manza obilo aluyando akumbatile!
+Alimwi maanza obilo aaluyando akumbate!
 
 ##
 * License: [CC-BY-NC]

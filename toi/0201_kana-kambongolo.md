@@ -1,64 +1,64 @@
-# Mbongolo
+# Kana Kambongolo
 
 ##
-Kasimbi kashonto nkikakabona cintu cakali kugambya.
+Kakali kasimbi kasyoonto kakasaanguna kubona cintu cakali kunyandya kumbele lyabo.
 
 ##
-Nibakaswena mufwafwi, bakabona kuti wakali mukaintu ulaada.
+Mbocakali kuyaa buswena afwaafwi, bakabona kuti wakali mukaintu wakalaa da likinkide.
 
 ##
-Aka kana kasimbi, cakutayowa kakaswena munsi amukaintu. "Twelede kubasunga," elyo bantu bonse bakazumina. "Tulabasunga amwana wabo."
+Aaka kana kasimbi, ansoni hyakwe pele icakutayoowa, kakaswena munsi-munsi amukaintu. "Tweelede kubagwasya akubabamba andiswe." Eelyo bantu boonse bakazumina. "Tulababamba amwanaabo."
 
 ##
-Imwana wakali munzila kuti atumbuke. "Tonka!" "Kamuleta ngubo" "Amulete menda." "Tooonkaaaaa!"
+Mwana wakali munzila kuti atumbukwe. "Tonka!" "Kamuleta mapayi." "Amulete meenda." "Tooonkaaaaa!"
 
 ##
-Nibakabona kana, bonse bakagambwa. "Imbongolo?"
+Nibakamubona mwana, boonse bakasotokela munsi akunyandwa kapati. "Imbongolo?"
 
 ##
-Bonse bakatalika kukazyanya. "Twakamba kuti tulabasunga amwana, aboobo mbotuti tucite." Bamwi bakati, "Kuti tubasunge, balatuletela malweza."
+Boonse bakatalika kukazyanya. "Twaamba kuti tulababamba banyina amwana, aboobo mbotuticite oobo." Bamwi bakaamba, "Kuti tubabambe, balatuletela malweza."
 
 ##
-Imukaintu wakalijana alike alimwi. Wakakatazyigwa azyakucita amwana oyu waandene. Wakabula cakulicita mukamwini.
+Mukaintu wakalijana alikke alimwi. Wakakatazyigwa cakucita kumwana ooyu waandeene. Wakabula cakucita mukamwini.
 
 ##
-Limwi wakazumina mwana wakwe alimwi kuti wakali nyina wa Mbongolo.
+Limwi wakazumina kuti mwana wakwe amana mwana wakwe nimbongolo mpemunya wakali banyina mbongolo.
 
 ##
-Niyatakali kukomena Imbongolo, nicakali kabotu. Pesi Mbongolo eyi yakakomena limwi yakatalika kushupa kubbala kumusana. Mbongolo yakasola pesi tiyakacikonzya kupona mbuli muntu. Banyina bakali kulema kapati. Cindi conse bakali kunyemede. Zyimwi zyindi bakali kumupa ncito yabanyama.
+Niyatakali kukomena mbongolo, nicakali kabotu. Pesi Mbongolo eyi yakakomena limwi yakatalika kukatazya kubbala kumusana wabanyina. Mbongolo yakasola pesi tiiyakacikonzya kupona mbuli muntu. Banyina bakali kukatala kapati. Ciindi coonse bakali kujanika balinyemede. Zyimwi zyiindi bakali kumupa mulimo wabanyama.
 
 ##
-Mbongolo yakanyongano. Yakanyema kapati akambo kakuti tiyakangulukide. Bumwi buzuba, lunyemo lwakaindilila, wakababbakela banyina mane bawa ansi.
+Mbongolo yakanyongana akunyema kapati. Yakanyema kapati akaambo kakuti tiiyakaangulukide kuti inga yakonhya kucita zimwi zintu nhyoyakali kuyanda kuchita. Bumwi buzuba, kunyema kwakaindilila, yakababbakela banyina mane bawa ansi.
 
 ##
-Mbongolo yakanvwa nsoni. Yakatalika kubalika calubilo.
+Mbongolo yakafwa nsoni. Yakatalika kulunduka kutija kuya kule.
 
 ##
-Niyaleka kubalika Mbongolo, akali masiku. Mpona yakalivwunga akoona.
+Niyakaleka kulunduka mbongolo, akali masiku, imongolo yakasweka. "Hii, hoo." Yakang’utauhya mumudima. "Hiii hooo?" yakaongolola. Yakali iilikke mbongolo. Yakalivwunga akoona. Yakoona pele yakalipengede mumoyo maningi.
 
 ##
-Niyakabuka Mbongolo, yakajana mwaalumi ulinvwu munsi lwakwe. Wakamulanga mumeso akwe, wakabona bumi bubotu.
+Niyakabuka Mbongolo, yakajana kadaala kaiimvwi munsi munsi kakamulanga. Imbongolo yakamulanga kumeso mudaala, akubona bulangizi.
 
 ##
-Mbongolo yakaunka mukukala amwaalumi ooyo. Mwaalumi wakisya Mbongolo bwakupona. Mbongolo yakanvwa akwiya. Bakali kugwasyanya akuseka antomwe.
+Imbongolo yakaunka kukukkala amudaala ooyu. Mudaala wakayiisya Mbongolo Ibupone. Mbongolo yakamvwa alimwi akwiiya. Bakali kugwasyanya kubeleka akuseka antoomwe.
 
 ##
-Bumwi buzuba, mwaalumi wakalomba Mbongolo kuti imubbale akumutola kumulundu.
+Bumwi buzuba, mudaala wakalomba Mbongolo kuti imubbale akumutola kumulundu.
 
 ##
-Nibakasika atala akati kamakumbi, bonse bakoona. Mbongolo yakalota kuti banyina baciswa kumane bayanda lugwasho. Nakabuuka...
+Nibakasika atala akati kamakumbi, mudaala ambongolo bakoona. Mbongolo yakalota kuti banyina baciswa mpoona bakali kumwiita kuyanda lugwasyo. Naakabuka...
 
 ##
-...makumbi akayabaila antomwe amwenzinyina.
+… wakajana makumbi azimaana antoomwe amwenzyinyina, mudaala.
 
 ##
-Mbongolo yakazyiba cakucita.
+Mbongolo yakacizyiba cakucita.
 
 ##
-Mbongolo yakajana banyina kabali balike kabalilila mwana wakasoweka. Bakalangana kaciindi kalanfwu. Nibakamana, bakakumbatilana cagunzu.
+Mbongolo yakajana banyina kabali balikke kabalila mwana wabo wakasweeka. Bakalangana kwaciindi cilamfwu. Nibakamana, bakakumbatana canguzu.
 
 ##
-Mbongolo abanyina bakazyiba bwakukala antomwe. Ashonto shonto bantu bakatalika kuyaka mang'anda munsi lyabo.
+Mbongolo abanyina bakomena antoomwe, bakajana nzila yakupona antoomwe. Asyoonto- syoonto bantu bakatalika kuyaka maanda munsi-munsi lyabo akukkala antoomwe.
 
 ##
 * License: [CC-BY]

@@ -1,28 +1,28 @@
-# Ndayandisha Kubala!
+# Ndayandisya Kubala!
 
 ##
-Ndayandisha Kubala.
-
-##
-Nguni ngweti balile?
-
-##
-Mucizyi wangu ulilede.
+Ndayandisya Kubala.
 
 ##
 Nguni ngweti balile?
 
 ##
-Bamama abakapa balipatidwe.
+Mucizyi wangu woona.
 
 ##
 Nguni ngweti balile?
 
 ##
-Batata abakapa abalo balipatidwe.
+Baama abaneene balabeleka.
 
 ##
-Nguni ngweti balile? inga ndalibalila ndemwini.
+Nguni ngweti balile?
+
+##
+Bataata abahaanene abalo balabeleka.
+
+##
+Nguni ngweti balile? Inga ndalibalila ndemwini.
 
 ##
 * License: [CC-BY]

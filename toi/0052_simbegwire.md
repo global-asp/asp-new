@@ -1,52 +1,52 @@
 # Simbegwire
 
 ##
- Banyina Simbegwire nibakafwa, Simbegwire wakausa kapati. Baushi bakwe bakasola kumusunga. Mukuya kwa ciindi, bakatalika kukomana kwakubula banyina Simbegwire. Mafwumofwumo bakali kubandika abuzuba butobela. Imasiku bakali kujika antomwe. Kuti bamana kusanzya mitiba, bakali kumugwasha azyakucikolo.
+Banyina Simbegwire nibakafwa, Simbegwire wakausa kapati. Bausyi bakasola kumulela akumupa zyoonse. Mukuya kwaciindi, bakatalika kukkomana alimwi nokuba kuti banyina Simbegwire tiibakaliko. Mafwumo-fwumo bakali kwaambaula kujatikizya zyakucita mu buzuba oobo. Masiku bakali kujika antoomwe. Bamana kusanzya mitiba, bakali kumugwasya zyakucikolo.
 
 ##
-Bumwi buzuba baushi bakacelwa kujoka kung'anda. "Ulikuli mwanaangu?" bakaita. Simbegwire wakababalikila baushi. Nakamana, wakaimikila nji nakabona baushi kabajatide kwanza kwamukaintu. "ndiyanda kuti uzyibane amuntu wandeene mwanaangu. Oyu ngu Anita," bakamba calumwemwe.
+Bumwi buzuba bausyi bakaccelwa kujoka kuŋanda. "Uli kuli mwanaangu?" bakaita. Simbegwire wakabazuzila bausyi. Naakamana, wakaimikila nji naakabona bausyi kabajatide kwaanza kwamukaintu. "Ndiyanda kuti uzyibane amuntu waandeene mwanaangu. Oyu ngu Anita," bakaamba calumwemwe.
 
 ##
-"Wabonwa Simbegwire, bauso bakandambila zyintu zyinji alindiwe," wakati Anita. Pesi takwe nakamweta nakuba kumujata janza. Baushi Simbegwire bakali komene. Bakamba amakani akuti bakakale antomwe botatwe alimwi abuumi mbobunga bwabota. "Mwanaangu, ndashoma inga wazumina kuti ba Anita babe banyoko," bakati.
+"Uli buti Simbegwire, bauso bakandaambila zyintu zyinji zyijatikizya nduwe," wakaamba Anita. Pesi taakwe naakaseka-seka nokuba kumujata kujanza. Bausyi Simbegwire bakalikkomene. Bakaamba amakani aakuti bakakkale antoomwe botatwe alimwi abuumi mbobunga bwabota. "Mwanaangu, ndasyoma uyakuzumina kuti Anita abe banyoko," bakaamba bausyi.
 
 ##
-Bumi bwa Simbegwire bwakacinca. Wakaleka kujanika abaushi. Anita wakali kumupa milimo minji yamung'anda cakuti wakali kwaalilwa kujata ncito yakucikolo masiku. Wakali kuunka mukoona mbwamanina kulya. Cintu cakali kumubotela biyo ningubo yakamupa banyina. Baushi Simbegwire tibakali kubikila mano kuti bazyibe kuti mwana takomene.
+Buumi bwa Simbegwire bwakacinca. Wakaleka kujanika abausyi mafwumo-fwumo. Anita wakali kumupa milimo minji yakubeleka muŋanda cakuti wakali kwaalilwa kucita ncito yakucikolo masiku. Wakali kuunka kukoona mbwaamanina kulya. Cintu cakali kumubotela biyo ndipayi libotu kapati lyakamupede banyina. Bausyi Simbegwire tiibakali kubikkila maano kuti bazyibe kuti mwana takkomene.
 
 ##
-Nikwakainda myezi, baushi Simbegwire bakamba kuti balazwa ang'anda kwakacindi kashonto. Bakati "Ndilazwa ndiya mukubelekela kumbi". "Ndilizyi kuti mulasungana kabotu". Simbegwire wakalanga ansi cakunyandwa, pesi baushi tibakabikila mano. Anita takaamba ciliconse. Takakomene awalo.
+Nikwakainda myezi misyoonto, bausyi Simbegwire bakaamba kuti balazwa aŋanda kwaciindi cisyoonto. Bakati "Ndilazwa ndiya kukubelekela kumbi. Ndilizyi kuti mulalelana kabotu." Simbegwire wakalanga ansi cakunyandwa, pesi bausyi tiibakabikkila maano. Anita kunyina ncaakaamba. Taakakkomene awalo.
 
 ##
-zyintu zyakaindilila kumubijila Simbegwire. Anita wakali kumuuma kuti tamanizya kujata ncito ang'anda olo na watongoka. Masiku, mukaintu oyu wakali kulya zyakulya zyonse akusiila mwana tushonto. Simbegwire wakali kulila masiku onse, kakumbatide ngubo yabanyina.
+Zyintu zyakaindilila kumubijila Simbegwire. Anita wakali kumuuma kuti taamaninzya kubeleka milimo yaaŋanda nokuba kuti watongooka. Masiku, mukaintu oyu wakali kulya zyakulya zyoonse akusiila mwana cakulya cisyoonto. Simbegwire wakali kulila masiku oonse, kakumbete payi lyaka mupa banyina.
 
 ##
-Bumwi buzuba mafwufwumo, Simbegwire wakacelwa kubuka. "Ebo okasimbi katolo," wakaompolola Anita. Wakamukwela Simbegwire kuzwa abulo. Ingubo yakwe yakazauka muzyibela zyobilo.
+Bumwi buzuba mafwumo-fwumo, Simbegwire wakamuka kubuka. "Yebo okasimbi katolo," wakoompolola Anita. Wakamukwela Simbegwire kuzwa abulo. Ipayi yakwe yakajata ampikili akuzauka muzyibeela zyobilo.
 
 ##
-Simbegwire wakanyema kapati. Wakayeya kuzwa ang'anda. Wakabweza tubela twangubo yabanyina akuzwa ang'anda. Wakatolezya nzila baushi njibaka belesha.
+Simbegwire wakanyema kapati. Wakayeeya kutija akuzwa aŋanda. Wakabweza tubeela twapayi lyabanyina akubweza cakulya mpoona wakazwa aŋanda. Wakatobelezya nzila bausyi njibakabelesya.
 
 ##
-Nikwakashiya, wakayeya kutanta mucisamu cilanvwu munsi akalonga akupanga bulo. Nakaunka mukoona, wakaimba: "Bamama, Bamama, mwakandisiya. Mwakandisiya akutajoka. Tata tacindiyandi. Bamama mujoka lili? Mwakandisiya.
+Nikwakasiya, wakayeeya kutanta mucisamu cilamfwu munsi akalonga akubamba bulo. Naakaunka kukoona, wakaimba: "Baama, Baama, mwakandisiya. Mwakandisiya mpoona tiimwakajoka. Bataata tabacindiyandi. Baama, ino mujoka lili? Mwakandisiya."
 
 ##
-Mafwumofwumo akacilila, Simbegwire wakaimba nyimbo alimwi. Bamakaintu nibakabola mukuteka menda, bakanvwa nyimbo yabumba kuzwa mucisamu cilanvwu. Bakayeya kuti muwo wenzya matuvwu, kumane bakatolelela ancito yabo. Pele Umwi wabamakaintu wakatelelesha kunyimbo.
+Mafwumo-fwumo aakaccilila, Simbegwire wakaimba nyimbo alimwi. Bamakaintu nibakaboola kuwasha zikobela kumulonga, bakamvwa nyimbo yabuumba kuzwa mucisamu cilamfwu. Bakayeeya kuti muwo weenzya matuvwu, kumane bakatolelela amulimo wabo. Pele umwi mukaintu wakateelesesya kunyimbo.
 
 ##
-Oyu mukaintu wakalanga mujulu yacisamu. Nakabona mwana musimbi atubela twa ngubo, wakalila, Simbegwire mwana wamukulana wangu!" Bamwi bamakaintu bakaimikila kuchapa zyisani akubagwasha kutanta mucisamu. Bakamukumbatila.
+Oyu mukaintu wakalanga mujulu mucisamu. Naakabona mwana musimbi atubeela twapayi, wakalila, "Simbegwire mwana wamunyinandumi wangu!" Bamwi bamakaintu bakaleka kuwacca zyisani akumugwasya kuseluka kuzwa mujulu mucisamu. Bakamukumbatila.
 
 ##
-Bakamubweza akumutola kung'anda yabo. Bakamupa zyakulwa zyikasala, akumuyalila abulo angubo yabanyina. Simbegwire wakalila, pesi kwakali kulila kwalwanguluko. Wakalizyi kuti balamusunga kabotu.
+Bakamubweza akumutola kuŋanda yabo. Bakamupa zyakulya zyikasaala, akumuyalila bulo angubo yabanyina. Simbegwire wakalila, pesi kwakali kulila kwalwaanguluko. Wakalizyi kuti balamulela kabotu.
 
 ##
-Nibakajoka baushi, bakajana kuti Simbegwire takwe. "Ncinzi cacitika?" bakabuzya cakuusa. Imukaintu wakapandulula kuti Simbegwire wakatija. "Ndalikuyanda kuti andipe bulemu," wakati. "Andiza ndakaindilizya." Baushi Simbegwire bakamuyandaula mwana malubazu onse kusikila kumulonga. Bakaindilila akuunka kumunzi kwakali kukala mucizyi wabo mukubuzya kuti ndiza bakamubona Simbegwire.
+Nibakajoka bausyi, bakajana kuti Simbegwire tako mumunzi. "Ncinzi cakacitika?" bakabuzya cakuusa. Mukaintu wakapandulula kuti Simbegwire wakatija. "Ndaalikuyanda kuti andipe bulemu," wakaamba. "Ndiza ndakaindilizya." Bausyi Simbegwire bakamuyandaula mwana mamabazu oonse kusikila kumulonga. Bakaindilila akuunka kumunzi kwakali kukkala mucizyi wabo kukubuzya kuti naa bakamubona Simbegwire.
 
 ##
-Simbegwire wakali kusobana ababunyina nakabona baushi kababola alanvwu. Wakatijila mung'anda nkambo wakayowa kuti baushi balamunyemena. Pesi Baushi bakanjila akwamba kuli nguwe, "Simbegwire, wajana banyoko balikabotu alimwi bakuyanda akukuzyiba kabotu. Wandikomanisha alimwi ndakuyanda." Bakazuminizyanya kuti Simbegwire ngawacala kuti kayanda.
+Simbegwire wakali kusobana abeeninyina naakabona bausyi kababoola alaale. Wakatijila muŋanda nkaambo wakayoowa kuti bausyi balamunyemena. Pesi bausyi bakanjila akwaamba kuli nguwe, "Simbegwire, wajana banyoko bali kabotu alimwi bakuyanda akukuzyiba kabotu. Wandikkomaninsya alimwi ndakuyanda." Bakazuminana kuti Simbegwire inga wacaala kuti kayanda.
 
 ##
-Baushi bakali kumuswaya abuzuba. Bumwi buzuba bakabola a Anita. Anita wakazumina bulubizyi bwakwe akulomba lulekelo. Wakalomba kuti asole alimwi. Mpao, Simbegwire wakalanga baushi abushe wabo uuside, kumane wakaswena akumukumbatila Anita.
+Bausyi bakali kumuswaya abuzuba. Bumwi buzuba bakaboola aa Anita. Anita wakalila akuzumina bulubizi bwakwe. Wakamupa ijanza lyakwe Simbengwire akumwaambila kuti "ndilomba kulekelelwa, ndakalubuhya" kumwi kalila. "Sena inga wandizumizhya kuti ndisole alimwi?" Simbegwire wakalanga bausyi abusyu bwabo buuside, kumane wakaswena munsi aa Anita asyoonto syoonto akumukumbatila.
 
 ##
-Anita wakajika zyakulya nzyakalikuyandisha Simbegwire. Bonse bakalwa limwi bakuta. Kumane bana bakasobana, bapati bakakala akubandika. Simbegwire wakavwa kabuto kapati. Wakayeya kuti ajoke kung'anda kuti bakakale abaushi abanyina babili.
+Nsondo yakaccilila, Anita wakaita Simbegwire, beeninyina abacizyi babausyi kuunka kuŋanda yakwe. Wakajika zyakulya nzyaakali kuyandisya Simbegwire. Boonse bakalya limwi bakkuta. Kumane bana bakatalika kusobana, balo bapati bakakkala kwaambaula. Simbegwire wakamvwa kabotu kapati. Wakayeeya kuti kwainda biyo mazuba masyoonto uyakujoka kuŋanda kuti akakkale abausyi abanyina bambi.
 
 ##
 * License: [CC-BY]

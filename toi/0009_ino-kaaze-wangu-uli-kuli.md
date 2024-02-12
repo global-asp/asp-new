@@ -1,28 +1,28 @@
-# Hena kaaze wangu ulikuli
+# Ino Kaaze Wangu Uli Kuli?
 
 ##
-Hena kaaze wangu ulikuli?
+Ino kaaze wangu uli kuli?
 
 ##
-Hena uli mujungusi abulo?
+Sena uli mujungusi abulo?
 
 ##
-Hena uli atala a Kabbati?
+Sena uli atala akkabbati?
 
 ##
-Hena uli Kunze acuuno?
+Sena uli kunze acuuno?
 
 ##
-Hena uli munsi a cakusowela dooti?
+Sena uli munsi-munsi amusowelwa dooti?
 
 ##
-Hena ulimukati kamuntaanga?
+Sena uli mukati kamutaanga?
 
 ##
-Hena uli anze ang'anda?
+Sena uli anze aŋanda?
 
 ##
-Nkaka awa!
+Ngooyu awa!
 
 ##
 * License: [CC-BY-NC]

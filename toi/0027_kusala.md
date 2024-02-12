@@ -1,52 +1,52 @@
 # Kusala
 
 ##
-Munzi wangu wakalijisi mapenzi manji. Menda akali kushupa kapati.
+Munzi wangu wakajisi mapenzi manji. Meenda akali kukatazya kapati. Twakali kwiima milongo kutegwa tuteke meenda apompi yomwe.
 
 ##
-Twakali kulindila zyakulya zyacivwolevwole kuzwa kubantu bambi.
+Twakali kulindila zyakulya zyacivwole-vwole kuzwa kubantu bambi.
 
 ##
-Maanda akali kujalwa cakufwambana nkambo kabasikubba.
+Maanda akali kujalwa cakufwambaana akaambo kabantu babba.
 
 ##
-Ibana banji bakali kuleka cikolo.
+Bana banji bakaleka cikolo.
 
 ##
-Ibana basimbi bakali kubelekela bambi mumaanda.
+Bana basimbi bakali kubeleka mumaanda abantu bambi.
 
 ##
-Ibana basankwa bakali kuzinguluka biyo mumunzi, ibamwi bakali kubelekela mali mumyuunda yabalimi.
+Bana basankwa bakali kuzinguluka biyo mumunzi, bamwi bakali kubelekela mali mumyuunda yabalimi.
 
 ##
-Kuti na muuwo waunga, zipepa zyakali kwangila muzisamu.
+Imuwo waunga, izyipepa zyakali kwaangila muzyisamu alimwi a lukwakwa
 
 ##
-Ibantu bakali kutendwa amabbodela akapwaikide akambo kakutazyisowa bweelede.
+Bantu bakali kuyaswa amabbodela akapwaikide akaambo kakutazyisowa bweelede.
 
 ##
-Bumwi buzuba, menda akaleka kuzwa. Zipeelo zyakanyina menda.
+Bumwi buzuba, meenda akaleka kuzwa. Zyipeelo zyesu zyakanyina meenda.
 
 ##
-Batata bakeenda mumaanda onse kuzyibya bantu kuti bakasike kumuswangano.
+Bataata bakeenda mumaanda oonse kwaambila bantu kuti bakasike kumuswangano.
 
 ##
-Ibantu bakaswangana munsi acisamu.
+Bantu bakaswaangana munsi acisamu cipati akuswiilila.
 
 ##
-Batata bakaimikila akwaamba, "Tweelede kubelekela antomwe kutegwa tujane nzila kumapenzi aya.
+Bataata bakaimikila akwaamba kuti, "Tweelede kubelekela antoomwe kutegwa tumane mapenzi aaya."
 
 ##
-Juma wamyaka ililusele wakati, "Inga ndagwasha amakani akugusha dooti.
+Juma, imwana wamyaka ili lusele wakapozomoka kuti, "Inga ndagwasya kucibeela cakugusya dooti."
 
 ##
-Umwi mukaintu wakati, "Bamakaintu ngabagwazyilizya kusyanga zyakulya.
+Umwi mukaintu wakati, "Bamakaintu inga bandisangana mukusyanga zyakulya."
 
 ##
-Mwaalumi umwi wakaimikila wakati "Bamasankwa balazya mugodi wameenda.
+Mwaalumi umwi wakaimikila akuti "Bamaalumi balasya mugodi wameenda."
 
 ##
-Twakaompolola tonse mujwi lyomwe, "Twelede kucinca buumi bwesu". Kuzwa ibuzuba buya, twakatalika kubelekela antomwe akujana nzila amapenze esu.
+Twakoompolola toonse mujwi lyomwe, "Tweelede kucinca buumi bwesu." Kuzwa buzuba oobo, twakatalika kubelekela antoomwe akujana nzila yakumana mapenzi eesu.
 
 ##
 * License: [CC-BY]

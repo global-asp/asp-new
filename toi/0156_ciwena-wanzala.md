@@ -1,19 +1,19 @@
-# Ciwena wanzala
+# Ciwena Wanzala
 
 ##
-Kaindi kwakali ciwena wakalijisi nzala kapati.
+Kaindi kwakali ciwena wakamvwide nzala kapati.
 
 ##
-Wakayandaula cakulya cakubendelela a caluumuno. Kumane ...
+Wakayandaula cakulya cakubendelela mukawiiwi. Mpoona ...
 
 ##
 Po!!! Ciwena wajata.
 
 ##
-Kuzwa wao taakanvwa nzala alimwi nakamana wakakomana.
+Kuzwa waawo taakamvwa nzala alimwi. Naakamana wakakkomana.
 
 ##
-Kusikila akanvwe nzala alimwi.
+Kusikila akamvwe nzala alimwi.
 
 ##
 * License: [CC-BY]

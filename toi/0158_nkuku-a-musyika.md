@@ -1,34 +1,34 @@
-# Nseke a Sikube
+# Nkuku a Musyika
 
 ##
-Kaindi, Nseke a Sikube bakali kunvwana kapati. Bakali kukala mulumuuno. Kunyina wakali kuluuka.
+Kaindi, Nkuku a Musyika bakali kumvwana kapati. Bakali kukkala muluumuno. Kunyina wakali kuuluka.
 
 ##
-Bumwi buzuba, kwakali nzala. Sikube wakeenda musinzo mulanfwu kuyandaula cakulya. Nakapiluka, wakanvwa kukatala. wakati, "Kwelede kuba nzila nguba yakweenda musinzo mulanfwu.
+Bumwi buzuba, kwakali nzala mucisi. Musyika wakeenda musinzo mulamfwu kuyandaula cakulya. Wakapiluka kakatende cakwiindilila. Wakati, "Kweelede kuba nzila ngubauba yakweenda musinzo mulamfwu."
 
 ##
-Niyakabuka mutulo tubotu, Nseke yakaba amuzezo mubotu. Wakatalika kubweza mababa kuziyuni zyenzinyina. "Katwaasuma antomwe atala amababa." "Ndiza inga caubauba kweenda misinzo.
+Niyakabuka muŋonzi zyibotu, Nkuku yakabaa muzeezo mubotu. Yakatalika kubwezelela mapepe kuzwa kuzyiyuninyina. "Katwaasuma antoomwe atala amapepe eesu," yakaamba nkuku. "Ndiza inga caubauba kweenda misinzo."
 
 ##
-Sikube nguwalijisi nyeleti yakusumya mumunzi onse. Mpao, wakasanguna kusuma. wakapanga mababa mabotu. Wakasiya nyeleti mu kabbati akunka mukubamba zyakulya.
+Musyika nguwakajisi nyeleti yakusumya mumunzi oonse. Aboobo, nguwakasaanguna kusuma. Wakalibambila mababa mabotu kapayi kubelesya nyeleti. Nkuku yakalomba nyeleti kutegwa isume ayalo. Yakakatala kufwambaana. Yakasiya nyeleti mukkabati akuunka kukujika zyakulya zyabana bakwe.
 
 ##
-Bayuni bambi bakamubona kauluka sikube. Mpoona bakalomba nyeleti kuli nseke kutegwa abalo basume mababa. Mane, kwakaba bayuni banji bauluka.
+Bayuni bambi bakamubona kauluka musyika. Mpoona bakalomba nyeleti kunkuku kutegwa abalo basume mababa. Mpoona, kwakaba bayuni banji bauluka.
 
 ##
-Wamamanino nakajosha nyeleti, Nseke takaliko. Mpona ibana bakwe bakaibweza akutalika kusobanya. Nibakamana kusobana cisobano, bakaisiya nyeleti mubulongo.
+Wamamanino muyuni naakajosya nyeleti, Nkuku tiiyakaliko. Mpoona bana banjiyo bakaibweza akutalika kusobanya. Nibakamana kusobana, bakaisiya nyeleti mumuseenga.
 
 ##
-Masikati, Sikube wakapilika. Wakabuzya ali nyeleti kutegwa abambe mababa. Nseke yakatalika kuyandaula konse pesi tiyakajanika.
+Masyikati, Musyika wakapiluka. Wakabuzya akali nyeleti kutegwa abambe mababa aakwe akasoka alekehya naakali mulweendo. Nkuku yakatalika kuyandaula, mu kabbati, mu chikuta, mulubuwa, pesi nyeleti tiiyakajanika.
 
 ##
-Nseke yakalomba yakati "Kondipa biyo buzuba bomwe." "Uya kubamba mababa ako akunka mukuyandaula cakulya. Sikube wakati, "Kuti utaijani nyeleti, malipilo alaba bana bako."
+"Kondipa biyo buzuba bomwe." Nkuku yakakombelehya. "Mpemunya uyakwaabamba mababa aako akaule ukaye kuyoo yandaula cakulya. Musyika wakati, "Kuti utaijani nyeleti, uyakundipa mwana wako omwe kubbadela mulandu ooyu."
 
 ##
-Buzuba bwakatobela, Sikube wakabola alimwi mukubweza nyeleti. Wakajana nkunku kaipalaula mumalongo pesi nyeleti tiyakajanika. Sikube wakajata kana komwi akukatola. Kufwumbwa asika Sikube, ulajana nkuku kaipalaula ansi kuyandaula nyeleti.
+Buzuba bwakatobela, Musyika wakaboola alimwi kukubweza nyeleti. Wakajana nkuku ilayanga mumuseenga pesi nyeleti tiiyakajanika. Musyika wakajata kana kankuku komwe akukatola. Kuzwida waawo, kufwumbwa asika musyika, ulajana nkuku ilapalaula ansi kuyandaula nyeleti.
 
 ##
-Kuti cizimwemwe ca Sikube calibonya ansi, Nseka ilajenjezya bana bakwe. "Kamuzwa antangalala." Kumana bana balavwila bati "Tatuli bayanga tulalunduka."
+Kuti cinzimweemwe ca Musyika calibonya ansi, Nkuku ilacenjezya bana banjiyo akuti, "Kamuzwa antangalala atayubiki." Kwamana bana balavwiila balati "Tatuli bafwuba-fwuba tulalunduka."
 
 ##
 * License: [CC-BY]

@@ -7,22 +7,22 @@ Langa, mulilo!
 Mulilo ulaumpa.
 
 ##
-Mulilo ulajika.
+Mulilo ulabelesyegwa kujika.
 
 ##
-Mulilo ulapa kukasalilwa
+Mulilo ulakasaazya.
 
 ##
-Mulilo ulapa Mumuni.
+Mulilo ulapa mumuni.
 
 ##
 Langa, Mulilo!
 
 ##
-Mulilo Ngubotu.
+Mulilo mubotu.
 
 ##
-Alimwi ulaanguzu.
+Alimwi ulaa nguzu.
 
 ##
 * License: [CC-BY]

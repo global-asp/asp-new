@@ -1,58 +1,58 @@
 # Nyimbo ya Sakima
 
 ##
-Sakima wakali kukkala a bazyali bakwe a munyina musimbi wakali a myaka ili yone. Bakali kukkala munyika yamuvwubi. Nganda yabo yabwizyu yakali kumamanino a zyisamu.
+Sakima wakali kukkala abazyali bakwe amucizhyi wakwe wakalaa myaka yone. Bakali kukkala mucibaka camuvwubi. Ŋanda yabo yabwizu yakali kumamanino aamulongo wazyisamu.
 
 ##
-Naakali a myaka yotatwe, Sakima wakaciswa akuleka kubona. Sikama wakali musakwa wakajisi cipego.
+Naakali amyaka yotatwe, Sakima wakaciswa akuleka kubona. Sakima wakali musankwa wakajisi cipego.
 
 ##
-Sakima wakalikucita zyintu zyinji, balo beenzyina zyobakali kwaalilwa kucita. Mbuli kukkala abapati-pati bamumizyi akulanganya twaambo atumbi twaambo twabapati.
+Sakima wakali kucita zyintu zyinji, balo beenzyinyina bamwyaka yakwe nzyibakali kwaalilwa kucita mbuli kukkala abapati-pati bamuminzi akulanganya twaambo tumwi tupati-pati abapati.
 
 ##
-Bazyali ba Sakima bakali kubeleka mu nganda yamuvwubi. Bakali kufyuma kuzwa a nganda a kupiluka kumangolezya manigi. Sakima waksli kucaala a nganda a musyooto waakwe musimbi.
+Bazyali ba Sakima bakali kubeleka aŋanda yamuvwubi. Bakali kufwuma kuzwa aŋanda akupiluka kumangolezya. Sakima wakali kucaala aŋanda amusyoonto wakwe musimbi.
 
 ##
-Sakima wakali, kukuyanda kwiimba nyimbo. Buzuba bumwi banyina bakamubuzya ati, "hene uzyiila kuli nyimbo ezyi, Sakima?"
+Sakima wakali kuciyanda kwiimba nyimbo. Buzuba bumwi banyina bakamubuzya kuti, "Ino uzyiyiila kuli nyimbo eezyi, Sakima?"
 
 ##
-Sakima wakaingula, "ndizyi buyo baama. Ndizyinvwa buyo mumutwe, kwamana ndatalika kwiimba".
+Sakima wakaingula, "Zyiboola buyo baama. Ndizyimvwa buyo mumutwe, kwamana ndatalika kwiimba."
 
 ##
-Sakima wakali kuyanda kwiimbila musyoonto wakwe musimbi, kapati kuti kanvwide nzala. Musyoonto wakwe wakali kuswiilila kaimba lwiimbo ndwaa kali kuyandisya. Wakali kuvwa kabotu lwiimbo.
+Sakima wakali kuyanda kwiimbila musyoonto wakwe musimbi, kapati kuti kamvwide nzala. Musyoonto wakwe wakali kuswiilila kuti Sakima kaimba lwiimbo ndwaakali kuyandisya. Wakali kunyanyaala akaambo kakulumvwa kabotu lwiimbo.
 
 ##
-"Koimba alimwi, Sakima" musyoonto wakwe musimbi wakali kulomba Sakima wakali kuzumina Sakima wakali kuzumina akwiinduluka kwiimda.
+"Koimba alimwi, Sakima" musyoonto wakwe wakali kulomba. Sakima wakali kuzumina akwiinduluka kwiimba.
 
 ##
-Mzngolezya aamwi bazyali bakwe noba kapiluka kunganda bakali kumwinye maningi. Sakima wakazyiba kuti kuli cilubide.
+Mangolezya amwi bazyali bakwe nobakapiluka kuŋanda, bakali kuumwine kapati. Sakima wakazyiba kuti kuli cilubide.
 
 ##
-"Ino ncizi calubila baama a bataata?" wakabuzya Sakima. Sakima wakazyiba kuti kuti mwaana wamuvwubi wakasweeka. Aboobo muvwubi wakalendelelwa akuusa.
+"Ino ncinzi calubila baama abataata?" wakabuzya Sakima. Sakima wakaambilwa kuti mwanaa muvwubi musankwa wakalisweekede. Aboobo muvwubi wakalendelelwa akuusa kapati.
 
 ##
-"Inga ndamwiimbila mebo. Ndiza inga wakomana alimwi,"Sakima wakabaambila bazyali bakwe. Pesi bazyali bakwe bakamukasya. "ulya ulivubinde aboobo yebo ulimusakwa ubayinde. Uyeea kuti nyimbo zyako inga zyangwasya zi kulinguwe?"
+"Inga ndamwiimbila. Ndiza inga wakkomana alimwi." Sakima wakabaambila bazyali bakwe. Pesi bazyali bakwe bakamukasya. "Uuya ulivwubide. Yebo ulimusankwa biyo uubaide. Uyeeya kuti nyimbo yako inga yagwasya nzi kuli nguwe?"
 
 ##
-Nokuba boobo, Sakima taakaleka pe. Musyoonto wakwe wakamugwasilizya. Wakati, "nyimbo zyaSakima zyilauumbulizya kuti ndila anzala. Aboobo amuvwibi zyilakonzya kumuumbuli.
+Nokuba boobo, Sakima taakaleka pe. Musyoonto wakwe musimbi wakamugwasyilizya. Wakati, "Nyimbo zya Sakima zyilanduumbulizya kuti ndilaa nzala. Aboobo amuvwubi zyilakonzya kumuumbulizya."
 
 ##
-Buzuba bwakatobela, Sakima wakaambila musyoonto wakwe kuti amusindikile kunganda ya muvwubi.
+Buzuba bwakatobela, Sakima wakaambila musyoonto wakwe kuti amusindikile kuŋanda yamuvwubi.
 
 ##
-Wakaima ansi ampulungwido akutalika kwiimba lwiimbo ndwaakali kuyandisya. Asyooto-soonto, mutwe wamuvwubi wakatalika kulibonya a mpulungwido.
+Wakaima ansi ampulungwido akutalika kwiimba lwiimbo ndwaakali kuyandisya. Asyoonto-syoonto, mutwe wamuvwubi wakatalika kulibonya ampulungwido.
 
 ##
-Bamabelesyi bakaleka zyobakali kucita. Bakatalika kuswiilila lwiimbo lwa Sakima lubotu. Umwi musakwa wakati, "kunyina waakonzya kumuumbulizya uutulela. Ino mwana ooyu uubayide uyeeya kuti inga wacikonzya?"
+Babelesi bakaleka nzyibakali kucita. Bakatalika kuswiilila lwiimbo lwa Sakima lubotu. Umwi musankwa wakati, "Kunyina waakonzya kumuumbulizya uutulela. Ino mwana ooyu ubaide uyeeya kuti inga wacikonzya kumuumbulizhya?"
 
 ##
-Sakima wakamanizya kwiimba nyimbo yakwe akunyo na kuti aunke. Pesi muvwubi wakabalikila anze akwaaamba kuti "ndakomba, koyimba alimwi".
+Sakima wakamaninzya kwiimba nyimbo yakwe akunyamuka kuti aunke. Pesi muvwubi wakabalikila anze akwaamba kuti "Ndakomba, koimba alimwi."
 
 ##
-Acindi nchemunya ciya, kwakayinda basankwa bobilo kabanyamwunde muntu. Bakamunjana mwana wamuvwubi kulumwesyi kwanzila kaumidwe.
+Aciindi ncimunya ciya, kwakaboola basankwa bobilo kabanyamwide muntu akalo kabantu bacisidwe. Bakamujana mwanaa muvwubi kumbali aanzila kaumidwe.
 
 ##
-Muvwubi wakakomana kubona bwana wakwe musankwa. Wakalumbula Sakima nkambo wakamuumbulizya. Wakabwezya mwana wakwe musankwa alimwi a Sakima, akuunka kuciibbadela, kuya unziba na Sakima inga waboona alimwi.
+Muvwubi wakakkomana kubona mwanaakwe musankwa alimwi. Wakalumbula Sakima akaambo kakumuumbulizya. Wakabweza mwanaakwe musankwa alimwi a Sakima, akuunka kucibbadela, kuya kuzyiba naa Sakima inga wabona alimwi.
 
 ##
 * License: [CC-BY]

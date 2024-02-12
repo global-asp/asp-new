@@ -1,28 +1,28 @@
-# Kolanga banyama
+# Kolanga Banyama
 
 ##
 Kolanga banyama.
 
 ##
-Ing'ombe yamba kuti, "moo."
+Iŋombe yalila kuti, "moo."
 
 ##
-Impongo yamba, "mee, mee."
+Impongo yalila kuti, "mee, mee."
 
 ##
-Hachi yamba, "neeee."
+Hhacci lyalila, "nee."
 
 ##
-Ngulube yamba, "gwi, gwi."
+Ngulube yavwuluma kuti, "gulu, gulu."
 
 ##
-Inkuku yamba, "kwiyo."
+Inkuku yalila kuti, "kkwiyo."
 
 ##
-Mubwa wamba, "huhu."
+Mubwa wakuwa, "hau hau."
 
 ##
-Mulimi wamba, "shiii!"
+Mulimi waamba, "shiii!"
 
 ##
 * License: [CC-BY-NC]

@@ -1,28 +1,28 @@
-# Khalai ulabandika kuzisyango
+# Khalai Ulabandika Kuzyisyango
 
 ##
-Oyu ngu Khalai. Ulijisi myaka iliciloba. Izyina lyakwe ipandulula kuti 'mubotu' mucishobo cakwe, Lubukusu.
+Oyu ngu Khalai. Ujisi myaka yakuzyalwa iili ciloba. Izyina lyakwe lipandulula kuti "mubotu" mucisyobo cakwe ca Lubukusu.
 
 ##
-Khalai ulabuka akubandika kucisamu camafuleenke. "Ndakukomba ocisamu camafuleenke, kokomena ukatupe mafuleenke manji apide."
+Khalai ulabuka akwaambaula kucisamu camafwuleenke. "Ndakukomba ocisamu camafwuleenke, kokomena ukatupe mafwuleenke manji aabizwide."
 
 ##
-Khalai uleenda kuya kucikolo. Munzila, Khalai ulabandika abwizu. "Ndakukomba obwizu, kokomena ukabe nyanzabili a kutayuma."
+Khalai uleenda kuya kucikolo. Munzila, Khalai ulaambaula abwizu. "Ndakukomba obwizu, kokomena ukabe aamubala wanyanzabili akutayuma."
 
 ##
-Khalai wainda a maluba amushokwe. "Ndakomba nomaluba, kamutolelela kukomena ketegwa kandimibika mumasusu angu."
+Khalai wainda amaluba amusyokwe. "Ndakomba nomaluba, kamutolelela kukomena kutegwa kandimubikka mumasusu aangu."
 
 ##
-Kucikolo, Khalai ulabandika azisamu. "Ndakukomba ocisamu, kokomena akubika mitabi inji kutegwa katubala munsi acinvwule cako."
+Kucikolo, Khalai ulaambaula acisamu cili akati kalubuwa lwacikolo. "Ndakukomba ocisamu, kokomena akubikka mitabi minji kutegwa katubala mucimvwule cako."
 
 ##
-Khalai ulabandika kuzisyango zizungulukide cikolo. "Ndakomba, amukomene akulesya bantu babi kunjila mukati."
+Khalai ulaambaula kulukwakwa lwacikolo lya hisamu. "Ndakomba, amukomene akulesya bantu babi kunjila mukati."
 
 ##
-Kuti wapiluka kuzwa kuciko, Khalai ulaunka kucisamu camafuleenke. "Hena mafwulenke akapya kale?" wabuzya Khalai.
+Apiluka kuzwa kucikolo, Khalai ulaunka kucisamu camafwuleenke. "Sena mafwuleenke akabizwa kale?" wabuzya Khalai.
 
 ##
-"Mafuleenke acili nyanzabili." "Ndiyakubola kukubona junza ocisamu camafuleenke."
+"Mafwuleenke taaninga bizwa." waamba Khalai. "Ndiyakuboola kukubona juunza ocisamu camafwuleenke ". Waamba Khalai. "Ndiza kuya kujanika lyomwe libizwide!."
 
 ##
 * License: [CC-BY]

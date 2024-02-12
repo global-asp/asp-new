@@ -1,28 +1,28 @@
-# Mpongo, Mubwa a Ng'ombe
+# Mpongo, Mubwa a ŋombe
 
 ##
-Mpongo, Mubwa a Ng'ombe bakali kunvwana kapati. Bumwi buzuba bakabweza lweendo mumoota.
+Mpongo, mubwa a ŋombe bakali kumvwana kapati. Bumwi buzuba bakabweza lweendo mumoota.
 
 ##
-Nibakasika, namutekenya wakabambila kuti babbadala mali. Ng'ombe yakabbadala.
+Nibakasika nkubakali kuya, namutekenya waka baambila kuti ba bbadele mali. Ŋombe yaka bbadela.
 
 ##
-Mubwa wakabbadala mali ayindilila.
+Mubwa waka bbadela mali aayindilila.
 
 ##
-Namutekenya wakali kuyanda kuti ajoshe mali akaindilila kuli Mubwa mpoona Mpongo yakatija kwakunyina kubbadala.
+Namutekenya wakali kuyanda kuti ajosye mali aakaindilila kumubwa mpoona mpongo yakatija kakunyina kubbadela.
 
 ##
-Namutekenya wakanyema kapati. Wakenzya imota wakwe kakunyina kumujoshela mali akwe Mubwa.
+Namutekenya wakanyema kapati. Wakeenzya moota wakwe kakunyina kumujosyela mali aakwe mubwa.
 
 ##
-Nkikambo kako, asunu Mubwa ulatandila imota kutegwa asondele mukati akujana namutekenya ujisi nkongole yakwe.
+Nka kaambo kaako, asunu mubwa ulatandaanya moota kutegwa asondele mukati akujana namutekenya ujisi cikwelete cakwe.
 
 ##
-Mpongo ilatija kuti yanvwa imota yalila. Ilayowa kuti ngayangwa nkambo kakuti tiyakabbadala mali.
+Mpongo ilatija kufumbwa yamvwa moota kaulila. Ilayoowa kuti inga yaangwa nkaambo kakuti tiiyakabbadela mali.
 
 ##
-Ing'ombe taipengekani kuti yabona imota. Ing'ombe ilasotoka nzila kabotu-kabotu akambo kakuti yakabbadala mali akwene.
+Iŋombe taipengani kuti yabona moota. Iŋombe ilasotoka nzila kabotu-kabotu akaambo kakuti yakabbadela mali aakkwene.
 
 ##
 * License: [CC-BY]

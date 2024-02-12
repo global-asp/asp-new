@@ -1,37 +1,37 @@
-# Tingi A Ngo´mbe
+# Tingi Aŋombe
 
 ##
-Tingi wakalikukkala mumunzi abaneene bakwe.
+Tingi wakali kukkala abaneene bakwe.
 
 ##
-Antoomwe abaneene bakwe, bakavwubide ng'ombe zyibakali kweembela.
+Antoomwe abanene bakwe, bakali kuzilanganya ŋombe.
 
 ##
-Bumwi buzuba kwakasika basilumamba mumunzi.
+Bumwi buzuba kwakasika basikalumamba.
 
 ##
-Basilumamba bakabinga ng'ombe kuzwa mumunzi.
+Basikalumamba bakazibinga ŋombe akuzyitola.
 
 ##
-Tingi aba baneene bakwe bakatija kuzwa mumunzi.
+Tingi abaneene bakwe bakatija akuya kuyuba.
 
 ##
-Bakayuba mushokwe limwi kwasiya.
+Bakaliyubide musyokwe limwi kwasiya.
 
 ##
-Basilumamba bakajoka alimwi kumunzi ooye.
+Basikalumamba bakajoka alimwi.
 
 ##
 Baneene bakamusisa Tingi kunsi amatuvwu.
 
 ##
-Uumwi wabasilumamba wakalyata aakali Tingi, peele Tingi wakaumuna wiii.
+Umwi wabasikalumamba wakalyata akali Tingi, pele Tingi wakaumuna wii.
 
 ##
-Nobakaunka basilumamba, Tingi abaneene bakayubuluka.
+Nibakaunka basikalumamba, Tingi abaneene bakayubuluka.
 
 ##
-Mukaumuumu bakasobelela kuya kumaanda.
+Mukaumu-umu bakasobelela kuya kuŋanda yabo.
 
 ##
 * License: [CC-BY]
