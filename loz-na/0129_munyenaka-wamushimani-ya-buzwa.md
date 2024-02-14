@@ -7,19 +7,19 @@ Nazuhanga niku tumbula mulilo.
 Nabilisanga mezi.
 
 ##
-Na pumanga likota zakuapeisa.
+Na pazaulanga likota zakuapeisa.
 
 ##
-Na kundunganga mwa mupika.
+Na kundunga mwa mupika.
 
 ##
-Na fiyelanga mwa ndu.
+Na fiyelanga balanda.
 
 ##
 Natapisanga mikeke.
 
 ##
-King'i zeni sebelezanga katata... ... munyenaka yena inge apatehile kubapala?
+Kiñi zeni sebelezanga katata... ... munyenaka yena inge apatehile kubapala?
 
 ##
 * License: [CC-BY-NC]

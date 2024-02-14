@@ -1,22 +1,22 @@
-# Khalai uambolanga nilicalo
+# Khalai uambola ni licalano
 
 ##
-Yo ki Khalai. Unani lilimo ze keta lizoho ka ze peli. Libizo la hae litalusa "yomunde" mwa Lubukusu.
+Yo ki Khalai. Unani lilimo ze ketalizoho kazepeli. Libizo la hae litalusa "yomunde" mwapuo ya Lubukusu.
 
 ##
-Kakusasana Khalai azuha ubulelisa kota ya olenji. "Kota tuwe nikupa kuli uhule mi ulufe maolenji abuzwize amañata."
+Kakusasana Khalai hazuha ubulelisa kota ya olenji. "Kota tuwe nikupa kuli uhule mi ulufe maolenji abuzwize amañata."
 
 ##
-Khalai uya kwa sikolo. Mwa nzila abulela kwa bucwani. "Bucwani nikupa kuli uhule ka butala luli mi usike waoma."
+Khalai uya kwa sikolo. Mwa nzila abulela kwa bucwañi. "Bucwañi nikupa kuli uhule ka butala luli mi usike waoma."
 
 ##
-Khalai afita mwahala lipalisa zamwa mushitu. "Mina lipalisa, muzwele pili kubenya kuli nange nimibeye mwa milili yaka."
+Khalai hafita mwahala lipalisa zamwa mushitu. "Mina lipalisa, muzwele pili kubenya kuli nange nimibeye mwa milili yaka."
 
 ##
-Ali kwa sikolo, Khalai abulela kwa kota ye fahala patelo ali, "Kota tuwe uhule ni mitai yemituna kuli lubalelange mwa muluti wahao."
+Hali kwasikolo, Khalai abulela kwa kota ye fahala patelo ali, "Kota tuwe uhule ni mitai yemituna kuli lubalelange mwa muluti wahao."
 
 ##
-Ali kwa sikolo Khalai abulela kwa lukwakwa lwa sikolo. "Uhule utiye hahulu kuli upaleliswe batu babamaswe kutaha mwahali."
+Hali kwa sikolo Khalai abulela kwa lukwakwa lwa sikolo. "Uhule utiye hahulu kuli upaleliswe batu babamaswe kutaha mwahali."
 
 ##
 Khalai akutela kwa hae, apotela kota ya olenji. "Maolenji ahao abuzwize cwale?" Khalai abuza.

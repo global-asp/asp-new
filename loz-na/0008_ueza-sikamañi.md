@@ -29,5 +29,4 @@ Ueza sikamañi?
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
 * Translation: Christabel Songiso, Akombelwa Muyangana
-* Quality check: Margaret Wamuwi Sililo
 * Language: loz-na

@@ -4,30 +4,29 @@
 Amutalime lifolofolo.
 
 ##
-Komu ibulelanga kuli, "mbuu."
+Komu ibulelanga kuli, "Mbuu."
 
 ##
-Puli ibulelanga kuli, "mee, mee."
+Puli ibulelanga kuli, "Mee, mee."
 
 ##
-Mbongolo ibulelanga kuli, "neeee."
+Mbongolo ibulelanga kuli, "Neeee."
 
 ##
-Kulube ibulelanga kuli, "griiii".
+Kulube ibulelanga kuli, "Griiii."
 
 ##
-Kuhu ibulelanga kuli, "kukulukuuu".
+Kuhu ibulelanga kuli, "Kukulukuuu."
 
 ##
-Nja ibulelanga kuli, "hu hu"
+Nja ibulelanga kuli, "Hu hu."
 
 ##
-Mulimi ubulelanga kuli, "shiiiii".
+Mulimi ubulelanga kuli, "Shiiiii."
 
 ##
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
 * Translation: Christabel Songiso, Akombelwa Muyangana
-* Quality check: Margaret Wamuwi Sililo
 * Language: loz-na

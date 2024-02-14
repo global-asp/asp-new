@@ -13,7 +13,7 @@ Cathy unani milili yemitelele kufitisisa.
 Zama uikotile milili.
 
 ##
-Baba unani mulelu.
+Baba unani milelu.
 
 ##
 Zanele ukamuzi milili yahae.

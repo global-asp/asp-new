@@ -1,28 +1,28 @@
-# Nalata kubala
+# Nilata kubala
 
 ##
-Nalata kubala.
+Nilata kubala.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
 Munyenaka wamusizani ulobezi.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
-Bo ma ni bo kuku babasali bapatehile.
+Boma ni bokuku bapatehile.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
-Bo ndate ni bo kuku babaana bapateile.
+Bondate ni bokuku bapatehile.
 
 ##
-Nikabalela bomang'i? Nakona kuipalela isalina.
+Nikabalela bomañi? Nakona kuipalela isalina.
 
 ##
 * License: [CC-BY]

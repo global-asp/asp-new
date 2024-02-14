@@ -1,22 +1,22 @@
 # Muhato
 
 ##
-Munzi wa luna neunani matata amañatañata. Nelupanganga mubamba womutelele wakuka mezi kwa pompi ilinwi .
+Munzi wa luna neunani matata amañatañata. Nelupanganga mubamba womutelele wakuka mezi kwa pompi iliñwi.
 
 ##
-Nelulibelelanga lico ze filwe ki babamu.
+Nelulibelelanga lico ze fiwa ki babañwi.
 
 ##
 Nelukiyanga minyako ya mandu aluna kakuitahanela kabaka la masholi.
 
 ##
-Banana babañata batuhela sikolo.
+Banana babañata nebatuhezi sikolo.
 
 ##
-Basizani babanyinyani nebabeleka musebezi wa mwa malapa mwa minzi yemimu.
+Basizani babanyinyani nebabeleka musebezi wa mwa malapa mwa minzi yemiñwi.
 
 ##
-Bashimani babanyinyani neba yembana mwahae babamu nebabelekanga mwa masimu abatu.
+Bashimani babanyinyani neba yembana mwahae mi babañwi nebabelekanga mwa masimu abatu.
 
 ##
 Moya haneufukanga, mapepa asinatuso nalulanga kwa likota ni malapa.
@@ -25,33 +25,32 @@ Moya haneufukanga, mapepa asinatuso nalulanga kwa likota ni malapa.
 Batu neba sehwa ki mabotela a pwacehile anayumbilwe kusina tokomelo.
 
 ##
-Cwale zazi lelinwi, pompi yaoma mi lipupe zaluna nelili mukungulu.
+Cwale zazi leliñwi, pompi yaoma mi lipupe zaluna nelili mukungulu.
 
 ##
-Bo ndate baya lapa ni lapa kukupa batu kuli batahe kwa mukopano.
+Bondate baya lapa ni lapa kukupa batu kuli batahe kwa mukopano.
 
 ##
-Batu bakopana mwa tasi a kota yetuna mi bateleza.
+Batu bakopana mwa tasi a kota yetuna mi bateeleza.
 
 ##
-Bo ndate bayema mi bali, "luswanela kubeleka hamoho kufeza matata aluna.
+Bondate bayema mi bali, "luswanela kubeleka hamoho kufeza matata aluna."
 
 ##
-Juma wa lilimo ze lobapeli, yanainzi fa sisindimwa ahuwa, "nakona kutusa kwa kukenisa".
+Juma wa lilimo ze lobapeli, yanainzi fa sisindimwa ahuwa, "nakona kutusa kwa kukenisa."
 
 ##
-Musali alimunwi ali, "basali bakona kukopana nina kwa kucala lico.
+Musali alimuñwi ali, "basali bakona kukopana nina kwa kucala lico."
 
 ##
-Muuna yomunwi ayema mi ali, "baana bakayepa sisima."
+Muuna yomuñwi ayema mi ali, "baana bakayepa sisima."
 
 ##
-Lwahuwa ka linzwi lilinwi kaufela luli; "luswanela kucinca bupilo bwaluna." Kuzwa zazi leo, nelubelekanga hamoho kufeza matata aluna.
+Lwahuwa ka linzwi li liliñwi kaufela luli; "luswanela kucinca bupilo bwaluna." Kuzwa zazi leo, nelubelekanga hamoho kufeza matata aluna.
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
 * Translation: Christabel Songiso, Akombelwa Muyangana
-* Quality check: Margaret Wamuwi Sililo
 * Language: loz-na

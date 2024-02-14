@@ -7,58 +7,58 @@ Neli mwanana wa musizani yana kalile kubona sika sene silundumani fa kabaka nyan
 Sibupeho seo anesiya sisutelela fakaufi, abona kuli neli musali yana itwezi ni mba yetuna.
 
 ##
-Kuswaba kono kakutiya, musizani sa sutelela kwa tuko ya musali yo. "Luswanehela kuina niyena," batu bakasizani babulela. "Luka bababalela ni mwanaa bona."
+Kuswaba kono kabundume, musizani sa sutelela kwa tuko ya musali yo. "Luswanela kuina niyena," batu bakasizani ba atula. "Luka bababalela ni mwanaa bona."
 
 ##
 Mwana na sainzi fakaufi. "Kasha!" "Amutise likubo!" "Mezi!" "Kaaaaaaaaaaashaaaaaa!!!"
 
 ##
-Kono abatobona mbututu, kaufela batula mwa mulaho ka kukomoka. "Mbongolo?!"
+Kono habatobona mbututu, kaufela batulela mwa mulaho ka kukomoka. "Mbongolo?!"
 
 ##
-Kaufela bona bakala kukananisana. "Nelubulezi kuli lukababalela bo mahe ni mwana, mi zeo kona zelukaeza," babamu babulela. "Kono bakalutiseza bumai!" babamu babulela.
+Kaufela bona bakala kuhananisana. "Nelubulezi kuli lukababalela bomahe ni mwana, mi zeo kona zelukaeza," baba bulelela. "Kono bakalutiseza bumai!" babañwi babulela.
 
 ##
-Kikaho, musali muhulu aipumana anosi hape. Sabilaezwa ka zakueza ni mwana yacwalo yo. Abilaezwa ki zakaeza kuyena mung'i.
+Kikafo, musalimuhulu aipumana anosi hape. Sabilaezwa ka zakueza ni mwana yacwalo yo. Abilaezwa ki sakaeza kuyena muñi.
 
 ##
-Kono kwanalule alumela kuli kimwana ahae mi kiyena mahe.
+Kono kwanalule alumela kuli ki mwanahae mi kiyena mahe.
 
 ##
-Cwale, kambe mwanana yo nainelelezi onacwalo kabunyinyani, lika kaufela nelika shutana. Kono mbongolo ya mwana ya hula mane kufita fa kupalelwa kukwana mwa mukokoto wa mayona. Mi nihaneilika katata, neisakoni ku ba nimikwa ya mutu. Bo mayona hang'ata ne bakatala ni kufilikana. Fokumu neba ibelekisanga misebezi ya lifolofolo.
+Cwale, kambe mwanana yo nainelelezi onacwalo kabunyinyani, lika kaufela nelika shutana. Kono mbongolo ya mwana ya hula mane kufita fa kupalelwa kukwana mwamukokoto wa mayona. Mi nihaneilika katata, neisakoni ku ba nimikwa ya mutu. Bomayona hañata ne bakatala ni kufilikana. Fokuñwi neba ibelekisanga misebezi ya lifolofolo.
 
 ##
-Mifilifili ni bunyemi zahula mwahali a mbongolo. Neisakoni kueza ze ni zale. Neisakoni kuba mo ni mwale. Seitonyema hahulu kueza kuli, zazi lelimu, yato laha bo mayona kubawiseza fafasi.
+Mifilifili ni bunyemi zahula ku mbongolo. Neisakoni kueza ze ni zale. Neisakoni kuba mo ni mwale. Seitonyema hahulu kueza kuli, zazi leliñwi, yato laha bomayona kubawiseza fafasi.
 
 ##
 Mbongolo yautwa maswabi. Yakala kumata hahulu kuya kwahule kamoneikonela.
 
 ##
-Haito fezanga kumata, neseli busihu mi Mbongolo neilatehile. "Hee haw?" ya shobotela lififi. "Hee Haw?" mulumo seuikutela. Neinzi inosi. Yaiputaputa inge mbola niku lobala hahulu kono kalipilaelo.
+Haito fezanga kumata, neseli busihu mi Mbongolo neilatehile. "Hii haau?" ya shobotela lififi. "Hii Haau?" mulumo seuikutela. Neinzi inosi. Yaiputaputa inge mbola niku lobala hahulu kono kalipilaelo.
 
 ##
-Mbongolo yazuha yatofumana muuna muhulu yanaitalimezi. Yatalimela muuna muhulu yo mwameto ni kukala kuba ni sepo.
+Mbongolo yazuha yatofumana muuna muhulu yanaitalimezi. Yatalimela muuna muhulu yo mwameeto ni kukala kuba ni sepo.
 
 ##
 Mbongolo yayoina ni baana bahulu, bene bailutile miinelo yeshutana shutana mwa kuipiliseza. Mbongolo yateeleza ni kuituta hamoho ni muuna yo. Nebatusana ni kuseha hamoho.
 
 ##
-Kakusani omumu, muuna muhulu abulelela Mbongolo kuli imushimbe imupahamise fa halimu a lilundu.
+Kakusasani omuñwi, muuna muhulu abulelela Mbongolo kuli imushimbe imupahamise fa halimu a lilundu.
 
 ##
-Fa halimu a lilundu mwa malu balobala. Mbongolo yalola kuli bo mayona bakula mi nebaibiza. Mi aito zuha...
+Fa halimu a lilundu mwa malu balobala. Mbongolo yalola kuli bomayona bakula mi nebaibiza. Mi aito zuha...
 
 ##
 ...malu afela hamoho ni mulikanahae, muuna muhulu.
 
 ##
-Mbongolo mafelelezo yaziba zakueza.
+Mafelelezo Mbongolo yaziba zakueza.
 
 ##
-Mbongolo yafumana bo mayona, banosi mi inge balila mwanabona yanalateile. Sebatalimana nako yetelele. Nikuifumbatela hahulu.
+Mbongolo yafumana bomayona, banosi mi inge balila mwanabona yanalatehile. Sebatalimana nako yetelele. Nikuifumatela hahulu.
 
 ##
-Mbongolo ya mwana ni bo mayona bahula hamoho mi bafumana linzila zeshutana shutana zakupila hamoho. Hanyinyani hanyinyani, kaufela mabasi amamu abapotolohile akala kuina hande.
+Mbongolo ya mwana ni bomayona bahula hamoho mi bafumana linzila zeshutana shutana zakupila hamoho. Hanyinyani hanyinyani, kaufela mabasi amamu abapotolohile akala kuina hande.
 
 ##
 * License: [CC-BY]

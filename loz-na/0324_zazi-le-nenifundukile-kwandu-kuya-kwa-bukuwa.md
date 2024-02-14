@@ -1,52 +1,52 @@
-# Zazi le nenifundukile kwandu kuya kwa kukuwa
+# Zazi le nenifundukile kwandu kuya kwa bukuwa
 
 ##
-Kokuyemelanga li mbasi mwa hae yaka ne kupatehile ni batu ni limbasi zenelitezi. Fafasi nekutezi ni lika zene lisalonwa. Bahuwi neba huwa mabizo ya libaka konokuya ma mbasi.
+Kokuyemelanga limbasi mwahae yaka ne kupatehile ni batu ni limbasi zenelitezi. Fafasi nekutezi ni lika zene lisalongwa. Bahuwi neba huwa mabizo a libaka konekuya mambasi.
 
 ##
-Kwa bukuwa! Kwa bukuwa! Kuliba kwa malikelelo! nautwa bauwi bapunda. Kona mbasi yene nitokwa to kwela.
+"Kwa bukuwa! Kwa bukuwa!" Kuliba kwa malikelelo! nautwa bahuwi bapunda. Kona mbasi yene nitokwa to kwela.
 
 ##
 Mbasi ya kwa bukuwa ni asehitala, kono batu baban'ata nebasa kasha kukwela mwa mbasi. Baban'wi neba beile mikotani yabona mwatasi ya mbasi. Babamu nebabehile mwahali ya mbasi.
 
 ##
-Ba zamai babanca nebaswalelezi ma tickets yabona anze babata fa kuina mwa mbasi yeneitezi. Basali ni limbututu zabona baina ka kuiketa mwa musipili womutelele.
+Bazamai babanca nebaswalelezi ma tickets yabona anze babata fa kuina mwa mbasi yeneitezi. Basali ni limbututu zabona baina ka kuiketa mwa musipili womutelele.
 
 ##
-Seni ititinyaza kwa tuko ni window. Mutu yana inzi kwatuko nina naswalelezi papa ya mubala wa butala. Natinile ma patata ya kale, natinile ni koti mi nabonahala ku saba.
+Seni ititinyaza kwa tuko ni lihaulo. Mutu yana inzi kwatuko nina naswalelezi sipepa sa mubala wa butala. Natinile mapatapata a kale, ni sweta ye katezi mi nabonahala kusaba.
 
 ##
-Seni talimela fande ya mbasi mi seni hupula kuli neni siya munzi waka, sibaka kuno nihulezi. Neniya kwa bukuwa.
+Seni talimela fande ya mbasi mi seni hupula kuli neni siya munzi waka, sibaka kuni nihulezi. Neniya kwa bukuwa.
 
 ##
-Kulonga nekufelile mi nibatu kaufela sebaina. Balekisi nebaifumanezi nzila ya mwa mbasi kulekisa lika ku mutu ni mutu. Mutu ni mutu na huwa lika zamabata zeneliteni zakuleka. Manzwi neya utwahala inge lisheha kuna.
+Kulonga nekufelile mi nibatu kaufela sebaina. Balekisi nebaifumanezi nzila ya mwa mbasi kulekisa lika ku mutu ni mutu. Mutu ni mutu na huwa lika zanabata zeneliteni zakuleka. Manzwi nea utwahala inge lisheya kuna.
 
 ##
-Babamu nebalekile za kunwa, babamu tuco totuinyani ni kukala kutafuna. Benebasina masheleni, inge na, nebabuha feela.
+Babañwi nebalekile za kunwa, babañwi tuco totuinyani ni kukala kutafuna. Benebasina masheleñi, inge na, nebabuha feela.
 
 ##
-Zakuhezahala nezipumezwi ka milumo zali mbasi, sisupo ka kufunduka. Ba huwi babulelela ba lekisi ba mbasi ku zwela fande.
+Ze ezahala nezipumezwi ka milumo ya mbasi, sisupo sa kufunduka. Bahuwi babulelela balekisi ba mbasi ku zwela fande.
 
 ##
-Balekisi baikasha anze bazwela fande. Babamu bafa change kubazamai. Babamu nebabata kulekisa lika zabona lwa mafelelezo.
+Balekisi baikasha hanze bazwela fande. Babañwi bafa sheleñwi yene isiyezi kubazamai. Babañwi nebabata kulekisa lika zabona lwa mafelelezo.
 
 ##
-Mbasi aseifunduka, senitalimela fande ya window. Seninahana iba nitakuta kwa hae hape.
+Mbasi aseifunduka, senitalimela fande ya lihaulo. Seninahana haiba nitakuta kwa hae hape.
 
 ##
-Musipili anze ukalile, nekukalile kucisa mwa mbasi. Senitima meto kunahana mwendi nitalobala.
+Musipili hanze ukalile, nekukalile kucisa mwa mbasi. Senitima meeto kunahana mwendi nikalobala.
 
 ##
-Kono ngana yaka neinzi kwa ndu. Kuli boma bakasiyala hande? Tu shakame twaka tukatisa mashelenyi? Mu nyenaka wa mushimani ukahupula kuselaela tu kota twaka?
+Kono ngana yaka neinzi kwa ndu. Kuli boma bakasiyala hande? Tushakame twaka tukatisa masheleñi? Munyenaka wa mushimani ukahupula kuselaela tukota twaka?
 
 ##
-Mwanzila, nenipeta libizo la sibaka kono baina bo malume kwa bukukuwa. Nenisapeta ni mwabuloko.
+Mwanzila, nenipeta libizo la sibaka kone baina bomalume kwa bukukuwa. Nenisapeta ni mwabuloko.
 
 ##
-Anze kufitile nako yetelele, nenizusizwe ki lilata ni bene babiza ba zamai bene bakuta kwa hae. Seni shimba ka kotani kaka ni kutuluka mwa mbasi.
+Hanze kufitile nako yetelele, nenizusizwe ki lilata ni bene babiza bazamai bene bakuta kwa hae. Seni shimba ka kotani kaka ni kutuluka mwa mbasi.
 
 ##
-Mbasi yeneikuta neitala kamaubebe. Onafa itwa yaliba kwa lipazulelo. Sesibutokwa ahulo kuna, neli kukala kubabalela ndu ya bo malume.
+Mbasi yeneikuta neitala kabubebe. Onafa tuha yaliba kwa lipazulelo. Sesibutokwa hahulu kuna, neli kukala kubabalela ndu ya bomalume.
 
 ##
 * License: [CC-BY]

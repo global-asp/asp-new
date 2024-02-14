@@ -1,19 +1,19 @@
 # Totubeli
 
 ##
-Mazoho amabeli amanyinyani aswalane.
+Mazoho amabeli amanyinyani aswala.
 
 ##
-Mahutu amabeli amanyinyani alahe.
+Mautu amabeli amanyinyani alahe.
 
 ##
-Meto amabeli amanyinyani abone.
+Meeto amabeli amanyinyani abone.
 
 ##
 Mazebe amabeli amanyinyani autwe.
 
 ##
-Mi mazoho amabeli alilato akumbatelana!
+Mi mazoho amabeli alilato akumatelana!
 
 ##
 * License: [CC-BY-NC]

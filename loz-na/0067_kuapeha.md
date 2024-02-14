@@ -1,28 +1,28 @@
 # Kuapeha
 
 ##
-Nafalanga makwili.
+Ni yebula makwili.
 
 ##
-Napumanga kabici.
+Ni pumaka kabici.
 
 ##
-Na pumanga ma kaloti.
+Ni pumaka ma kaloti.
 
 ##
-Natapisanga manawa.
+Ni tapisa manawa.
 
 ##
-Na pumanga mbata ya ndongo.
+Na pumaka mupusi.
 
 ##
-Napumanga muloho wobizwa sipinaci.
+Ni pumaka muloho wa sipinaci.
 
 ##
-Boma bapumanga nyanisi.
+Boma bapumaka nyanisi.
 
 ##
-Nyanisi yani lilisanga haipumiwa.
+Nyanisi yani lilisa haipumiwanga.
 
 ##
 * License: [CC-BY-NC]

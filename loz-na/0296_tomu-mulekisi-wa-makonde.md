@@ -1,40 +1,40 @@
-# Tom mulekisi wa makonde
+# Tomu mulekisi wa makonde
 
 ##
-Tom ushimbanga mukeke wa makonde abuzwize.
+Tomu ushimbanga mukeke wa makonde abuzwize.
 
 ##
-Tom uyanga kwa musika kuyolekisa makonde.
+Tomu uyanga kwa musika kuyolekisa makonde.
 
 ##
-Batu kwa musika baleka litolwana.
+Batu kwa musika baleka miselo.
 
 ##
-Kono akuna yaleka makonde a Tom. Balata kuleka litolwana kwa basali.
+Kono hakuna yaleka makonde a Tomu. Balata kuleka miselo kwa basali.
 
 ##
-"Mwa sibaka saluna, ki basali feela baba lekisanga litolwana." batu babulela. "Ki muuna ya cwani yo?" batu babuza.
+"Mwa sibaka saluna, ki basali feela baba lekisanga miselo," batu babulela. "Ki muuna ya cwañi yo?" batu babuza.
 
 ##
-Kono Tom azwafi. Wa huweleza, "amuleke makonde aka! amuleke makonde aka abuzwize mi amunati!"
+Kono Tomu hazwafi. Wa huweleza, "hamuleke makonde aka! Amuleke makonde aka abuzwize mi amunati!"
 
 ##
-Musali yomumu ashimba sing'ata sa makonde mwa mukeke. Atalimisisa makonde katokomelo.
+Musali yomuñwi ashimba makonde amañata mwa mukeke. Atalimisisa makonde katokomelo.
 
 ##
 Musali yo aleka makonde.
 
 ##
-Batu babang'ata bataha fa sintolo. Baleka makonde a Tom ni kuaca.
+Batu babañata bataha fa sintolo. Baleka makonde a Tomu ni kuaca.
 
 ##
-Onafa fa mukeke kele kufela. Tom wabala masheleng'i a fumani.
+Onafo, fa mukeke kele kufela. Tomu ubala masheleñi a fumani.
 
 ##
-Cwale Tom waleka mulola, swikili, mi sinkwa. Lika ze alibeya mwa mukeke wahae.
+Cwale Tomu waleka mulola, swikili, ni sinkwa. Lika ze alibeya mwa mukeke wahae.
 
 ##
-Tom watengenya mukeke wahae fa toho anze aya kwandu.
+Tomu watengenya mukeke wahae fa toho anze aya kwandu.
 
 ##
 * License: [CC-BY]

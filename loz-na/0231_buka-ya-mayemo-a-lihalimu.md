@@ -1,4 +1,4 @@
-# Buka yalinako
+# Buka ya mayemo a lihalimu
 
 ##
 Kuomile.
@@ -19,10 +19,10 @@ Kwa bata.
 Yanela pula.
 
 ##
-Kunani mishika.
+Kunani milumo ya kupalakata.
 
 ##
-Ni bona nambwamutalati.
+Ni bona numbwamutalati.
 
 ##
 * License: [CC-BY-NC]

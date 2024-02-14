@@ -16,7 +16,7 @@ Lukanda lo ki...
 Kuwani ye kiye nyinyani.
 
 ##
-Ma sokisi kia makuswani.
+Masokisi kia makuswani.
 
 ##
 Kono makatulo a ki amanca.
@@ -29,5 +29,4 @@ Kono makatulo a ki amanca.
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Christabel Songiso, Akombelwa Muyangana
-*Quality check: Margaret Wamuwi Sililo
 * Language: loz-na

@@ -1,40 +1,40 @@
-# Zama wipitezi!
+# Zama ya ipitezi!
 
 ##
-Munyenaka wa mushimani ulobalanga kakuliyeha. Napakelanga kakuli niipitezi.
+Munyenaka wa mushimani ulobalanga kakuliyeha. Napakelanga kakuli niipitezi!
 
 ##
-Kina ya tisezanga kuli lizazi likene mwa ndu.
+Kina yaliselela mwakazazi.
 
 ##
-"Unaleli yakakusasani yaka," Bo ma babulela.
+"Unaleli yakakusasani yaka," Boma babulela.
 
 ##
-Naitapisanga na mung'i, ani tokwi tuso.
+Naitapisanga na muñi, hani tokwi tuso.
 
 ##
-Nakona kutapa mezi abata ni mulola wa bundilu onunkelela hande.
+Nakona kutapa mezi abata ni mulola wa bundilu onunka hande.
 
 ##
-Bo ma bani upulisanga kuli, "usike walibala ku zukuza meno." Mi naalaba nali, "kutokwa, isike na!"
+Boma bani hupulisanga kuli, "usike walibala kuzukuza meeno." Mi naalaba nali, "Baatili, isike na!"
 
 ##
-Asenifelize kutapa, nalumelisanga bo kuku ba baana ni bo ma babainyani ni kubalakaleza lizazi lelinde.
+Hasenifelize kutapa, nalumelisanga bokuku ba baana ni boma babainyani ni kubalakaleza lizazi lelinde.
 
 ##
-Cwale naitinisa liapalo, "nihulile cwale na Ima," na bulela.
+Cwale niitinisa liapalo, "nihulile cwale Ima," na bulela.
 
 ##
-Nakona kung'omela likunupo ni kutama makanda a kwa makatulo aka.
+Nakona kuñomela likunupo ni kutama makanda a kwa makatulo aka.
 
 ##
-Mi nitotalusezanga munyenaka wa mushimani kaufela zeezahala kwa sikolo.
+Mi nitalusezanga munyenaka wa mushimani kaufela zeezahala kwasikolo.
 
 ##
-Mwa kilasi nalika kueza hande ka monikonela kaufela.
+Mwa kilasi nilika kueza hande kamonikonela kaufela.
 
 ##
-Nieza lika ze kaufela zende ka zazi ni zazi. Kono sika silising'wi senilata hahulu ki kubapala ni kubapala.
+Nieza lika ze kaufela zende kazazi ni zazi. Kono sika silisiñwi senilata hahulu ki kubapala ni kubapala!
 
 ##
 * License: [CC-BY]

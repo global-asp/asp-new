@@ -1,28 +1,28 @@
 # Kubala lifolofolo
 
 ##
-Tou iling'wi iya kwa kunwa mezi.
+Tou iliñwi iya kwa kunwa mezi.
 
 ##
-Litutwa ze peli liya kwa kunwa mezi.
+Litutwa zepeli liya kwa kunwa mezi.
 
 ##
 Linali ze talu ni linyunywani ze ne nizona liya kwa kunwa mezi.
 
 ##
-Lizui ze keta lizoho ni lingili ze silezi lilibile kwa mezi.
+Lizwi zeketa lizoho ni lingili ze silezi lilibile kwa mezi.
 
 ##
-Lipizi ze keta lizoho kaze peli li matela kwa mezi.
+Lipizi ze ketalizoho kazepeli li matela kwa mezi.
 
 ##
-Limbotwe ze keta lizoho ka ze taalu ni litapi ze keta lizoho ka ze ne zatapa mwa mezi.
+Limbotwe ze ketalizoho ka ze talu ni litapi ze keta lizoho ka ze ne zatapa mwa mezi.
 
 ##
-Tau iling'wi ya buluma kakuli niyona ibata kunwa mezi. Kimang'i yasaba tau?
+Tau iliñwi ya puluma kakuli niyona ibata kunwa mezi. Kimañi yasaba tau?
 
 ##
-Tou iling'wi inwa mezi ni Tau.
+Tou iliñwi inwa mezi ni Tau.
 
 ##
 * License: [CC-BY]

@@ -29,5 +29,4 @@ Kiye fa!
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath, Ingrid Schechter
 * Translation: Christabel Songiso, Akombelwa Muyangana
-* Quality check: Margaret Wamuwi Sililo
 * Language: loz-na

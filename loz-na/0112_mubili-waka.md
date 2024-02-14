@@ -22,7 +22,7 @@ Nakona ku laha niwona.
 Nakona ku picuka niwona.
 
 ##
-Kono anikoni kufufa niwona.
+Kono hanikoni kufufa niwona.
 
 ##
 * License: [CC-BY-NC]
