@@ -40,7 +40,7 @@ Simbegwire ǁ'a ha gǁaq gu ha te tani ua ha ko ha ǃaoh. Ha ǀ'an ha ko 'msa ǁ
 ǁ'Aea Simbegwire ǁ'a ha ba ce tsia tjuǀho, ha gǀae h te da'ama tju nǃang sin ǀ'hoan. "Hatce re ǃan, Anita?" Ha tsisa'a ǀxoa ǃka khui. Dshau ǃoa sara ha ko tca da'ama te ǃaah u. "Mi kare ka ha ǂum mi," ha koe nǁae. "Xabe mi hin koh kare ka ha sin to." Simbegwire ǁ'a ha ba ǁama ǃaoh te tsin ǁxam ǁ'a dohma khoea. Te sin ǂaun ua ha tshin tjuǀho ǁ'a ha gǀae tsisa'a ha he ko ha re ca ho Simbegwire.
 
 ##
-Simbegwire koh ge te kui ǀxoa ha tsoma sin. ǁ'Aea ha hoha ba ko koa ǂxan. Ha koh koqa tca ha te taun, Te kahin ha ǃaah gǃa'ama tju nǃang ǁ'a ha gǀae djxoma. Te ka ha ba gǀae ha ko, "Simbegwire, a ho ǀ'ae a ǀ'ae ko a taqe jan. He o ha nǀe'ea are he ku ǁau ǂae ǂae a. Mi ǃka kaice nǀa'ng ǀxoa a te mi are a." Siǃa tsa'a khoe tca Simbegwire te ku sin ǃxoana ǀxoa ha gǁaq ko tca ha ku oo karea.
+Simbegwire koh ge te kui ǀxoa ha tsoma sin. ǁ'Aea ha hoha ba ko koa ǂxan. Ha koh koqa tca ha te taun, te kahin ha ǃaah gǃa'ama tju nǃang ǁ'a ha gǀae djxoma. Te ka ha ba gǀae ha ko, "Simbegwire, a ho ǀ'ae a ǀ'ae ko a taqe jan. He o ha nǀe'ea are he ku ǁau ǂae ǂae a. Mi ǃka kaice nǀa'ng ǀxoa a te mi are a." Siǃa tsa'a khoe tca Simbegwire te ku sin ǃxoana ǀxoa ha gǁaq ko tca ha ku oo karea.
 
 ##
 Ha ǁa'ike ǀ'hoo ha ko ǀam wece. Xabe ǁoeh sa Anita ku ǁkae. Ha gu Simbegwire gǃau te gǂara ǁae ǀ'an. "ǁae na tcima ǃo mi koh nǃobe du," ha koe tjin. "A ku kxoe ka mi cea du se?" Simbegwire se ha ba ǀho te ho tca ha ba ǀho te mani. Te kahin ha ǂ'auce te nǃun tsi ǃ'an te nǃama Anita.
