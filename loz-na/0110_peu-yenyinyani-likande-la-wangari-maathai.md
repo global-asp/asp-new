@@ -16,7 +16,7 @@ Wangari neli mwana yanatalifile mi nanyolezwi kuya kwa sikolo. Kono bomahe ni bo
 Nalata kuituta! Wangari aituta zeñata mwa libuka zanabalanga. Naezize hande hahulu kwa sikolo kuli mane bakona kumumema kuli ayo itutela kwa naha ya Kopano ya linaha za Amelika. Wangari nanyakalalile hahulu! Nabata kuziba zemu zeñata za lifasi.
 
 ##
-Fa sikolo sesipahami sa Amelika Wangarii naitutile lika zenca zeñata. Naitutile licalo ni molihulela. Nahupulanga ni mwanahulela: kubapala lipapali ni likezeli zahae mwa muluti wa likota za mishitu ye minde ya Kenya.
+Fa sikolo sesipahami sa Amelika Wangari naitutile lika zenca zeñata. Naitutile licalo ni molihulela. Nahupulanga ni mwanahulela: kubapala lipapali ni likezeli zahae mwa muluti wa likota za mishitu ye minde ya Kenya.
 
 ##
 Mwanaitutela hahulu, ki mwana lemuhela kuli ulata batu ba naha Kenya. Nabata kuli babe babatabile ni kulukuluha. Mwanaitutela hahulu, kimwana hupulelanga kwandu yahae mwa Afrika.
