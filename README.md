@@ -26,6 +26,7 @@ koo | Lukhonzo
 kqn | Kaonde
 ktz | Ju|’hoansi
 kwn | Kwangali
+lg | Luganda
 loz-na | siLozi (Namibia)
 loz-zm | siLozi (Zambia)
 lue | Luvale
