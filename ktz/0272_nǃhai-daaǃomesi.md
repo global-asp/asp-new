@@ -46,5 +46,5 @@ Ko ǁ'aema gǂa'in ku ǂaun, nǃhai tsi gǀae ǀxoa ǀhoa ǁhuin. "ǁAma ǀama h
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Tsemkgao Fanie Cwi, Gǂkao J. B. Kxao
+* Translation: Tsemkxao Cwi, Gǂkao J. B. Kxao
 * Language: ktz
