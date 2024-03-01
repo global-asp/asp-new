@@ -28,5 +28,5 @@ Ju nǀauru te si ǃkasi nǀa'ng. ǁAma ǀama to'a dshauǂmh ju ǀ'an tosi ko ǀk
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Jabulani
+* Translation: Gǂkao J. B. Kxao
 * Language: ktz
