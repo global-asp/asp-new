@@ -34,5 +34,5 @@ Ka ǃharia o ǁAoha nǃobusi ga ku hoa ka ǀ'ae ko kxaǀoh, khukhudi nǂai ǀkur
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Kallie N!ani
+* Translation: Kaqece Kallie N!ani
 * Language: ktz
