@@ -88,5 +88,5 @@ Kxuni toansi tsu Kave kota ǁaq Muzaa hui Hilifa ko tcisi ǁxaeǁxae ka tani ua 
 * License: CC BY-NC-SA
 * Text: Kandume Ruusa, Sennobia-Charon Katjiuongua, Eliaser Nghitewa
 * Illustration: Jamanovandu Urike
-* Translation: Cwi Debe, Tsemkgao Fanie Cwi, Gǂkao J. B. Kxao, Kileni A. Fernando, Festus Soroab, Sylvia Fernandu, Kaqece K. N!ani
+* Translation: Cwi Debe, Tsemkxao Cwi, Gǂkao J. B. Kxao, Kileni A. Fernando, Festus Soroab, Sylvia Fernandu, Kaqece Kallie N!ani
 * Language: ktz
