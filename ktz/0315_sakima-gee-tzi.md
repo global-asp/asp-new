@@ -58,5 +58,5 @@ Te ǁ'a ǁ'ae nǃang nǀe'ea hin to'a, nǁaqe tsan ǃae ju nǀui te ha sin tsxoa
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Kalie N!ani
+* Translation: Kaqece Kallie N!ani
 * Language: ktz
