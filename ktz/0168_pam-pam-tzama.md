@@ -34,5 +34,5 @@ Gǀua to'a nǀomkxao ǁkaeǁkae ju te tcxai nǀang ǀ'an khoara sia o ǃaqekxao 
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Gǂkao J. B. Kxao, Tsemkgao Fanie Cwi
+* Translation: Gǂkao J. B. Kxao, Tsemkxao Cwi
 * Language: ktz
