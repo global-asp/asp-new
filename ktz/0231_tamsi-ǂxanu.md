@@ -28,5 +28,5 @@ Mi ho gǂuingǃaungǃaunu.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Sylvia
+* Translation: Sylvia Fernandu
 * Language: ktz
