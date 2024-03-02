@@ -52,5 +52,5 @@ Te bekea gǀae, Anita ǀ'ho Simbegwire, ǁae ǀxoa ha tsuma sin kota ha gǁaq si
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Fanie Cwi
+* Translation: Tsemkxao Cwi
 * Language: ktz
