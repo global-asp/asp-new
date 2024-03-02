@@ -31,5 +31,5 @@ Te ǃkui zesin sa to'a ka ǀoa khoe kasa ǁxoasi gea ha ama. Te ǂ'u ǃ'haoǃ'ha
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Kaqece K. N!ani
+* Translation: Kaqece Kallie N!ani
 * Language: ktz
