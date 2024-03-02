@@ -28,5 +28,5 @@ Te ka Khalai ǁama skore he gǃa tjuǀho, ha ǀ'hoo gǀae nǃoh ǃaihan. "A nǃo
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
-* Translation: Kallie N!ani
+* Translation: Kaqece Kallie N!ani
 * Language: ktz
