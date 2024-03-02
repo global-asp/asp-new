@@ -34,5 +34,5 @@ Te nǀama ǁua o nǂai ǁ'ama nǀama. Mama nǂuhn te tsau. Ha woaqnsi ha ǁae ǁ
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
-* Translation: Jabulani
+* Translation: Gǂkao J. B. Kxao
 * Language: ktz
