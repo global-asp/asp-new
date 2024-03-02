@@ -52,5 +52,5 @@ Te besia ku ce kua nǃaoh gǃain. Te kua nǃari nǂau ǁ'hai. Tca kaa kaice o tc
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: Jabulani
+* Translation: Gǂkao J. B. Kxao
 * Language: ktz
