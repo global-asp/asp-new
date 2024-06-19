@@ -4,7 +4,7 @@
 Litemo lyendi kwa kalire lyalifupi ngudu.
 
 ##
-Mpito yalivero lyendi kwa kalire yifupi ngudu.
+Mpito yalivero lyendi kwa kalire yayifupi ngudu.
 
 ##
 Mbete yendi kwa kalire yayifupi ngudu.
@@ -28,7 +28,7 @@ A tende mbete yayire unene.
 A ghuru mbashikora yayire unene.
 
 ##
-Ghuye a shungiri pashipuna shashire unene. A lita foroko yayire ngudu.
+Ghuye a shungiri pashipuna shashire unene. A lita naforoko yayire ngudu.
 
 ##
 Ghuye a shuvu ndjugho yendi makura aka tunga mumutitu waunene. A ka paruka mwaka dadingi.
