@@ -16,6 +16,7 @@ af | Afrikaans
 am | Amharic
 bem | Icibemba
 dag | Dagbani
+diu | Rumanyo
 fr | French
 gaa | Ga
 hz | Otjiherero
@@ -32,6 +33,7 @@ loz-zm | siLozi (Zambia)
 lue | Luvale
 lun | Lunda
 luo | Dholuo
+mhw | Thimbukushu
 naq | Khoekhoe
 ng | Oshindonga
 ny | Cinyanja
