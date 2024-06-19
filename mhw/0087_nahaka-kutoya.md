@@ -1,4 +1,4 @@
-# Na haka kutoya!
+# Nahaka kutoya!
 
 ##
 Ame na haka kutoya.
