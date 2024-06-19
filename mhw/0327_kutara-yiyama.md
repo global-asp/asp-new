@@ -7,7 +7,7 @@ Ndhovu ghofotji kuna kuyenda gha kanwe meyu.
 Mvashe dhiwadi kuna kuyenda dhi kanwe meyu.
 
 ##
-Nyatji dhine no yinyunyi yine nayo karo kuna kuyenda yi kanwe meyu.
+Nyatji dhinne no yinyunyi yinne nayo karo kuna kuyenda yi kanwe meyu.
 
 ##
 Mara dhikwoko nongidi kwokofotji kuna kuyenda ku meyu.
@@ -16,7 +16,7 @@ Mara dhikwoko nongidi kwokofotji kuna kuyenda ku meyu.
 Mbii kwokowadi kuna kutjirera ku meyu.
 
 ##
-Manyudya kwokohatu no thi kwokone kuna kuyogha mu meyu.
+Manyudya kwokohatu no thi kwokonne kuna kuyogha mu meyu.
 
 ##
 Nyime ghofotji kuna kuvuma. Naye kuna kushana gha nwe meyu. Yidye gha yapa nyime?
