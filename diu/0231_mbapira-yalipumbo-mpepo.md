@@ -4,29 +4,29 @@
 Kuna kukuta.
 
 ##
-Liyuva lina yenye ngudu.
+Liyuva lina yenye.
 
 ##
-Kuna kupepa mpepo.
+Kuna kara likundungu.
 
 ##
-Muremo una karo ko.
+Kuna kara muremo.
 
 ##
-Kuna kutendeka.
+Utenda ghuna karo ko.
 
 ##
-Mvhura kuna kuroka.
+Kuna kuroka.
 
 ##
 Kuna kara maruvadi.
 
 ##
-Ame kuna kumona likongoro.
+Na mono likongoro.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Erwina N Kanyenge
+* Translation: Peter L Likoro
 * Language: diu
