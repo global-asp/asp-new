@@ -1,33 +1,32 @@
-# Andiswa mudani gomunene gombara
+# Andiswa mudani gomunene
 
 ##
-Andiswa kwa kere ta tarere vamati vana kudana mbara. Ta hara asi ngano ali pakerere nawo . Makura ta pura mudeuli sipana asi kuvhura nage a lihamesere mo mokulideura kumwe nawo.
+Andiswa nga tarere vamati omu ngava dana mbara. Nage kwa kere neharo lyo kulihamesera mo. Yipo ga pulire mudeuli sipana nsene asi nage kuvhura kulideura kumwe nawo.
 
 ##
-Mudeuli sipana ta tura mawoko gendi pomatungi."Noku Tanta asi apa posure vamati velike va pulisira kudana mbara zokusanga,"yimo ga uyungire.
+Mudeuli sipana kwa tulire mawoko gendi po sikaro. "Apa posure, vamati velike va pulisira kudana mbara," yimo ga uuyungire.
 
 ##
-Vamati tava mu tantere asi zende o ka lihamesere mombara zokomawoko,morwa mbara zokomawoko yizo zovakadona ano zokusanga zovamati.Andiswa kwa handukire unene.
+Vamati yiyo va mu tanterere asi aze aka dane mbara zokomawoko. Awo kwa tente asi mbara zokomawoko zovakadona ano zokomaguru zovamati. Andiswa kwa handukire.
 
 ##
-Ezuva lyokukwama ko sure kwa kere nomarumbasano gombara zokusanga.Ano mudeuli sipana kwa kere unene nosinka,morwa mudani gwendi gomunene kwa verere kapi ta vhuru kudana.
+Ezuva lyokukwamako, sure kwa kere nomarumbasano gomanene gombara zokomaguru. Mudeuli sipana kwa kere nosinka morwa mudani gwendi gomunene kwa verere kapi ta vhuru kudana.
 
 ##
-Mudeuli sipana kapi ga divire asi yinke eyi na vhura kurugana.Makura ta tokora asi Andiswa a lihamesere mo nage mosipana.
+Andiswa kwa dukire aze komudeuli sipana aka mu likwambere nsene asi kuvhura va mu pulisire nage a dane. Mudeuli sipana kapi ga divire asi yinke narugana. Konyima yipo ga tokwere asi Andiswa nage a lihamesere mo mombunga.
 
 ##
-Marumbasano kwa kere gomadigu.Kwato gumwe gongandi ogu ga vhulire kuwokesa mo mbara posikando sokuhova.
+Marumbasano kwa kere goudigu. Kwato nampili gumwe gongandi ga gawokesere mbara posikando sokuhova
 
 ##
-Ano posikando sauvali ,mumati gumwe ta tambeke mbara Andiswa ,ta dukire unene pepi nonopale ta sanga unene dogoro mbara ta zi hwilire.
+Posikando sauvali somarumbasano mumati gumwe kwa tambekere mbara kwa Andiswa. Age kwa genderere usimbu a vyuke kuza konopale. Age kwa senge mbara nononkondo yipo ga wokesere mo mbara.
 
 ##
-Vatareli wombara kwa tengwire noruhafo rorunene ezuva olyo.Kutunda ezuva olyo vakadona nawo kwa va pulisilire kudana mbara zokusanga posure.
+Mbunga kwa tengwire noruhafo. Kutunda ezuva olyo, vakadona kwa va pulisilire nawo vadane mbara zokomaguru posure.
 
 ##
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
 * Translation: Anna Sengumbe
-
 * Language: kwn
