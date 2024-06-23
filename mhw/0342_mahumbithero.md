@@ -1,7 +1,7 @@
 # Mahumbithero
 
 ##
-Diyuwa dimweya nawe ghakashimbire mbuyo dhodhingi.
+Diyuwa dimweya nawe gha kashimbire mbuyo dhodhingi.
 
 ##
 " Ruvedhe munye shomu dhitupe edhi mbuyo?" Twepurire. "Ñanyi tudhi wane runguro ," gha huthire nawe.
@@ -10,7 +10,7 @@ Diyuwa dimweya nawe ghakashimbire mbuyo dhodhingi.
 Minange ghomukafumughana Rahim ne kahoma. Gha yerekire mbuyo dhodhiheya. Aye kudya mbuyo dhodhingi.
 
 ##
-"Mumone eyi ghana tendi Rahim!" ghakughererire minange ghomumbiru ghomukafumughana. " Rahim ne ghurughuru no dihuna, " nahuthire.
+"Mumone eyi ghana tendi Rahim!" gha kughererire minange ghomumbiru ghomukafumughana. " Rahim ne ghurughuru no dihuna, " nahuthire.
 
 ##
 Nawe gha tokotire na Rahim.
@@ -22,19 +22,19 @@ Natwe karo thikadyo tuna tokota na Rahim. Ene Rahim mbadi ghana kuromba mathiyer
 " Mbadi shomu mupe mahumbithe Rahim?" ghepurire minange ghomumbiru ghomukafumughana.
 
 ##
-" Rahim, tambatamba ghukwere," ghamu konekithire nawe.
+" Rahim, tambatamba ghukwere," gha mu konekithire nawe.
 
 ##
 Rahim gha tangire kuyuva tjitju.
 
 ##
-"Tjitju mudipumba dyange." ghahohotire Rahim.
+"Tjitju mudipumba dyange." gha hohotire Rahim.
 
 ##
-Nawe gha yi dimukire eshi ñanyi yimuhokokere yokemo. Mbuyo kuna kumuhumbitha Rahim.
+Nawe gha yi dimukire eshi ñanyi yimuhokokere yo kemo. Mbuyo kuna kumuhumbitha Rahim.
 
 ##
-Munyima Rahim gha rombire mathiyerero kwawakadiko dyendi. " Mbadi mboni kara kahoma karo," ghakuruperithire. No twaheya twayi tawire eyi gha ghambire.
+Munyima Rahim gha rombire mathiyerero kwawakadiko dyendi. " Mbadi mboni kara kahoma karo," gha kuruperithire. No twaheya twayi tawire eyi gha ghambire.
 
 ##
 * License: [CC-BY]

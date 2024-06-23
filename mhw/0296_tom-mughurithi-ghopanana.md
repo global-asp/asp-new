@@ -7,7 +7,7 @@ Tom ghana shimbi thikote tho mapanana ghopyuu.
 Tom kuna kuyenda kudyango dyokughurithera ghaka ghurithe mapanana.
 
 ##
-Hanu awa hadi pa dyango dyokughurithera kuna kughura mbuyo.
+Hanu awa ha di pa dyango dyokughurithera kuna kughura mbuyo.
 
 ##
 Ene noghofotji temba oyu ghana kughura mapanana ghaTom. Awo ne kuna kughura mbuyo edhi hana kughuritha hambuyama ngenyu.
