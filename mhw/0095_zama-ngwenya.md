@@ -1,7 +1,7 @@
-# Zama dipenda
+# Zama ngwenya
 
 ##
-Minange gho mungaghu mbadi ghararanga wangu. Ame kupinduka wangu yoyishi, ame ne no dipenda.
+Minange gho mungaghu mbadi ghararanga wangu. Ame kupinduka wangu yoyishi, ame ne no ngwenya.
 
 ##
 Ame yame mutokerithi diyuwa.
