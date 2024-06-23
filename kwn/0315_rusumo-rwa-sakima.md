@@ -46,7 +46,7 @@ Age tasikama pevhu lyekende limwe lyenene makura ta vareke kudimba rusumo oru ga
 Varugani tava hageke eyi varugene. tava purakene ko rusumo roruwa rwa Sakima. Nye mugara gumwe ta uyunga asi," Kwato gumwe ogu kavhulire kuhengayika muhona.
 
 ##
-Sakima ta mana kudimba rusumo rwendi makura ta piruka a ze ko. Mugara gongawo ta duka a pwage makura ta tanta asi, "Nina kanderere, dimba po hena"
+Sakima ta mana kudimba rusumo rwendi makura ta piruka a ze ko. Mugara gongawo ta duka a pwage makura ta tanta asi, "Nina kanderere, dimba po hena".
 
 ##
 Posiruwo sooso, Vagara vavali tava wiza po awo vana simbi gumwe gonompango. Vana ka gwana muna gomumati gongawo age vana mutoona vana musigi a rare konontere dositaura.

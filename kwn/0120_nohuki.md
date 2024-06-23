@@ -29,5 +29,4 @@ Themba ana kurura nohuki dendi.
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath, Ingrid Schechter
 * Translation: Anna Sengumbe
-
 * Language: kwn

@@ -1,33 +1,32 @@
 # Khalai ta uyungire yimeno
 
 ##
-Ogu yige Khalai,ano nomvhura dendi ntambali.Edina lyendi meraka lyawo kutanta asi ,'gomumuwa'.
+Ogu yige Khalai. Nomvhura dedi ntambali.Edina lyendi kutanta asi' gomuwa' meraka lyawo lyoru Lubukusu.
 
 ##
-Khalai ta pinduka noku ka uyungira sitji somaguni asi,"Sitji kura usimbu,yipo ngopenge ko maguni gomanzi gokupya.
+Khalai ana pinduka kuna kuuyungisa sitji somaguni."Nakanderere sitji somaguni kura yipo ngo tu pe maguni gomanzi gokupya".
 
 ##
- khalai kwa zire kosure.Ano monzira zendi zokuza ta uyungire hena wayi asi," Nakanderere kura ngorooro sinamahako wa ha kukuta.
+Khalai kwa kugenda aze kosure.Monzira zendi ta uyungisa wayi."Nakandere wayi kura sinamahako waha kukuta".
 
 ##
-Khalai simpe kwa pitire ponombya domowiza.Ta uyunga asi,"Nakanderere nombya,twikireni kutemuna ngorooro ame tani mu tura konohuki dange.
+Khalai ta piti ponombya domowiza."Nakandere nombya, temuneni ngorooro yipo ni mu ture monohuki dange".
 
 ##
-Ano kosure Khalai ta uyungire sitji sa kere peharango lyosure."Nakanderere sitji, hokera nomutayi dononene yipo ngatu gwane moge mundwire tu resere mo.
+Posure, Khalai ta uyunga nositji sopokatji keharango lyosure."Nakandere sitji kara nonomutayi dononene yipo nga tu resere monda zomundwire goge."
 
 ##
-Khalai ta uyungire rugumbo rwa kara pepi nosure asi,"Nakanderere kara nononkondo dokusikama yipo o kondere vantu wovadona va ha hwilira mo .
+Khalai ta uyungisa rugumbo rwakundurukida sure, "Nakanderere kara nononkodo dokukondera vantu wovadona va ha hwilira monda zo sure."
 
 ##
-Apa ga tengwire Khalai kembo a tunde kosure ,ta dingura sitji somaguni noku si pura asi,"Maguni goge gana pi?" Yimo ga uyungire Khalai.
+Apa ga tengwire Khalai kembo a tunde kosure, ta dingura sitji soma guni."Maguni goge gana pi nare ndi?" yimo ga pulire Khalai.
 
 ##
-Maguni simpe mavihu, "Ylimo ga uyungire Khalai "Ngani ya ku gwana mungura."Nampo kuvhura ngani ya gwane ko eguni lyokupya.
+"Maguni simpe mavihu, "yimo ga ga mwene Khalai." Ngatu limona mungura sitji somaguni," yimo ga uyungire Khalai."Nampo ngani ya gwana ko eguni lyokupya!"
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
 * Translation: Anna Sengumbe
-
 * Language: kwn

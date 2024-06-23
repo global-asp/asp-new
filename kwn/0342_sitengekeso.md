@@ -34,7 +34,7 @@ Rahim ta vareke kuvera.
 Onane vana yidiva asi eyi yiyo nayi ka horoka. Yikwaenyango yiyo yina ku tengeka Rahim.
 
 ##
-Konyima, Rahim ta gava mbili kwetu. "Kapi hena nganiyitengwira kukara makurulya , " Ta tumbidire. Makura natuvenye tatu yipura.
+Konyima, Rahim ta gava mbili kwetu. "Kapi hena nganiyitengwira kukara makurulya," Ta tumbidire. Makura natuvenye tatu yipura.
 
 ##
 * License: [CC-BY]

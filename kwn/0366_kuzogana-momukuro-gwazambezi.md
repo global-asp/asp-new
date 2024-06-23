@@ -67,7 +67,7 @@ Ntwala kwa ninkire vakadona navenye va hingire mosikwamusere. "Yisinke ga tu tan
 "Maria ga hepa kugava mbili," yimo ga uyungire Namasiku. "Chaze ga hepa nage kumutoona," yimo ga uyungire Joy. "Hawe, yidona kulitoona," yimo ga uyungire Ntwala.
 
 ##
-Ntwala kwa tente asi, "Omu nina kugazara Maria kapi nga zogana Sondaha zina kuwiza." Maria kwa lilire mahodi gomanzi. "Mbi… mbi… mbili Chaze. Mbili eyi ninka kutoona. Kapi hena ngani toona muntu," age kwa geve mbili.
+Ntwala kwa tente asi, "Omu nina kugazara Maria kapi nga zogana Sondaha zina kuwiza." Maria kwa lilire mahodi gomanzi. "Mbi... mbi... mbili Chaze. Mbili eyi ninka kutoona. Kapi hena ngani toona muntu," age kwa geve mbili.
 
 ##
 "Nina ku gusire po," yimo ga uyungire Chaze nokulidingira mawoko gendi Maria. "Ame naMaria natu za kumwe nove kembo," yimo ga tanterere Ntwala Chaze. "Maria na ka gava hena mbili konyoko."
@@ -82,7 +82,7 @@ Mugolikadi Sibungo kwa purakenene Maria. "Olyo epuko kali kara Maria, sininke so
 Mugolikadi Sibungo kwa uyungisire vanona navenye. "Ntwala kwa gazarere sitengeko sosiwa saMaria. Age kwa toonene Chaze morwa age kwa zumbanesere marumbasano gokuzoga. Ngesi kapi nga vhura kuhamena momarumbasano."
 
 ##
-"Nye Nane," Chaze kwa menywine, "Ame kapi nina hara asi Maria Sondaha zina kuwiza nga kare membo. Ame nina hara hena tu ka lirombere mokuzoga sivike sina kuwiza!" 
+"Nye Nane," Chaze kwa menywine, "Ame kapi nina hara asi Maria Sondaha zina kuwiza nga kare membo. Ame nina hara hena tu ka lirombere mokuzoga sivike sina kuwiza!"
 
 ##
 * License: CC BY-NC-SA

@@ -1,7 +1,7 @@
 # Ka mbuto kokanunu: Esanseko lya Wangari Maathai
 
 ##
-Mosirongo somoKenya koupumezuva waAfrika moudami wondundu zopomukunda , mukadona kwa rugene mepya nozina. Edina lyendi yige Wangari.
+Mosirongo somoKenya koupumezuva waAfrika moudami wondundu zopomukunda, mukadona kwa rugene mepya nozina. Edina lyendi yige Wangari.
 
 ##
 Wangari kwa here kukara ponze. mosikunino sonondja semembo lyawo ta gagura evhu nekatana lyendi. Ta vhumbike Mbuto gona mevhu lyoku genya.

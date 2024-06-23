@@ -1,7 +1,7 @@
 # Mundiro
 
 ##
-Tara,mundiro!
+Tara, mundiro!
 
 ##
 Mundiro Kuna ku pya.
@@ -29,5 +29,4 @@ Ntani ago nonkondo.
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
 * Translation: Anna Sengumbe
-
 * Language: kwn

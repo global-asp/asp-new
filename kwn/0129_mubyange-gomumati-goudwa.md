@@ -19,7 +19,7 @@ Ame kukomba porugorongwa.
 Ame kukuhwa marupasa.
 
 ##
-Morwa sinke ani ruganene unene ,siruwo oso age mubyange kuna ku danauka?
+Morwa sinke ani ruganene unene, siruwo oso age mubyange kuna ku danauka?
 
 ##
 * License: [CC-BY-NC]

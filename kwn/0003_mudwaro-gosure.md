@@ -29,5 +29,4 @@ Nye edi nonkaku nompe.
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Anna Sengumbe
-
 * Language: kwn

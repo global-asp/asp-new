@@ -28,7 +28,7 @@ Omama vendi yipo va mu horekere Tingi konhi zomahako.
 Mukwayita gumwe yipo galyete kuguru kwendi korutu rwa Tingi, nye age kwa mwenene teete.
 
 ##
-Apa va mwene asi kuna wapa ,Tingi no mama vendi yipo va tundire oku va vende.
+Apa va mwene asi kuna wapa, Tingi no mama vendi yipo va tundire oku va vende.
 
 ##
 Kwa tengwire kembo nelimweneneno.

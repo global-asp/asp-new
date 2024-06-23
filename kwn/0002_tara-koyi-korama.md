@@ -4,25 +4,25 @@
 Tara koyi korama.
 
 ##
-Ndidi ta zi kumbu asi, "Boonh"
+Ndidi ta zi kumbu asi, "Boonh".
 
 ##
-Sikombo tasi kumbu asi, " Buku Meeh"
+Sikombo tasi kumbu asi, "Buku meeh".
 
 ##
 Nkambe tazi lilikida asi, lili lili.
 
 ##
-Singuru tasi gono asi, "Nkorr, Nkorr."
+Singuru tasi gono asi, "Nkorr, nkorr".
 
 ##
-Nhunhwa tazi kerekeka asi, "Kerekekee"
+Nhunhwa tazi kerekeka asi, "Kerekekee".
 
 ##
-Mbwa tazihuda asi, "Nhaaw"
+Mbwa tazihuda asi, "Nhaaw".
 
 ##
-Munafara ta hingi asi "Shhh."
+Munafara ta hingi asi "Shhh".
 
 ##
 * License: [CC-BY-NC]
