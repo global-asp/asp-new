@@ -1,4 +1,4 @@
-# Livyuto ruvoko rwa Muneghedighushi
+# Livyuto ruvoko lyaMuneghedighushi
 
 ##
 Oshino shitimwitira shaNgede, mushani waghushi, ntani mukafumughona wamakurulya va ta Gingle. Liyuva limwe opo ayendire Gingle aka shane a yuvu Ngede ana ku mu yito. Gingle ava vareka kukugwemena pakughaya ushi. A yimana ategherere nawa, kupupwida dogoro a mono shidira pamutavi pamutwe wendi. "Chitik-chitik-chitik," shina kutjopitira shidira, omo shina kuteremba-teremba kuta shitondo yenda shitondo."Chitik-chitik-chitik," a shi yita, kuminanga kadidi mposhi Gingle a kwame.
