@@ -1,4 +1,4 @@
-# Eyi dha pirera mvu huki
+# Eyi dha pirera mvu ghuhuki
 
 ##
 Diyuwa dimweya, Kadimba gha yendaghure kumbadi dho rware.
@@ -19,10 +19,10 @@ Kadimba gha yendire mukushana Mudiro no gha mutongwere, "Yende ghu katumeke Mvu 
 Munyima, Mvu gha ka dyerere muhonyi kokayenda norware. Mudiro weyire no kutumeka huki dhaMvu.
 
 ##
-Mvu gha dirire no gha tjirere mumeyu. Huki dhendi dhodhiheya dha pire kumudiro. Mvu gha dirire, "Huki dhange dhina pi kumudiro! Huki dhange dhina piti! Huki dhange dhi shaghuwa!"
+Mvu gha dirire no gha tjirere mumeyu. Ghuhuki wendi dhodhiheya dha pire kumudiro. Mvu gha dirire, "Ghuhuki dhange dhina pi kumudiro! Ghuhuki wange ghuna piti! Ghuhuki wange ghu shaghuwa!"
 
 ##
-Kadimba gha shamberere esi huki dha Mvu dhina pi. Kate no dyarero, pamurandu gho woma no mudiro, Mvu mbadi gha yendanga kokayenda no meyu.
+Kadimba gha shamberere eshi ghuhuki waMvu wa pire. Kate no dyarero, pamurandu gho woma no mudiro, Mvu mbadi gha yendanga kokayenda no meyu.
 
 ##
 * License: [CC-BY]
