@@ -1,34 +1,34 @@
 # Litokoro
 
 ##
-Mukunda wetu kwa kara namaudito ghamangi. Kukuyara mumuyaro waure mposhi tuvhete mema kupomba yimwe.
+Mukunda wetu kwa kalire namaudito ghamangi. Kukuyara mumuyaro waure mposhi tuvhete mema kupomba yimwe.
 
 ##
 Atu taterere ndya odo vatapire vantu.
 
 ##
-Kwa patire wangu ndjugho detu mukonda yavanawidi.
+Atu pata wangu ndjugho detu mukonda yavanawidi.
 
 ##
-Vanuke vavangi kwa tundire mushure.
+Vanuke vavangi ava mushure.
 
 ##
-Vanuke vavakadona kwa kalire varughani vamumandi mudimukunda.
+Vanuke vavakadona ava kara varughani vamumandi mudimukunda.
 
 ##
-Vanuke vavamati kava yendauranga mudimukunda okuno vamwe kwa kalire varughani vamufarama davantu.
+Vanuke vavamati kava yendauranga mudimukunda okuno vamwe ava kara varughani vamufarama davantu.
 
 ##
-Opo yapepire mpepo, vipepa vyakudira mulyo avi haka kuvitondo nakundarate.
+Pakupepa mpepo, vipepa vyakudira mulyo kuhaka kuvitondo nakundarate.
 
 ##
-Vantu kwa va kekire makende ghakutavauka ogho vavhukumine va hana shinka.
+Vantu kagha va kekanga makende ghakutavauka ogho kava vhukumanga va hana shinka.
 
 ##
 Liyuva limwe, pomba ayi pata makura vyuma vyetu avi kara muporongwa.
 
 ##
-Vava kwa yendaulire tunda mundi yenda mundi va renke vantu vaka kare pambongarero yamumukunda.
+Vava ava yendaura tunda mundi yenda mundi va renke vantu vaka kare pambongarero yamumukunda.
 
 ##
 Vantu ava kaponga munda yashitondo kumwe nakutegherera.
