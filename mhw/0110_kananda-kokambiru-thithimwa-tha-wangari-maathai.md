@@ -1,10 +1,10 @@
-# Kambuto kokambiru: Thithimwa tha Wangari Maathai
+# Kananda kokambiru: Thithimwa tha Wangari Maathai
 
 ##
 Mumukunda gho mudidhamena dyo dirundu dyaKenya muDiva dyaAfrika, mukamadighana nga rughananga mu mapya nanyina. Dina dyendi ne Wangari.
 
 ##
-Wangari gha hakire kukara panunda. Muthinyamo thawo thoyidya yo padimbo nga payuranga muve no dikatana dyendi. Gha vumbekire tumbuto mumuve gho ghughenyu.
+Wangari gha hakire kukara panunda. Muthinyamo thawo thoyidya yo padimbo nga payuranga muve no dikatana dyendi. Gha vumbekire tunanda totumbiru mumuve gho ghughenyu.
 
 ##
 Ruvedhe rwendi oru gha hakire ne munyima dho kutokera diyuwa. Oku ne makokore mukumona yimenwa, Wangari gha dimukire eshi ruvedhe ro kuyenda kudimbo. Aye nga yendanga mukandhira kokathorokoto ghupita mumapya, kureya marware gha ka yende.
@@ -25,7 +25,7 @@ Dyodi gha kuhongire thikuma, dyo gha nongononine eshi gha haka hanu ho muKenya. 
 Apa gha manine shure dhendi, gha hukire kuKenya. Ene ditunga dyendi ne dya kutjindja. Ma farama gho makuru gha shimbire muve gho wingi. Hambuyama mbadi ha karire noyikunyi yo kukonyeritha mudiro. Hanu hakarire hahepwe no hanuke ne ndhara.
 
 ##
-Wangari gha dimukire yo kutenda. Gha hongire hambuyama eshingepi gho kukuna yitondo kutunda kumbuto. Hambuyama ha ghurithire yitondo no ha rughanithire masherenyi gha mukurera madhiko ghawo. Hambuyama hashambererire thikuma. Wangari gha wa ghamwene hakuyuve kutanara nongcamu.
+Wangari gha dimukire yo kutenda. Gha hongire hambuyama eshingepi gho kukuna yitondo kutunda kunanda. Hambuyama ha ghurithire yitondo no ha rughanithire masherenyi gha mukurera madhiko ghawo. Hambuyama hashambererire thikuma. Wangari gha wa ghamwene hakuyuve kutanara nongcamu.
 
 ##
 Ruvedhe rwa pitire, yitondo yi yoyipya yakurire mumithitu, no marware gha tangire karo ku pupana. Mbudhi dhaWangari dha yukire mumatunga gho muAfrika. Dyarero, mamiriyuni gho yitondo kwa yitapekitha kumbuto dha Wangari.

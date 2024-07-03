@@ -1,4 +1,4 @@
-# Eyi gha ghambire mukurwa Vusi
+# Eyi gha ghambire mukurwa Vusi ghomukamadi
 
 ##
 Mathikuthiku ghamweya nyakudya Vusi gha mwithire. "Vusi, nakanderera tware dihonyi di kwa hakuru ghoye. Hana shana katenda thikuki tho thikuru tho mayekero gha mukuroye."
