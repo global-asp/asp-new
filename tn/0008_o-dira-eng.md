@@ -4,13 +4,13 @@
 Ke a opela.
 
 ##
-O a dumedisa.
+O ntsamaisa sentle.
 
 ##
 Ke opa diatla.
 
 ##
-O a iphutholola.
+O otlolola mabogo.
 
 ##
 O a bitsa.
@@ -28,5 +28,5 @@ O dira eng?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: McDonald Kgobetsi
+* Translation: Antonia Madi
 * Language: tn

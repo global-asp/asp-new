@@ -7,22 +7,22 @@ Leba, molelo!
 Molelo o a fisa.
 
 ##
-Go apewa ka molelo.
+Molelo o apaya.
 
 ##
-Molelo o ntsha bothito.
+Molelo o naya bothito.
 
 ##
-Molelo o dira lesedi.
+Molelo o ntsha lesedi.
 
 ##
-Leba, molelo.
+Leba, molelo!
 
 ##
-Molelo o a akgamatsa.
+Molelo o a makatsa.
 
 ##
-Gape o maatla.
+Gape o a thatafatsa.
 
 ##
 * License: [CC-BY]
