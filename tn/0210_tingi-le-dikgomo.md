@@ -4,34 +4,34 @@
 Tingi o agile le mmemogolo wa gagwe.
 
 ##
-O ne a disa dikgomo le ene.
+O ne a disa dikgomo le mmemogolo.
 
 ##
-Letsatsi lengwe masole a atla.
+Letsatsi lengwe masolo a tla.
 
 ##
-Ba ba tseela dikgomo.
+Ba tsaya dikgomo.
 
 ##
-Tingi le mmemogolo wa gagwe ba sia ba itshuba.
+Tingi le mmemogolo wa gagwe ba sia ba ya go itshuba.
 
 ##
-Ba itshubile mo nageng go fitlhela bosigo.
+Ba ya go itshuba mo sekgweng go fitlhela bosigo.
 
 ##
-Masole ba bowa ba tla.
+Masole ba boa ba tla.
 
 ##
-Mmemogolo o tshuba Tingi ka fa tlase ga makakaba.
+Mmemogolo a shuba Tingi ka fa tlase ga makakaba.
 
 ##
-Mongwe wa masole a gata fa o itshubileng teng, mme a nna a didimetse.
+Mongwe wa masole a gata fa o ishubileng teng, mme a itidimalela.
 
 ##
-E rile go siame, Tingi le mmemogolo ba tswa.
+E rile go sirelegile, Tingi le mmemogolo wa gagwe ba tswa mo sekgweng.
 
 ##
-Ba ya gae ka tidimalo.
+Ba nanabela ka tidimalo kwa gae.
 
 ##
 * License: [CC-BY]

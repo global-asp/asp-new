@@ -1,7 +1,7 @@
 # Leba ditshedi
 
 ##
-Leba ditsedi
+Leba ditshedi.
 
 ##
 Kgomo e a re ," moo."
@@ -13,10 +13,10 @@ Podi ya re, "Mee,
 Pitse ya re, "kukunyetsa."
 
 ##
-Kolobe e ya re, "kgorotlha."
+Kolobe e a "kgorotlha."
 
 ##
-Koko e a re, "kokoretsa."
+Koko e a , "kokoretsa."
 
 ##
 Ntswa e a," bogola."
