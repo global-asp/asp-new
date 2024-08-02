@@ -1,43 +1,43 @@
-# Nozibele neexwuki nhatu
+# Nozibele neendali nhatu deexwiki
 
 ##
-Nale nale mefimbo lakapita, okwali kuna oukadona vatatu vali vaka tyava oikuni.
+Nale nale, oukadona vatatu okwa li va ka tyava oikuni.
 
 ##
-Fiku olo okwali kuna omutenya netango okwali latwa onghee ova tokola vaye komulonga vakayowe. Ovakala nokudanauka, tava nukilemo voo tava yoo.
+Fiku olo okwa li kwa pupyala neenghono nomolwaashi ova tokola va ye komulonga va ka yowe. Ova kala tava danauka nokulishinine omeva, tava nhukile momulonga vo tava yoo.
 
 ##
-Ohaluka, ova dimbuluka kutya etango olali latoka. Ovaendelela vashune komaumbo.
+Divadiva, ova didilika kutya etango la toka. Ova endelela va shune komaumbo.
 
 ##
-Eshi vali popepi nokufika komaumbo, Nozibele okwa tula omake aye mofingo. Okwa dimbuluka kutya okwa dimbwako oshilanda shaye! "Vakwetu kwafeinge muka teelelenge!" osho apula ookahewa kaye. Ookahewa kaye ovemulombwela kutya otango olali latoka unene.
+Eshi va fika popepi neumbo, Nozibele okwe li kwata mofingo. Okwa dimbuluka kutya okwa dimbwa ko oshilanda shaye! "Vakwetu kwafei nge mu ka teelele nge!" osho a pula omahewa aye. Ashike omahewa aye okwe mu lombwela kutya okwa toka unene.
 
 ##
-Nopo nee Nozibele okwashuna komulonga. Okwa mona oshilanda shaye ndele taendelele aye keumbo. Okwali akana ondjila yokeumbo shaashi okwali kuna omulaulu.
+Nozibele okwa shuna komulonga oye aeke. Okwa mona oshilanda shaye ndele ta endelele a shune keumbo. Okwa puka ondjila yokushuna keumbo, shaashi okwa li kwa laula.
 
 ##
-Okwamona omutemo taudilile monduda yomwiidi yali oshinanho. Okwa endelela ayuka konduda ndele eshi afikapo takonghola pomuvelo.
+Okwa mona ouyelele tau dilile mokanduda komwiidi, ouyelele oo wa li okanano. Okwa endelela a yuka kokanduda oko ndele eshi a fika po okwa konghola pomuvelo.
 
 ##
-Oshali shemu kumwifa neenghono eshi omuvelo wayeululwa kombwa ndele taiti, "Owahala shike?" Onda kana keumbo ohandi kongo omulele," Nozibele osho atya. "Ilamo, ngeenge inohala ndiku lumate!" ombwa taiti. Nopo nee Nozibele okwa pitilamo.
+Okwa li a kumwa neenghono eshi omuvelo wa yeululwa kombwa ndele tai ti, "Owahala shike?" Onda puka keumbo ohandi kongo omulele," Nozibele osho a nyamukula "Ila mo, ngeenge ino hala ndi ku lye!" ombwa tai ti. Nopo nee Nozibele okwa ya mo.
 
 ##
-Konima yokafimbo ombwa oyati, "Telekelenge!" "Inandi telekela nale ombwa ame," tanyamukula. "Fikama utelekelenge ngeenge inohala ndiku lumate!" ombwa taiti. Nopo nee Nozibele okwa telekela ombwa oikulya.
+Konima yokafimbo ombwa oya ti, "Telekele nge!" "Inandi telekela nale ombwa ame," ta nyamukula. "Oto telekele nge ngeenge ino hala ndi ku lye!" ombwa tai ti. Nopo nee Nozibele okwa telekela ombwa oikulya.
 
 ##
-Ombwa natango oyati, "Yalelenge ombete!" Nozibele tanyamykula, "Inandi yalela nande onale ombwa ombete." Fikama uyale ombete, ngeenge inohala ndiku lumate!" Ombwa osho yatya. Nopo nee Nozibele okwa yalela ombwa ombete.
+Ombwa natango oya ti, "Yalele nge ombete!" Nozibele ta nyamukula, "Inandi yalela nande onale ombwa ombete." Yalele nge ombete, ngeenge ino hala ndi ku lye!" Ombwa osho ya ti. Nopo nee Nozibele okwa yalela ombwa ombete.
 
 ##
-Keshe efiku okwa kala noku telekifwa, takombo yee takoshifwa kombwa. Efiku limwe ombwa oyemulombwela taiti, "Nozibele, nena ohandi ka talelapo ookaume kange. Eshi handaaluka nandi hange wakomba eumbo, wateleka oshoyo wakosha oinima aishe yayela."
+Keshe efiku okwa kala nokutelekifwa, okukombifwa ye ta koshifwa kombwa. Efiku limwe ombwa oye mu lombwela tai ti, "Nozibele, nena ohandi ka talela po ookaume kange. Eshi handi aluka nandi hange wa komba eumbo, wa teleka nowa kosha oinima aishe ya yela fimbo handi aluka."
 
 ##
-Eshi tuu ombwa yapilamenako, yee Nozibele ote liduda eexwiki nhatu momutwe. Oxwiki imwe okwe itula koshi yombete, ikwao teitula konima yomuvelo, yoo ikwao tei tula moshuunda. Konima okwa lotoka amanamo ayuka keumbo lavo.
+Eshi tuu ombwa ya pilamena ko, ye Nozibele ote lipandulula mo eendali nhatu deexwiki odo di li momutwe. Eexwiki dimwe okwe di tula koshi yombete, ikwao te di tula konima yomuvelo, do dikwao te di tula moshuunda. Konima okwa faduka po a mana mo a yuka keumbo lavo.
 
 ##
-Eshi ombwa yaaluka, oyali taikongo Nozibele. "Nozibele, oulipeni?" tayi ingida. "Aame ou ndili koshi yombete," oxwiki yotete taiti. Aame ou ndili konima yomuvelo," oxwiki onivali taiti. "Aame ou ndili moshiunda," oxwiki oninhatu taiti.
+Eshi ombwa ya aluka, oya li tai kongo Nozibele. "Nozibele, ou li peni?" tai ingida. "Aame ou ndi li koshi yombete," oxwiki yotete tai nyamukula. Aame ou ndi li konima yomuvelo," oxwiki onhivali tai nyamukula. "Aame ou ndi li moshuunda," oxwiki onhinhatu tai nyamukula.
 
 ##
-Ombwa oye shimonamo kutya Nozibele okwe i ninga oineya. Ombwa oya lotoka ndele tailotoka yalamba ondjila yafinda keumbo loo Nozibele. Nozibele okwa hangwa afika nale keumbo novamwaina mati ovahangwa vakufa eedibo. Ombwa oya tanauka meendelelo ndele tai fadukapo ndele okudja opo inaimonika vali.
+Ombwa oye shi mona mo kutya Nozibele okwe i ninga oinheya. Ombwa oya lotoka ya lamba ondjila ya finda komukunda wooNozibele. Nozibele okwa hangwa a fika nale keumbo novamwainamati ova hangwa ve i nangela va tya eedibo da kula. Ombwa oya piluka ko meendelelo, ndele tai faduka po. Okudja kefiku olo inai monika vali.
 
 ##
 * License: [CC-BY]

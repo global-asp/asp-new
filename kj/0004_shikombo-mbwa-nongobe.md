@@ -1,28 +1,28 @@
-# Oshikombo, ombwa nongobe
+# Shikombo, Mbwa nOngobe
 
 ##
-Oshikombo, ombwa nongobe oyali yapanga oukaume. Fikulimwe ova tokola vakufe olweendo vaya no taxi.
+Shikombo, Mbwa nOngobe ova li ve na oukaume wakula. Fiku limwe ova ya olweendo nokatekisa.
 
 ##
-Eshi vafika oku tavai omushingi okwe vapula vafute oimaliwa yavo yolweendo. Ongobe oya futa oimaliwa yayo yolweendo.
+Eshi va fika oko va li va uka omushingi okwe va pula va fute oimaliwa yavo yolweendo. Ongobe okwa futa oimaliwa yaye yolweendo.
 
 ##
-Ombwa oya yandja oshimaliwa shili mumwe shakula shaashi kakwali ina oshimaliwa shashendjuka nawa.
+Mbwa okwa yandja oshimaliwa sha pitilila shaashi kakwa li i na oimaliwa ya tukuka nawa.
 
 ##
-Manga omushingi kwali talongekida ayandje oshendja yombwa oshikombo oshafadukapo noinashi futasha.
+Omushingi kwa hangika ngeno ta pe Mbwa oshendja yaye, eshi Shikombo kwa faduka po ina futa nande osha.
 
 ##
-Omushingi okwali shemu udifa nai neenghono.Okwashinga ndele tai noina alula oshendja yombwa.
+Omushingi okwa uda nai neenghono, eshi Shikombo ina futa sha. Okwa shinga ndele ta i noina yandja vali oshendja yaMbwa.
 
 ##
-Opo nee padja fiyo okunena eli, ombwa hai totele omatuwa tai vandamene meni itale ngeenge pamwe tai hangemo omushingi winya a fadukapo noimaliwa yayo yoshendja.
+Opo nee pa dja fiyo okunena eli, Ombwa hai totele nokutaata oihauto, opo i tale ngeenge pamwe tai mono mo omushingi winya a faduka po noshendja yayo.
 
 ##
-Okudja opo shama oshikombo shaudu etuwa tali duma ohashi fadukapo. Ohashi kala shatila oku kwatwapo shaashi inashi futa oimaliwa yovanhu yolweendo.
+Okudja tuu efiku olo Oshikombo ohashi faduka po shimha sha udu omudumo woshihauto. Ohashi kala sha tila pamwe otashi kwatwa po eshi inashi futa oimaliwa yovanhu yolweendo.
 
 ##
-Ongobe yoo ihai kala noumbada washa ngeenge tai shakene nomatuwa. Ongobe ohai ende nefimbo layo ngaashi yahala ngeenge tai tauluka ondjila shaashi yoo oishishi kutya yoo oyawanifapo oifuta yayo yolweendo.
+Ongobe ihai kala ina ko nasha ngeenge tai tauluka opate nande taku di oshihauto. Ongobe ohai ende nefimbo layo ngaashi ya hala ngeenge tai tauluka opate, shaashi yo oi shi shi kutya oya wanifa po oifuta yayo yolweendo.
 
 ##
 * License: [CC-BY]

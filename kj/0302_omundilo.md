@@ -1,7 +1,7 @@
 # Omundilo
 
 ##
-Tala omundilo.
+Tala, Omundilo.
 
 ##
 Omundilo ohau xwike.
@@ -10,10 +10,10 @@ Omundilo ohau xwike.
 Omundilo ohau telekifwa.
 
 ##
-Omundilo ohau pupyaleke.
+Omundilo ohau yandje oupyu.
 
 ##
-Omundilo ohau eta ouyelele.
+Omundilo ohau yandje ouyelele.
 
 ##
 Tala, omundilo!
@@ -22,7 +22,7 @@ Tala, omundilo!
 Omundilo oukumwifa.
 
 ##
-Woo ouna eenghono.
+Wo ou na eenghono.
 
 ##
 * License: [CC-BY]

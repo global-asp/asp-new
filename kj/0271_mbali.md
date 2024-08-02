@@ -1,19 +1,19 @@
 # Mbali
 
 ##
-Omake manini avali oku kwata.
+Ouke vanini vokukwata.
 
 ##
-Oupadi vanini vavali voku lyata.
+Oupadi vanini vokulyata.
 
 ##
 Ousho vavali vokutala.
 
 ##
-Outwi vavali voku pwilikina.
+Outwi vavali vokuuda.
 
 ##
-Oshoyo omaoko avali okupapatele nohole.
+Osho yo omaoko avali taa papatele nohole.
 
 ##
 * License: [CC-BY-NC]

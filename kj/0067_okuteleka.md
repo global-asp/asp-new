@@ -4,7 +4,7 @@
 Onda yuuna oihakautu.
 
 ##
-Onda teta ombidi yomutwe.
+Onda teta ombidi yokola.
 
 ##
 Onda kweya oukanakamudesha.
@@ -22,7 +22,7 @@ Onda teta ombidi yomafo.
 Meme okwa teta eenyanga.
 
 ##
-Eenyanga ngeenge ta di tetwa oha didifa nge omahodi.
+Eenyanga ngeenge tadi tetwa oha di difa nge omahodi.
 
 ##
 * License: [CC-BY-NC]

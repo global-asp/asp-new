@@ -1,19 +1,19 @@
 # Ongadu ya fya ondjla
 
 ##
-Okwali kuna ongadu yafya ondjala neenghono.
+Okwa li ku na ongadu ya fya ondjala neenghono.
 
 ##
-Okwali tai kongo oikulya tai hondjaunine melimweneneno. Okudja opoo...
+Oya konga oikulya tai hondjaunine melimweneneno. Okudja opoo...
 
 ##
-Xwanu!! Ongadu oya kwatasha.
+Wayu!!! Ongadu oya kwata sha.
 
 ##
-Nokonima inai fya vali ondjala, ndele yoo okwali ya hafa.
+Nokonima inai fya vali ondjala, ndele ye okwa li ya hafa.
 
 ##
-Fiyo osheshi yaka fya vali ondjala.
+Fiyo ya ka fya vali ondjala.
 
 ##
 * License: [CC-BY]

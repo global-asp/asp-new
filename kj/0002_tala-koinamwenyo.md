@@ -1,28 +1,28 @@
-# Tala oinamwenyo
+# Tala koinamwenyo
 
 ##
-Tala oinamwenyo.
+Tala koinamwenyo.
 
 ##
-Ongobe taiti, "Moo."
+Ongobe ohai ti, "Buuuu."
 
 ##
-Oshikombo tashiti, "Meh, meh."
+Oshikombo ohashi ti, "Mee, mee."
 
 ##
-Onghambe taiti, "Hii, hii."
+Onghambe ohai ti, "Hii, hii."
 
 ##
-Oshingulu tashiti, "Ooi, ooi."
+Oshingulu ohashi ti, "Oinki, Oinki."
 
 ##
-Oxuxwa taiti, "Koo kook."
+Oxuxwa ohai ti, "Kokokokokoko."
 
 ##
-Ombwa taiti, "Woof."
+Ombwa ohai ti, "Wawu."
 
 ##
-Omunahambo tati, "Shhh!"
+Omunafaalama oha ti, "Shhhi!"
 
 ##
 * License: [CC-BY-NC]

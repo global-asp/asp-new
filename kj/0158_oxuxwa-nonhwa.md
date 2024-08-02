@@ -1,34 +1,34 @@
-# Oxuxwa nekodi
+# Oxuxwa nonhwa
 
 ##
-Efimbo limwe, Oxuxwa nekodi ovali ookaume. Ovakala nawa nombili noudila aveshe. Kapali nande oyo u ali eshii kutuka.
+Nale nale, Oxuxwa nonhwa ova li ookaume. Ova li ve na ombili needila. Kapa li nande odila ya li i shii okutuka.
 
 ##
-Efiku limwe, moshitukulwa omweya oshikukuta. Ekodi okwali lina okweenda oshinano shile likakonge oikulya. Eshi laaluka olali laloloka unene. "Opena okukala pena omukalo umwe mupu wokweenda!" Ekodi tali lipopile.
+Efimbo limwe, moshilongo omwe ya ondjala. Onhwa oya li ina okweenda oshinano shile i ka konge oikulya. Ohai aluka ya loloka neenghono. "Ope na ngaho okukala pe na omukalo umwe mupu wokweenda!" Onhwa osho ye lipopile.
 
 ##
-Konima eshi vapenduka meemofi, Xuxwa okwali enapo edilaadilo limwe ladengambada. Okwa tameka ta toola noku ongela omalwenya oo ali aduduka kookaume kavo voudila. "Natu hondjeleni omalwenya aa keexulo domalwenya etu," osho atya. "Pamwe onghendabala ei ota iningi ngaho omalweendo mapu."
+Ongula eshi va penduka va kofolokwa nawa, Xuxwa okwa li e na ondungediladilo imwe ya dengambada. Okwa ongela omalwenya aeshe oo a li a duduka keedila dookaume kavo "Natu hondjeleni omalwenya aa kombada yomalwenya etu," osho ya lombwele ookaume kayo ya ti: "Pamwe otashi ka pupaleka ngaho okweenda kwetu."
 
 ##
-Ekodi olo alike kwali linamo onghumbo momukunda, onghee olo la tameka okuhondja tete. Okwe li hondjela epando lomavava lawapa ndele tali tuka mombada mokule latala oxuxwa ili pedu. Oxuxwa oya indila onghumbo ilongifeko ashike oya loloka diva kokuhondja. Oya pungula onghumbo moshikopa ndele tayii kepata ikalongekidile ouxuxwena vayo oikulya.
+Onhwa oyo aike ya li i na mo ongwiya momukunda, onghee oyo ya tameka okuhondja tete. Okwe li hondjela epando lomavava liwa kuhe na vali ndele tali tuka mombada mokule lidule oxuxwa. Oxuxwa oya indila ongwiya nayo i hondjife omavava ayo, ashike oya loloka diva. Oya pungula ongwiya moshikopa ndele tai i kepata i ka longekidile ouxuxwena vayo oikulya.
 
 ##
-Oudila vakwao ovamona eshi ekodi lakala nokutuka. Ovapula oxuxwa ivakwafele onghumbo opo veliningile yoo omavava. Inapakalwa loo ewangadjo oliyadi oudila tava tuka tava telaana.
+Eedila dikwao oda mona eshi onhwa tai tuka. Oda pula oxuxwa i di pe ongwiya, opo di lihondjele yo omavava. Diva diva ewangadjo oli yadi eedila tadi tuka nokutelaana.
 
 ##
-Eshi okadila kaxuuninwa ka kaalula onghumbo, oxuxwa inai hangwamo meumbo. Ouxuxwena ova tambulako onghumbo nde tava tameke okudanauka nayo. Eshi vamana okudanauka, ovei kanifila medu.
+Odila yaxuuninwa eshi ya ka alula ongwiya, oxuxwa inai hangwa mo meumbo. Ouxuxwena ova pewa ongwiya ndee tava tameke oku i danena. Eshi va loloka okudanauka, ove i kanifila medu ndee tava i.
 
 ##
-Lwanima komatango fiku olo, ekodi ola aluka. Olapula likwafelwe onghumbo lipameke nawa omalwenya alo amwe kwali ayululukila molweendo laye. Oxuxwa oya hada ongumbo moshikopa. Oya tala yoo kepata. Oya talaatala yoovali moluumbo alishe. Ashike onghumbo ine i mona.
+Lwanima komatango fiku olo, onhwa oya aluka. Oya pula i kwafelwe ongwiya i pameke nawa omalwenya ayo amwe oo a yululukila molweendo laye. Oxuxwa oya konga ongwiya moshikopa. Oya tala yo kepata. Oya talaatala yo vali mehalandjadja loluumbo alishe, ashike ongwiya ine i mona.
 
 ##
-"Penge ashike efiku limwe alike," Oxuxwa osho yailikana ekodi. "Ove udule ngaho oku pangela omavava oye ushiive utuke uye kokule ukakonge vali oikulya." "Nashikale efiku ashike limwe alike" Ekodi osho latya. "Ngeenge onghumbo oyo owakala inoimona, ouna okukala wapangepo kamwe pouxuxwena voye opo ongofuto."
+"Pe nge ashike efiku limwe alike ndi konge natango," Oxuxwa osho ya ilikana onhwa. "Ove u dule okuninga nawa omavava ove u shiive u tuke uye kokule u ka konge vali oikulya." "Efiku limwe alike ohandi li ku pe". Onhwa osho a ti: "Ngeenge ongwiya oyo owa kala ino i mona, ou na ashike okukala wa pa nge po kamwe komouxuxwena voye ongofuto."
 
 ##
-Eshi ekodi laaluka mefiku lashikulako, olahanga oxuxwa tai hade medu ndele onghumbo kayali yamonika. Ekodi ola vakulapo okaxuxwena kamwe meendelelelo. Ole kahumbatapo ndele taliinako. Okudja opo shama tuu ndele oxuxwa taimono ekodi ohaitameke taihade onghumbo yovanhu medu.
+Onhwa eshi ya aluka mefiku la shikula ko, oya hanga oxuxwa tai hade medu ndele ongwiya inai i mona. Onhwa oya tuka neendelelo, ndee tai vakula po okaxuxwena kamwe. Oye ka humbata po ndele tali i nako. Okudja tuu kefiku olo, shimha oxuxwa ya mono onhwa ohai hovele tai hade ongwiya yovanhu medu.
 
 ##
-Eshi tuu omudidimbe wekodi tau holoka pedu, Oxuxwa ohai tameke oku londwela ouxuxwena vayo. "Fikameni mudje moluheela nomedu olo likukutu." Voo tava nyamukula: "Fyee katufi omalai. Ohatu fadukapo."
+Shimha tuu oxuxwa ya mono omudidimbe wonhwa pedu, ohai okulondwele ouxuxwena vayo. "Fikameni mu dje moluhaela nomedu olo likukutu lihe na sha." Vo ohava nyamukula tava ti: "Fyee katu fi omalai. Ohatu faduka po."
 
 ##
 * License: [CC-BY]

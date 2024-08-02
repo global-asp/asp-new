@@ -1,28 +1,28 @@
-# Khalai tapopi noimeno
+# Khalai ta popi noimeno
 
 ##
-Ou o Khalai. Yee okuna edula heyali. Edina laye olina efatululo melaka layr loshi Lubukusu taliti 'ounambili'.
+Ou oKhalai. Ye oku na eedula heyali. Edina laye ota li ti omuwa melaka laye Lubukushu.
 
 ##
-Khalai apenduka ndele tapopi nomuti womulemuna. "Muti ove womulemuna, alikana kula uninge omuti munene ndele totupe oyiimati yomalemuna yapya nawa"
+Khalai okwa penduka ndele ta popi nomuti womulemuna. "Alikana, muti ove womulemuna, kula u ninge omuti munene, ndele to tu pe oiimati yomalemuna ihapu ya pya nawa."
 
 ##
-Khalai okwaya kofikola. Mondjila okwa popya nomwiidi. "Mwiidi ove, alikana kula waziza nawa ndele inokukuta nande"
+Khalai okwa ya kofikola. Mondjila okwa popifa eemwiidi. "Eemwiidi nye, alikana kuleni mwa hapa nawa, ndele inamu kukuta nande."
 
 ##
-Khalai okwa pita peenemo deengala. "Engala onye shenekeni ame ndishiive ndimutule meexwiki daye.
+Khalai okwa pita peengala dokelundu. "Eengala onye shenekeni opo ndi shiive ndi mu tule meexwiki dange.
 
 ##
-Kofikola, Khalai otapopi nomuti uli pokati koluumbo. "Muti ove, oitayi yoye naikule ininge yakula fyee tushiive tu leshelemo momudile wayo".
+Pofikola, Khalai ota popi nomuti u li pokati kehalandjadja loluumbo lofikola. "Muti ove, oitai yoye nai kule i andjakane, opo tu shiive tu leshele mo momudile waye."
 
 ##
-Khalai tapopi noumeno vadingunuka oluumbo lofikola. "Kuleni nyee mukale mwakola mudule mukelele ovalongi vominyonene veheuye meni".
+Khalai ta popi noumeno va dingonoka oluumbo lofikola. "Kuleni mwa fita nawa, opo mu kelele ovalongi vominyonena vaha pume noku ya meni lofikola."
 
 ##
-Eshi Khlai aalukila keumbo, okwaya komuti womulemuna. "Oyiimati yoye inaipya natango" Khalai tapula.
+Khalai eshi a alukila keumbo, konima yokudja kofikola, okwa ya komuti womulemune nokwa pula, "Hano omalemune oye inaa pya natango?"
 
 ##
-"Omalemune natango omatwima omafo" Khalai telipopile. "Mongula ogangi kutalelepo muti ove womulemuna" Khalai osho atya. Kashiimba efimbo olo otokala watulako omalemuna apya!
+"Omalemune natango omangongwa" Khalai osho a keme. "Ohandi aluka vali mongula." Khalai osho a lombwele omuti. Kashiimba ohandi ka hanga u nine nge omalemuna a pya nawa!
 
 ##
 * License: [CC-BY]

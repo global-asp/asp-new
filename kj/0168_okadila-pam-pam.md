@@ -1,34 +1,34 @@
 # Okadila Pam-Pam
 
 ##
-Pensa okwali omukongo mombuwa ya Kalahari. Okwali haeta keumbo oinamwenyo yaondoka noku palwifa nawa eumbo laye.Opali pena okadila kamwe, Okadila Pam-Pam, oko ali ahala oku kwata. Omalwenya omushindi wokadila okwali taawapalele koikuti yaye. Opali nee oupyakadi shaashi kali adula oku kakwata nomwiyo ile a yashe Pam-Pam. Oikuti ya Pensa oha i dulu oku oku taula momhepo yafa okadila taka tuka - ngeno okwali tadulu oku kwata Pam-Pam yee a dudeko omalwenya komushindi. 
+Pensa okwa li omukongo ependa mombuwa aishe yaKalahari. Okwa kala ha etelele ombelela oinamwenyo ya ondoka nokwa palwifa nawa ovaneumbo laye. Opa li pe na okadila kamwe Pam-Pam, oko Pensa a li a hala okukwata. Omalwenya omushindi wako otaa wapalele koikuti yaye. Oupyakadi owa li nee apa eshi ina dula oku ka kwata nomwiyo ile a yashe okadila Pam-Pam, ngaashi Pensa a kale eshi hala.. Oikuti yaPensa ohai dulu okutuka momhepo ngokadila – ngeno okwa li ta kwata Pam-Pam ye a dude ko omalwenya omushindi wako..
 
 ##
-Pensa okwaya komulumenhu womunandunge, omuhakuli wavo. Okwa pula ekwafo. “Kwafenge uwilikenge ndi kwate okadila Pam-Pam. Onda pumbwa omalwenya pouta wange ndilumbile nao oikuti yange. Ondina oku ninja ngahelipi opo ndimu kwate?” Omuhakuli okwa nyamukula tatii, “inda ndele toshakala omundilo. Eshi oipuka yafadukapo omundilo woye, ouna nee oku kwata oupuka ava vanini. Totele nee omwiyo ndele totula oupuka ovo vanini meni lomwiyo woye. Oshina okukala shaetela Pam-Pam omamekelo.” 
+Pensa okwa ya komunongonhu, ondudu yavo. Okwe mu pula ekwafo. "Kwafe nge alikana ndi kwate okadila Pam-Pam. Onda pumbwa omalwenya pouta wange nokulumbilifa nao oikuti yange. Ondi na okuninga ngahelipi opo ndi mu kwate?" Ondudu oya nyamukula tai ti, "Inda ndele to shakala omundilo. Eshi oupuka tava faduka po omundilo woye, ou na nee okukwata okapuka aka kanininini kuvakwao. Tela nee omwiyo woye, ndele to tula okapuka oko kanininini meni lomwiyo woye. Eshi oshi na okushila Pam-Pam a ye komwiyo."
 
 ##
-Pensa kali shiva ngeenge omuhakuli na Pam-Pam ovali ookaume. Pam-Pam okwali hatalelepo omuhakuli omalupita. Okwali hava hokolelafana omahokololo. “Ohandi ku londwele,” omuhakuli talombwele Pam-Pam pefimbo emutalelapo, “onda lombwela omukongo nhumbi ena oku enda opo ekukwate. Ngeenge wamono omundilo momufitu, fadukapo inda kokule. Ondahala oku tala kutya outafindana pokati keni olyelye.”
+Pensa kakwa li a shiiva ngeenge ondudu naPam-Pam ova li omaume opofingo. Pam-Pam, luhapu okwa kala ha talele po ondudu. Okwa li hava hokolelafana omahokololo. "Ohandi ku londwele," ondudu tai lombwele Pam-Pam pefimbo e mu talela po, "onda lombwela omukongo nhumbi e na okweenda opo e ku kwate. Ngeenge owa mono omundilo momufitu, faduka po inda kokule. Onda hala okutala kutya, olyelye ta findana pokati keni, moshinima eshi ."
 
 ##
-Pefimbo opo, Pensa okwa tameka oukongo takongo okadila Pam-Pam. Okwa kala omutumba momufitu ndele tatikitile oiti yomundilo yaye. Eshi tapadi omwifi, yee ota fudilepo taundwilepo omwiidi mupu wadingunuka oiti yomundilo, fiyo omundilo tau tema kanini nakanini fiyo watema. Oipuka oyo yali popepi nomundilo oya tuka taifadukapo, ashike Pensa okwa dula oku kwatapo okashanghana kamwe kanini. Okwe katula momwiyo waye.
+Mefimbo lixupi, Pensa okwa hovela oukongo ta kongo okadila Pam-Pam. Okwa kala omutumba momufitu ndele ta takatele a shakale omundilo waye. Eshi omwiidi wa tameka okudja omwifi, ye okwe u fudila ta undwile po omwiidi, fiyo omundilo tau xwama kanini nakanini fiyo wa yaka. Oipuka oyo ya li popepi nomundilo oya tuka tai faduka po.Pensa okwa kwata po okashanghana kamwe kanini ndele te ka tula momwiyo waye.
 
 ##
-Okadila Pam-Pam kakwali taka dulu oku lidinika oku tala okashanghana kaondoka nawa keli momwiyo wa Pensa. Okatokola katke koo kawile pedu koo kekanyangulepo diva diva omulungu wahonga. Pensa okwa uda Pam-Pam takwena, Pam-pam, pam-pam,pam-pam.” Pensa okwa lotoka ayuka komwiyo waye. Okadila okali momwiyo!
+Okadila Pam-Pam kakwa li taka dulu okufinda emakelo mokutala okashanghana ka ondoka nawa ke li momwiyo waPensa. Oka tokola okutukila pedu ka vakule po okashanghana ke li momwiyo nomulungu wako mule. Pensa okwa uda Pam-Pam ta kwena, Pam-pam, pam-pam, pam-pam." Pensa okwa tondokela komwiyo waye. Okadila oka kwatwa komwiyo!
 
 ##
-Okadila Pam-Pam oka ilikana Pensa ekamangulule. “Oh ayee” Pensa tati, “Onda kala ndahala kukukwata efimbo lile. Nena ove owange! Omalwenya oye otaaningi oikuti yaye itaule nawa momhepo, ngaashi ashike ove.” 
+Okadila Pam-Pam oka ilikana Pensa e ka mangulule. "Oh, ayee," Pensa osho a ti, "Onda kala efimbo lile nda hala oku ku kwata. Nena ove owange! Omalwenya oye otaa ningifa oikuti yange i kale tai xwema nawa momhepo, ngaashi okutuka kwoye."
 
 ##
-Pam-Pam ta ingida, “ngeenge owa dipaange itomono vali omalwenya awedwapo shama omalwenya aa akulupa, shaashi ame ondafya. Mangululenge ohandi udaneke oku kupa omalwena keshe omwedi uyadi.
+Okadila Pam-Pam ta ingida, "Ngeenge owa dipaa nge ito mono vali omalwenya amwe okulumbila oikuti yoye ngeenge aa a kulupa, shaashi ame onda fya. Mangulule nge ashike ohandi udaneke kutya keshe omwedi ohandi kala handi ku pe omalwenya.
 
 ##
-Pensa okwa efa Pam-Pam aye. Eshi Pam-Pam taende tai, okwe lipula, “onda manguluka ngaho shili?”
+Pensa okwa efa Pam-Pam aye. Eshi Pam-Pam ta tuka ta i, okwe lipula, "onda manguluka ngaho shili?"
 
 ##
-Pensa okwaya keumbo ndele taningipo oikuti imwe ipe. Eshi ovanhu vemumona ena oikuti ipe, ova ingida “O-o,tala komukongo ou! Ahumbata oikuti yalumbilwa nomalwenya okadila Pam-Pam. Paife otaka shava nawa yee ota kala haeta oikulya ihapu. Otuna okuninga oshivilo.
+Pensa okwa ya keumbo ndele ta hongo oikuti imwe ipe. Eshi ovanhu va mona e na oikuti ipe, ova ingida "Ooo-o, tala komukongo ou! A humbata oikuti ya lumbilwa nomalwenya okadila Pam-Pam. Paife otaka shava nawa noku tu etela oikulya iwa. Otu na okuninga oshivilo.
 
 ##
-Onguloshi oyo, omuhakuli okwa kwatela komeshoovanhu kondanisa yomundilo vaka tyapule efindano lomukongo oshoyo emanguluko lokadila Pam-Pam. Nokudja nee kefiku olo, ovakongo dingi avesheohava dimbulukwa ehokololo lokadila Pam-Pam,noku lihokolela ounona vavo onga edimbuluko lomafiku akapita 
+Onguloshi oyo, ondudu oya kwatela komesho oshidano hashi danenwa pomundilo, opo va ka tyapule efindano lomukongo osho yo emanguluko lokadila Pam-Pam. Okudja tuu kefiku olo, ovakongo aveshe eendjumbeta ohava dimbulukwa ehokololo lokadila Pam-Pam, noku li hokolela ounona vavo ongedimbuluko lomafimbo onale.
 
 ##
 * License: [CC-BY]

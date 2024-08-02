@@ -1,28 +1,28 @@
 # Olutu lange
 
 ##
-Ohandi dulu oku lotoka nalo.
+Ame ohandi dulu okutondoka nalo.
 
 ##
-Ame ohandi dulu okunuka nalo.
+Ame dulu okunhuka nalo.
 
 ##
-Ohandi dulu oku ndanisa nalo.
+Ohandi dulu okututula nalo.
 
 ##
-Ohandi dulu oku yowa nalo.
+Ohandi dulu okuyowa nalo.
 
 ##
-Ohandi dulu oku danauka lushipa nalo.
+Ohandi dulu okudanauka eshipa nalo.
 
 ##
-Ohandi dulu okulyata nalo etanga.
+Ohandi dulu okufanga etanga nalo.
 
 ##
-Ohandi dulu oku fadukapo.
+Ohandi dulu okufaduka po nalo.
 
 ##
-Ashike ihandi dulu nande oku tuka.
+Ashike ihandi dulu nande okutuka nalo.
 
 ##
 * License: [CC-BY-NC]

@@ -1,58 +1,58 @@
-# Eimbilo la Sakima
+# Eimbilo laSakima
 
 ##
-Sakima okwa kala novakulunhu vaye oshoyo okamwaina kadona kali kena omido nhee. Ova kala medu lomukengeli umwe. Onduda yavo yauvilikwa nomwiidi oyali kexulilo lomukweyo womiti.
+Sakima okwa kala novakulunhu vaye osho yo okamwainakadona ka li ke na omido nhee. Ova kala monhele yomukengeli umwe. Onduda yavo ya uvilikwa nomwiidi oya li kexulilo lomukweyo womiti.
 
 ##
-Efimbo Sakima ali ena omido nhatu, okwa kwatelwe kouvela ndele takanifa omesho. Sakima okwali okamati kena omaano.
+Pefimbo Sakima a li e na omido nhatu, okwa kwatelwe kouvela ndele ta kanifa omesho. Sakima okwa li okamati ke na omaano.
 
 ##
-Sakima okwa ninga oinima ihapu oyo oumati vakwao veedula hamano ihave iningi.Oshihopaenenwa, Okwali hadulu oku kala omutumba novakulunhu momukunda ndele tave likundu oitwa yafimana.
+Sakima eshi a wanifa omido hamano,okwa ninga oinima ihapu oyo ihai dulu okuningwa koumati vakwao vepupi laye. Oshihopaenenwa, Okwa li ha dulu okukala omutumba novakulunhu momukunda ndele tava kundufana oinima ya fimana.
 
 ##
-Ovakulunhu va Sakima okwali hava longo meumbo lomulumenhu ou woshipuna. Ohava pendukamo ongula inene meumbo voo tavaaluka kwatoka lela konguloshi. Sakima okwa li hafyaalapo nokamwainakadona.
+Ovakulunhu vaSakima okwa li hava longo meumbo lomulumenhu woshipuna. Ohava penduka mo ongula inene vo tava aluka konguloshi kwa toka lela. Sakima okwa li ha fyaala po nokamwainakadona.
 
 ##
-Sakima okwali ehole okuimba omaimbilo. Efiku limwe meme waye okwe mupula, "Openi holilongo omaimbilo aeshe aa, Sakima?"
+Sakima okwa li e hole okwiimba omaimbilo. Efiku limwe ina okwe mu pula, "Omaimbilo oo owe e lihonga peni, Sakima?"
 
 ##
-Sakima tanyamukula, "Oha elieta ashike meme. Ohandi audu ashike momutwe wange ame handi aimbi."
+"Oha e lieta ashike meme. Ohandi a udu ashike momutwe wange ame handi hovele oku a imba."Sakima ta nyamukula,
 
 ##
-Sakima okwali ehole oku imbilapo okamwaina kadona, unene tuu ngeenge kafya ondjala. Okamwaina kadona ohakakala kemupwilikina eshi taimbi omaimbilo oo ali ehole. Ohake lingemo taka landula omutono weimbilo.
+Sakima okwa li e hole okwiimbila po okamwainakadona, unene tuu ngeenge ka fya ondjala. Okamwainakadona ohaka kala ke mu pwilikina eshi ta imbi omaimbilo oo a li e hole. Oha ke linyenge mo taka shikula omutono weimbilo.
 
 ##
-"Imbapo vali natango imbapo vali, Sakima," Okamwainakadona osho haka kala nokumwiindila. Sakima oha dimine yee taimbi taendululamo oikando ihapu.
+"Imba po vali natango imba po vali, Sakima," Okamwainakadona osho haka kala noku mu indila. Sakima oha dimine ye ta imbi ta endulula mo oikando noikando.
 
 ##
-Onguloshi imwe manga ovakulunhu vali mondjila yokualukila keumbo, ovali vamwena. Sakima okwali adididlika kutya opali penasha shimwe shapuka.
+Onguloshi imwe manga ovakulunhu vali mondjila yokushuna keumbo, ova li va mwena. Sakima okwa li a dididlika kutya pe na sha shimwe sha puka.
 
 ##
-"Oshike shapuka meme, tate?" Sakima osho apula. Sakima okwa uda kutya okamonamati koshipuna okwali kehewetike. Omushamane okwali anyika oluhodi neemghono.
+"Oshike shapuka meme, tate?" Sakima osho a pula. Sakima okwa kundana kutya okamonamati koshipuna oka kana. Omushamane okwa li a ponga nokwa nyika oluhodi neenghono.
 
 ##
-"Ohandi dulu oku kemuimbilapo. Otadulu oku kala ahafa vali," Sakima osho alombwela ovakulunhu vaye. Ashike ovakulunhu vaye inave shitambulako."Winya omukengeli. Ove kamenhu kokapofi. Otolipula kutya okaimbilo koye ota kemukwafasha?"
+"Ohandi dulu oku ke mu imbila po. Ota dulu okukala a hafa natango," Sakima osho a lombwela ovakulunhu vaye. Ashike ovakulunhu vaye inave shi tambula ko. "Winya omukengeli. Ove okamenhu kongaho okanaulema komesho. Oto diladila kutya eimbilo loye otali ke mu kwafa sha?"
 
 ##
-Nonande ongaho, Sakima inafya ounye. Okamwainakadona okemuyambidida. Okwatya, Omaimbilo a Sakima ohaa hekelekenge ngeenge ngeenge ndafya ondjala. Otaa kaxunga yoo omwenyo omulunhu woshipuna."
+Nonande ongaho, Sakima ina fya ounye. Okamwainakadona oke mu twa omukumo taka ti, “Omaimbilo aSakima ohaa talaleke nokuudifa nge nawa ngeenge nda fya ondjala. Otaa ka pupaleka nokuxunga omwenyo omulumenhu woshipuna."
 
 ##
-Efiku la landulako, Sakima okwa pula okandenge kaye kemu twale keumbo loshipuna.
+Efiku la shikula ko, Sakima okwa pula okandenge kaye ke mu findikile keumbo loshipuna.
 
 ##
-Okwa kala ofika pekende limwe lakula ndele tatameke taimbi eimbilo laye olo kwali ehole. Kanini na kanini oshipuna osha pitifamo omutwe mekende.
+Okwa fikama pekende lakula ndele ta tameke ta imbi eimbilo laye olo kwa li e hole. Kanini nakanini oshipuna osha pitifa mo omutwe mekende linene.
 
 ##
-Ovanailonga ova kanghama mukeshe shimwe kwali tave shiningi. Ovapwilikina komaimbilo mawa a Sakima. Nopo nee omulumenhu umwe okwatya, "Kapena nande omunhu apondola oku hekeleka omunghona. Okamati aka kokappofi tashiti ota kelipula kutya ngeno ota kemuxungu omwenyo?"
+Ovanailonga ova efa oilonga aishe oyo kwa li tava i longo. Ova li tava pwilikine keimbilo liwa laSakima. Omulumenhu umwe okwa ti, "Kape na nande omunhu a pondola okuhekeleka omunghona. Okamati aka kokanaulema womesho otaka diladila kutya otaka dulu oku mu hekeleke?"
 
 ##
-Sakima eshi axulifa eimbilo laye okwa tengunuka aye. Ashike oshipuna endelela shiuye pondje ndele tashiti, "Alikana imbapo vali."
+Sakima eshi a xulifa eimbilo laye okwa tengunuka a ye. Ashike oshipuna osha endelela shi uye pondje ndele tashi ti, "Alikana imba po vali."
 
 ##
-Pefimbo opo, ovalumenhu vavali oveuya vahumbata omunhu kolutala. Omonamati woshipuna ove mumona vahanga adengwa ndele tafiwa pomunghulo wondjila.
+Pefimbo tuu opo, ovalumenhu vavali ove uya va humbata omunhu kolutala. Omonamati woshipuna ove mu hanga a dengwa ndele ta fiwa pomukunghulo wondjila.
 
 ##
-Omulumenhu woshipuna okwali anyakukwa oku mona omonamati. Okwa pandula Sakima eshi emuxunga omwenyo. Okwa twala omonamati voo na Sakima koshipangelo opo akamone ouhaku womesho yee adule okumonako vali.
+Omulumenhu woshipuna okwa li a nyakukwa okumona omonamati. Okwa pandula Sakima eshi e mu hekeleka. Okwa twala omonamati naSakima koshipangelo, Sakima a hakulwa omesho ndele ta kala vali ha mona ko.
 
 ##
 * License: [CC-BY]

@@ -4,16 +4,16 @@
 Oshikutu eshi oshile.
 
 ##
-Ombidja ei oinene.
+Ombidja ei oya kula.
 
 ##
-Ondjato ei oyakula.
+Ondjato ei oya kula.
 
 ##
-Omwiya ou ...
+Omwiya ou owa ...
 
 ##
-Embale eli olishona.
+Embale eli olinini.
 
 ##
 Oikamufino ei oixupi.
@@ -22,7 +22,7 @@ Oikamufino ei oixupi.
 Ashike eenghaku edi odipe.
 
 ##
-... onda wanamo nawa.
+... onda wana mo nawa.
 
 ##
 * License: [CC-BY-NC]

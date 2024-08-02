@@ -1,28 +1,28 @@
-# Ondihole okulesha
+# Ondi hole okulesha
 
 ##
-Ondihole okulesha.
+Ondi hole okulesha.
 
 ##
-Olyelye ahala ndimu leshelepo?
+Olyelye a hala ndi mu leshele po?
 
 ##
 Omumwamemekadona okwa kofa.
 
 ##
-Olyelye handi leshelepo?
+Olyelye handi leshele po?
 
 ##
-Meme na Meekulu oveli pyakidila.
+Meme naMeekulu ove li pyakidila.
 
 ##
-Olyelye handi leshelepo?
+Olyelye handi leshele po?
 
 ##
-Tate na tatekulu ovelipyakidila.
+Tate natatekulu ove lipyakidila.
 
 ##
-Olyelye handi leshelepo? Mboli nandi lileshelepo mwene!
+Olyelye handi leshele po? Mboli nandi lileshele po ame mwene!
 
 ##
 * License: [CC-BY]

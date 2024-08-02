@@ -1,46 +1,46 @@
-# Onghoshi yoiti yomundilo
+# Oiti yaNghoshi yokutaka omundilo
 
 ##
-Ehokololo eli ola tameka mefimbo lonale eshi ovanhu noinamwenyo vali valumbakana mokukala. Pefimbo opo omunhu kali ena oufemba womundilo. Okwali hava li oikulya yahawiishu. Onghoshi oyo aike yali ina oufemba womundilo.
+Ehokololo eli ola hovela momafimbo onale eshi ovanhu noinamwenyo va li hava kala pamwe. Pomafimbo enya, omunhu ka li e na oufemba wokulongifa omundilo. Okwa li hava li oikulya yahawiishu. Onghoshi oyo aike ya li i na oufemba womundilo.
 
 ##
-Ovanhu noinamwenyo ovaongala opo vakongepo ondunge imwe. “Otuna okuninga ngahelipi opo tu kufeko omundilo konghoshi opo nafye yoo tukale hatu teleke oikulya yetu?” Osho veli pula. Ovakufa etokolo vateelele fiyo kwatoka ndele tava tameke tava imbi ndele tava imbi, tava pandula noku pandula, tava ifana keshe umwe vaongale. “Ileni tu ndaaniseni. Ileni tundaaniseni. Ileni tundaaniseni.”
+Ovanhu noinamwenyo ova ongala opo va ete po ondungefaneko. "Otu na okuninga ngahelipi opo tu kufe ko omundilo kuNghoshi opo nafye yo tu kale hatu teleke oikulya yetu?" Osho ve lipula. Ova tokola va teelele fiyo kwa toka ndele tava hovele okwiimba nokwiimba, nokupandula omake noku pandula omake, tava ifana keshe umwe a ongale. "Ileni tu ndanisheni. Ileni tu ndanisheni. Ileni tu ndanisheni."
 
 ##
-Oinamwenyo ihapu oye uya okudja moixwa iwaimine ondanisa nondjimbo. Onghoshi oya etelela oiti yayo yomundilo. Oya tikitila oiti, tikitile noku tikitila. Inapakalwa omwifi owa holoka koshi yoiti. Onghoshi oyafudilapo apa tapadi omwifi yoo tai wedapo omwiidi mukukutu. Omalaka omundilo manini okwa holoka ndele keshe umwe ta tulapo oshikuni. Ohalu keshe umwe ota ndanis tadingilile omundilo.
+Oinamwenyo ihapu oya shitutuluka moixwa i waimine ondanisha neendjimbo. Nghoshi okwa etelela oiti yaye yokutaka omundilo. Okwa taka oiti, ta take nokutaka. Divadiva koshi yoiti otaku twima okamwifi. Nghoshi okwa fudila pokamwifi nokuweda po omwiidi wa kukuta. Okamundilo oka tema kanini keshe umwe okwa eta oshikuni. Divadiva keshe umwe ota ndanisha ta dingilile omundilo.
 
 ##
-Ndiba okwali omunamakoto yee oshinamwenyo hasheendele. Ovanhu ovatya kuye, “Manga hatu imbi apa yoo onghoshi tai ndaanisa nafye, ove kufapo oiti yayo yomundilo ndele tofadukapo.” Ineshi pondola shaashi onghoshi oyemukwata ndele tai alulako oiti yomundilo.
+Ndiba okwa li a kotoka ye oha endelele. Ovanhu ova lombwela Ndiba va ti: "Manga fye hatu imbi apa ye Nghoshi ta ndanisha, ove vakula po oiti yaNghoshi yomundilo ndele to faduka po." Ine shi pondola shaashi onghoshi oye mu kwata ndele ta kufa ko oiti yaye.
 
 ##
-Onghoshi ya imba eimbilo tai penya:” Kuame kashina eshi tashiti. Ame nghina oupyadi. ohandi dulu uku kulyapo nolududi, ohandi dulu oku kulyapo uhena olududi. Ame nghina oupyakadi. Nyee amushe oikulya kwaame”
+Onghoshi okwa imba eimbilo tai penya: "Kuame kashi na oshilonga. Ame kandi na oupyakadi. Ohandi dulu oku ku lya po nolududi, ohandi dulu oku ku lya po uhe na olududi. Ame nghi na oupyakadi. Nye amushe oikulya yange."
 
 ##
-Omenye otai dulu oku lotoka noku nuka tayeendelele. Ovanhu osho vemulombwela, Manga Onghoshi taindanisa yoo tai imbi pamwe nafye, ove oto nyangulapo oiti yayo yomundilo ndele tofadukapo.”
+Omenye ohai tondoka nokunhuka tai endelele. Ovanhu ove i lombwela, Manga Nghoshi ta ndanisha ye ta imbi pamwe nafye, ove vakula po oiti yaye yokutaka omundilo ndele to faduka po."
 
 ##
-Omanga vali tava ndanisa voo tavaimbi, Omenye oya nyangulapo oiti yomundilo ndele tainukile momufitu. Nopo nee Onghoshi oyatii, “Omolwashike ndiheudite nande okopa kopa yomakondo Omenye konima yange?” 
+Omanga tava ndanisha vo tava imbi, Omenye oya vakula po oiti yomundilo ndele tai nhukile moixwa. Nopo nee Nghoshi oya ti, "Omolwashike ndihe udite nande okolokoto kopa kopa yomakondo oMenye konima yange?"
 
 ##
-Onghoshi oya tanauka ndele oya mona Omenye tailotoka yayuka momufitu noiti yomundilo. Noponee oya taataa Omenye, okwe ikwata ndele taalukako noiti yaye yomundilo. Natango, Onghoshi oyaimba eimbilo layo lokupenya, 
+Nghoshi okwa tanauka ndele oya mona Omenye tai tondoka ya yuka moixwa noiti yokutaka omundilo. Okwa taataa Omenye, okwe i kwata ndele ta kufa ko oiti yaye yomundilo. Natango, Onghoshi oya imba eimbilo layo lokupenya,
 
 ##
-Nopo nee ovanhu ova nongofolelafana. Tava ti, “Natu pule Mundja. Oye munini yee oha endelele.” “Mundja,” osho vatya, “Manga Nghoshi tandanisa yee taimbipamwe nafye apa, ove oto nyangulapo oiti yaye yomundilo ndele tofadukapo nayo.” 
+Ovanhu ova tameka okunongofolelafana. Tava ti, "Natu pule Mhundja. Oye munini ye oha endelele." "Mhundja," osho va ti, "Manga Nghoshi ta ndanisha fye hatu a imbi naye, ove vakula po oiti yaye yokutaka omundilo ndele to faduka po nayo."
 
 ##
-Manga vali tava ndanisa tava dingilile omundilo, Mundja okwa nyangulapo oiti yomundilo ya Nghoshindele tafadukapo ayuka momufitu.. Ashike Onghoshi oyatya, “Oshike ndiheudite nande Mundja tati tyaa tyaa monima yange ngaashi shito?” Okwa tanauka ndele ta taataa Okapundja oko kali taka ndjobauka kafinda momufitu. Nghoshi okwe mukwata ndele taalikako noiti yaye yomundilo. 
+Manga vali tava ndanisha tava dingilile omundilo, Mhundja okwa vakula po oiti yokutaka omundilo yaNghoshi ndele ta faduka po a yuka momufitu. Ashike Onghoshi oya tya, "Oshike ndihe udite nande Mhundja ta ti tyaa tyaa monima yange ngaashi shito?" Okwa tanauka ndele ta taataa Okapundja oko ka li taka ndjobauka ka finda momufitu. Nghoshi okwe ka kwata ndele ta kufa ko noiti yaye ndele ta alukile komundilo.
 
 ##
-Natango, Nghoshi okwa imba eimbilo laye lokupenya. “Kwaame kashina shilonga. Ohandi dulu oku kulyapo nolududi, ohandi dulu oku kulyapo uhena olududi. Ame nghina oupyakadi. Amushe omuli oikulya kwaame.”
+Natango, Nghoshi okwa imba eimbilo laye lokupenya. "Kwaame kashi na oshilonga. Ohandi dulu oku ku lya po nolududi, ohandi dulu oku ku lya po uhe na olududi. Ame nghi na oupyakadi. Nye amushe oikulya yange."
 
 ##
-“Oh,” ovanhu ovafuda mokule, “Oshinamwenyo shilipi tashidulu oku tukwafela paife?” Omho oyo ina omaulu male edule aeshe, natu mupule.” Ova hokololela Omho omangela ndele tai nyangulapo oiti yomundilo yo Nghoshi oshikando eshi ndele tai fadukapo.
+"Oh," ovanhu ova fuda mokule, "Oshinamwenyo shilipi tashi dulu oku tu kwafela paife?" Omho oyo i na omaulu male e dule etu aeshe, natu i pule." Ova hokololela Omho ondungefaneko nomho oya vakula oiti yokutaka omundilo yaNghoshi oshikando eshi ndele tai fadukapo.
 
 ##
-Nghoshi okwali, “Omolwashike ndiheudite nande vali ewi Lomho tali kwelengedja mokule tayiimbi monima yange?” Okwa tanauka ndele okwa mona Omho ndele tei taataa.
+Nghoshi okwa ti, "Omolwashike ndihe udite nande vali ewi lOmho tali imbi mokule konima yange?" Okwa tanauka ndele okwa mona Omho ndele te i taataa.
 
 ##
-Konima yefimbo, Onghoshi oya aluka noshipala shaloloka, Omho oya lotoka yamanamo imudule. “Okudja tuu nena eli,“osho atya, “Itandi muefa vali. Indian oku kala ndemu konga noku mu taataa ndele handi mulipo!” Apa opo nee padja Onghoshi yaninga omutondi wakeshe umwe novanhu vamona eenghono domundilo. 
+Konima yefimbo lile, Nghoshi okwa aluka noshipala sha loloka, Omho oya tondoka onhapo yoshidudu ya mana mo i mu dule. "Okudja tuu nena eli," Nghoshi ta ti, "Itandi mu efele vali emanguluko Ondi na okukala handi mu taataa, ndele handi mu li po!" Apa opo nee pa dja Onghoshi ya ninga omutondi wakeshe umwe novanhu va mona eenghono dokulongifa omundilo.
 
 ##
 * License: [CC-BY]

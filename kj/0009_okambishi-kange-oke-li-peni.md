@@ -1,19 +1,19 @@
-# Okambishi Kange okeli peni?
+# Okambishi kange oke li peni?
 
 ##
-Okambishi kange okeli peni?
+Okambishi kange oke li peni?
 
 ##
-Okeli koshi yombete?
+Oke li koshi yombete?
 
 ##
-Oke li kombada yosikopa?
+Oke li kombada yoshikopa?
 
 ##
 Oke li konima yoshipundi?
 
 ##
-Oke li polwaamba londoloma yoimbodi?
+Oke li polwamba nondoloma yoimbodi?
 
 ##
 Oke li moshimbaba?
@@ -22,7 +22,7 @@ Oke li moshimbaba?
 Oke li pondje yeumbo?
 
 ##
-Oko aka keli apa!
+Oko aka ke li apa!
 
 ##
 * License: [CC-BY-NC]

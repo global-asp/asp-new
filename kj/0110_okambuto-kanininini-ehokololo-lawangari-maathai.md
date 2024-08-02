@@ -1,40 +1,40 @@
-# Okamuma kombuto: Ehokololo la Wangari Maathai
+# Okambuto kanininini: Ehokololo laWangari Maathai
 
 ##
-Momukunda uli woikulundudu ili popepi nondudu Mount Kenya mo Africa, omwali muna okaana kokakadona kali haka longo mepya nameme wako. Edina lako olali Wangari.
+Momukunda u li moikulundudu i li popepi nondudu Mount Kenya moushilo waAfrica, omwa li mu na okakadona kanini oko ka li haka longo naina momapya. Edina lako Wangari.
 
 ##
-Wangari okwali ehole okukala pondje. Mepya lambulavo okwali hapapula edu netemo laye. Oha fudike nee eembuto yee tedi fufile medu olo lalongwa nawa.
+Wangari okwa li e hole okukala pondje. Okwa li ha papula okakunino kavo netemo, ndele ta kunu oumbuto vaninini medu la pupyala.
 
 ##
-Okwali ehole efimbo letango laningina. Ngeenge omulaulu weya Wangari okwali ashiiva nawa kutya oshaninga efimbo lokuya keumbo. Oha lambe okandjila oko kali kafinana kapita momapya yee taka tauluka omulonga.
+Efimbo olo kwa li e hole, openingino letango, hano eshi taku wiwile. Ngeenge okwa laula noimeno ke i wete vali, ye opo ta dimbulukwa oku ya keumbo. Oha lambalala okandjila kokeemhadi oko kafinana ka tavakana momapya ye ta ka tauluka okamomholonga ndele tai keumbo.
 
 ##
-Wangari okwali okaana okanandunge nokwali ahala okuya kofikola. Ashike meme waye na tate waye okwali vahala akale peumbo akale teva yakula. Eshi awanifa eedula heyali, umwe womo vamwainamati okwa indila ovakulunhu vavo vapitike okamwainakadona katameke ofikola.
+Wangari okwa li okaana okanandunge noka li ka hala nokuhalelela okuya kofikola. Ashike ina naxe okwa li va hala a kale peumbo te va yakula. Eshi a wanifa eedula heyali, omovamwainamati ou womukulunhu okwa indila ovakulunhu vavo va pitike Wangari a ka hovele ofikola.
 
 ##
-Okwali ehole oku lihonga! Wangari okwe lihonga oinima ilili nakulili momambo aa alesha. Okwali hapiti nawa mofikola naashi oshemu pefa omhito opo aye ekelihonge koshilongo "United State of Amemerica". Wangari okwali ahafa unene! Okwali ahala oku shiiva shihapu kombings younyuni.
+Okwa li e hole okulihonga! Wangari okwe lihonga oinima i lili noku lili membo keshe ta lesha. Okwa li ha piti nawa mofikola naashi oshe mu pefa omhito opo a ye e ke lihonge koshilongo koAmerica. Wangari okwa li a hafa neenghono! Okwa li a hala okushiiva shihapu kombinga younyuni.
 
 ##
-Ko University yoko America Wangari okwe lihongako oinima i hapu. Okwe lihonga yoo numbi oimeno hai kunwa nopo nee okwa dimbuluka nghee akula okudja kounona waye: hadanauka pamwe novamwainamati momidile domiti momufitu wa Kenya.
+MoUniversiti yokoAmerica Wangari okwe lihonga ko oinima ihapu. Okwe lihonga oimeno nonhumbi hai kulu. Okwa dimbuluka yo nghee a putuka okudja kounona waye: ha danauka pamwe novamwainamati momidile diwa domiti momifitu daKenya.
 
 ##
-Eshi tuu telihongosha yee tashiiva oinima ihapu yee ohole yoshilongo shaye Kenya nayo otai kulu. Okwali ahala oku kala ena ehafo yee okwa manguluka. Eshi tuu teli hongosha shihapu yee ota kwatwa kodjuulufi yokeumbo lavo ko Africa.
+Opo pe fike eshi te lihonga shihapu, opo yo pe fike okuxwama mohole yokuhola ovanhu vomoshilongo shaye Kenya. Okwa hala va kale va hafa nova manguluka. Eshi tuu te lihongo sha shihapu ye ota kwatwa kodjuulufi yokeumbo lavo koAfrica.
 
 ##
-Eshi amana elihongo laye okwa shuna ko Kenya. Ashike okwali ahanga oshilongo shalunduluka. Mwaningwa eefaalama dakambako oitukulwa inene. Ovakulukadi kavali vena apa tava hange oikuni yoku teleka. Ovanhu okwali vanyika oluhepo nounona okwali tavafi ondjala.
+Eshi a mana elihongo laye okwa shuna koKenya. Ashike okwa hanga oshilongo sha lunduluka. Mwa ningwa eefaalama da kamba ko oitukulwa inene. Ovakulukadi kave na vali apa tava tyava oikuni yokuteleka. Ovanhu okwa li va nyika oluhepo nounona okwa li tava fi ondjala.
 
 ##
-Wangari okwali enapo ondunge faneko kutya naninge ngahelipi. Okwa longa ovakulukadi nghee vena oku kuna omiti tava longifa eembuto. Ovakulukadi ova tameka okulandifa omiti noku limonena sha vafile nasho oshisho omaumbo avo. Ovakulukadi okwali vahafa neenghono.
+Wangari okwa li e na po ondungefaneko kutya ota ningi ngahelipi. Okwa longa ovakulukadi nghee ve na okukuna omiti. Ovakulukadi ova tameka okulandifa omiti nokulimonena oshimaliwa nokufila nasho oshisho omaumbo avo. Ovakulukadi okwa li va hafa neenghono. Wangari e va kwafa va kale ovapondoli novanaenghono.
 
 ##
-Konima yefimbo, omiti odakula ndele tadi ningi omifitu, nomilonga oda tameka vali tadi kunguluka. Etumwaaka la Wangari ola tandavela noAfrica aishe. Konena ngaha, omwaalu muhapu weemiliyona domiti odamena dadja mombuto ya Wangari.
+Konima yefimbo, omiti odo da kunwa oda kula ndele tadi ningi eefuka, nomilonga oda tameka vali okukunguluka. Etumwalaka laWangari ola tandavela noAfrica aishe. Monena eemiliyona domiti oda mena da dja moumbuto vaWangari.
 
 ##
-Wangari okwali halongo noudiinini. Ovanhu aveshe mounyuni okwali veshii oilonga yaye ove ididilika ndele tave mupe epapa lefimakeno. Epapa hali ifanwa "Nobel Peace Prize," oye ali omukainhu wotete womu Africa telipewa.
+Wangari okwa longo noudiinini. Ovanhu aveshe mounyuni ova didilika oilonga yaye nokwa pewa epapa lefimaneko. Epapa hali ifanwa "Nobel Peace Prize," oye a li omukainhu wotete wOmuafrika te li pewa.
 
 ##
-Wngari okwa xulako momudo 2011. Ashike ohatu kala alushe noku mudimbuluka alushe ngeenge hatu tale ewapalo lomiti.
+Wangari okwa fya momudo 2011. Ashike ohatu kala alushe noku mu dimbulukwa alushe ngeenge hatu tale ewapalo lomiti.
 
 ##
 * License: [CC-BY]

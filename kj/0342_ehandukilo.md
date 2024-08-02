@@ -1,40 +1,40 @@
 # Ehandukilo
 
 ##
-Efiku limwe meme okwa etelelela oyiimati ihapu.
+Efiku limwe meme okwa etelelela oiimati ihapu.
 
 ##
-"Onaini hatu pewa oyiimati?" hatu pula. "Oyiimati ohatu i li nena konguloshi," meme tati.
+"Onaini hatu pewa oiimati?" osho twa pula. "Oiimati ohatu i li nena konguloshi," meme osho a ti.
 
 ##
-Omumwamememati Rahim oku hole okulya. Okwa makela omaludi aeshe oyiimati. Okwa lyapo oyiimati ihapu.
+Omumwamememati Rahim omufukedi. Okwa lola omaludi aeshe oiimati. Okwa lya po oiimati ihapu sha pitilila.
 
 ##
-"Tala eshi Rahim alonga!" Okamwamememati taka ingida."Rahim kuna omhepo yokulihole mwene yee omufifiti," osho ndati.
+"Tala eshi Rahim a longa!" Okamwamememati osho ka ingida. "Rahim oku na omhepo yokulihola mwene yee omufifiti," osho nda ti.
 
 ##
-Meme okwa handukila Rahim.
+Meme okwa li a handukila Rahim.
 
 ##
-Nafye otwa nyematela Rahim. Ashike Rahim yee kena apa eudite.
+Nafye okwa li twa nyematela Rahim. Ashike Rahim ka li e na ko nasha.
 
 ##
-"Hano Rahim itapewa ehandukilo?" okamwamememati takapula.
+"Rahim ita pewa ehandukilo?" okamwamememati taka pula.
 
 ##
-"Rahim, meni lokafimbo kanini ouna okukala welietela onghenda," meme talondwele.
+"Rahim, ou na okuutola mo nena eli," meme osho a ti nokunghulilo.
 
 ##
-Rahim okwa tameka eheudite nawa.
+Rahim okwa tameka ehe udite nawa.
 
 ##
-"Edimo lange otaliyehama," Rahim tanongofola.
+"Edimo lange otali vele," Rahim osho a nongofola.
 
 ##
-Meme okwa kala eshishi kutya oshina oku muhanga. Ehandukilo loyiimati olahanga Rahim!
+Meme okwa kala e shishi kutya oshike shi na oku mu hanga. Oiimati ei a lumbakanifa oi na oku mu kufa oufifiti oo!
 
 ##
-Lwanima, Rahim okwe tupa ombili. " Nghina vali efiku ndike shihetekele," osho audaneka. Otwa itavela osho etulombwela.
+Lwanima, Rahim okwe tu pa ombili. "Nghi na vali fiku ndi kale omufukedi ngaha," osho a udaneka. Atushe otwa itavela osho e tu lombwela.
 
 ##
 * License: [CC-BY]

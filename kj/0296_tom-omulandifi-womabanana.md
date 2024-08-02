@@ -1,40 +1,40 @@
 # Tom omulandifi womabanana
 
 ##
-Tom ohahumbata oshihumbatelo shomabanana apya.
+Tom okwa humbata oshihumbatelo shomabanana a pya.
 
 ##
-Tom ohaka landifa omabanana komalandifilo.
+Tom oha ka landifa omabanana komalandifilo.
 
 ##
-Ovanhu komalandifilo otava lande oyiimati.
+Ovanhu pomalandifilo otava lande oiimati.
 
 ##
-Ashike kapali nande oumwe talande omabanana a Tom.
+Ashike kapa li nande oumwe ta lande omabanana a Tom. Ova hoolala okulanda kovakulukadi.
 
 ##
-"Momudingonoko wetu ovakainhu ovo aveke hava landifa oyiimati" ovanhu tavati. "Omulumenhu ou okwatya ngahelipi?" ovanhu tava pula.
+"Momudingonoko wetu, ovakulukadi ovo aveke hava landifa oiimati" vamwe osho va ti. "Omulumenhu washike ta landifa oiimati?" vamwe yo tava pula.
 
 ##
-Ashike Tom inateka nande omukumo. Taingida, "lilandela omabanana! lilandela omabanana apya nawa omulyo kamana!"
+Ashike Tom ina teka nande omukumo. Ta ingida, "Landa omabanana ange! Landa omabanana ange a pya nawa omulyo kamana!"
 
 ##
-Omukulukadi umwe okwa yambulamo okapandi komabanana moshuumbatelo. Okwa nongonona nawa omabanana.
+Omukulukadi umwe okwa kufa mo okapandi komabanana moshihumbatelo. Okwa konakona nawa omabanana.
 
 ##
 Omukulukadi okwa landa omabanana.
 
 ##
-Ovanhu vahapu ove uya kofitola. Ovalanda omabanana ku Tom ndele tave alipo.
+Ovanhu vahapu ove uya kokatala. Ova landa omabanana kuTom ndele tave a li po.
 
 ##
-Meni lefimbo lixupi oshihumbatelo oshapwa nale nokuli. Tom okwa tameka oku valula oimaliwa yaye ei amonamo.
+Meni lefimbo lixupi oshihumbatelo osha pwa nale nokuli. Tom okwa tameka okuvalula oimaliwa yaye ei a mona mo.
 
 ##
-Konima, Tom okwa landa ofewa, osuuka no mboloto. Okwa tula oinima aishe moshihumbatelo.
+Konima, Tom okwa landa ofewa, osuuka nomboloto. Okwa tula oinima aishe moshihumbatelo.
 
 ##
-Tom okwa ya keumbo ahumbata oshihumbatelo komutwe.
+Tom okwa ya keumbo a humbata oshihumbatelo komutwe e shi efela ko.
 
 ##
 * License: [CC-BY]

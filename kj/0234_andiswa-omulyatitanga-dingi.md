@@ -1,28 +1,28 @@
-# Andiswa omulyati tanga dingi
+# Andiswa omulyatitanga dingi
 
 ##
-Andiswa okwa kala ta tale ounona voumati tava lyata okatanga kokeemhadi. Okwali telipula kutya ngeno okwali tashi shiiva ngeno naye ote vawaimine. Okwapula omuyandji mayele woudano ngeenge naye ota dulu okulideula pamwe navo.
+Andiswa okwa kala ha tale oumati tava dana etanga lokeemhadi. Okwa li e na ehalo e ka va waimine moudano. Okwa pula omudeuli wavo woudano ngeenge ota dulu okulideula pamwe navo.
 
 ##
-Omuyandji mayele telipula nonghume elikwete peenho. "Pofikola apa ounona voumati ovo ashike vapitikwa vadanauke okatanga kokeemhadi". Osho atya.
+Omudeuli e likwete peenho. "Pofikola apa ovamati ovo ashike va pitikwa okudanauka etanga lokeemhadi," osho a ti.
 
 ##
-Ounona voumati ovemu lombwela aye akadanauke etanga lomokambaba. Ovemu lombwela kutya etanga lomokambamba olo loukadona ofimbi eli lokeemhadi olovamati.
+Ovamati ove mu lombwela a ye a ka danauke etanga lomokambaba. Ova ti etanga lomokambaba olo loukadona ofimbo eli lokeemhadi olovamati. Andiswa okwa li a uda nai.
 
 ##
-efiku la landulako , Ofikola okwali yalongekida omafiyafano oudano wokatanga kokeemhadi. Omuyandji mayele okwali alimbililwa shaashi omudanauki dingi waye okwali tavele nokali tadulu oku danauka.
+Efiku la shikula ko, ofikola okwa li ya longekida omafiyafano oudano wokatanga kokeemhadi. Omudeuli okwa li a limbililwa, shaashi enyakwa laye dingi okwa li tali vele noka la li tali dulu okudanauka.
 
 ##
-Andiswa okwa lotokela komuyandji mayele ndele temu indile emupitike adanauke. Omuyandji mayele ewete kutya naninge ngahelipi. Okwa tokola apitike Andiswa a waimine oshipana moudano.
+Andiswa okwa lotokela komudeuli ndele te mu pula epitikilo a danauke. Omudeuli ka li e shii osho e na okuninga. Okwa tokola a efe Andiswa a danauke.
 
 ##
-Oudano okwali wa djuupala. Kapali nande ombinga imwe yatulamo okoola foyo vaya pokafudo.
+Oudano okwa li wa kindja. Kapa li nande oumwe a tula mo okoola fiyo va ya pokafudo.
 
 ##
-Konima eshi vaaluka pokafudo okamati kamwe okapa Andiswa etanga. Okwa endelela ayuka ko koola. Okwa lyata etanga ndele tatulamo okoola.
+Konima eshi va dja pokafudo omumati umwe okwa pa Andiswa etanga. Okwa endelela a yuka nalo kokoola. Okwa lyata etanga neenghono, ndele ta tula mo okoola.
 
 ##
-Engungo lovatali olali lanyakukwa neenghono.Okudja efiku olo oukadona ovapitikwa vakufe ombinga mokatanga kokeemhadi pofikola.
+Engungo lovatali ola li la nyakukwa neenghono. Okudja kefiku tuu olo oukadona ova efwa va kufe ombinga mokatanga kokeemhadi pofikola oyo.
 
 ##
 * License: [CC-BY-NC]

@@ -1,40 +1,37 @@
 # Onghone yomuuliki womaadi eenyiki
 
 ##
-Eli ehokololo ta lipopi okadila Ngede voo nomulumenhu omunalwisho wedina Gingile.
-Efiku limwe Gingile okwali aya koukongo, okwa uda ewi lokadila Ngede oko keshi apa hapa kala eenyiki. Gingile moku uda ewi eli okwali ta yeya mokudilaadila ounyenye womaadi eenyiki. Okwa kanghama ndele ta pwilikine noukeka, yee ta kongo fiyo a mona kutya okadila keli moitayi yomuti pombada yomutwe waye. " Tyiki- tyiki, tyiki-tyiki" okadila okwali taka ingida mokule eshi ta ka tuka ka yuka komiti da landulafana. "Tyiki-tyiki,Tyiki-tyiki" ota ka ende ka yuka komesho ta ka sheketa efimbo nefimbo, koo haka kanghama taka konene katale ngeenge Gingile okwa shikulamo ngoo.
+Eli ehokololo tali popi kombinga yokadila Ohole omuuliki womaadi eenyiki nomulumenhu womunyasha nomunalwisho wedina Gingile. Efiku limwe Gingile manga a li a ya koukongo, okwa uda ewi lokadila Ohole oko ke shi apa hapa kala eenyiki. Gingile mokuuda ewi eli okwa li ta yeya mokudiladila ounyenye womaadi eenyiki. Okwa kala ofika ndele ta pupu nokupwilikina noukeka, ye ta lengalenga nokukonga okadila fiyo ote ka mono ke li moitai yomuti pombada yomutwe waye. "Tyiki-tyiki, tyiki-tyiki" okadila kanini okwa li taka sheketa mokule, eshi taka tuka okudja komuti umwe ka yuka komuti mukwao. "Tyiki-tyiki, Tyiki-tyiki" osho taka ifana, ko taka nambele po kanini taka shilipaleke kutya Gingile okwa shikula mo ngaho.
 
 ##
-Konima yetata lovili,ova fika pomukwiyu wa kula. Ngede okwali ta nhuka teli nyoo moitayi yomukwiyu. Okwa kanghama koshitayi shimwe ndele ta komona komutwe oku londwela kutya ova fika pelonga leenyiki. Okwali eudite Gingle ta ende kashona. Ashike Gingile kali eweteko eenyiki koshi yomuti nande ali ena elineekelo muNgede.
+Konima yetata lovili, ova fika pomukwiyu wa kula. Ohole okwa li ta ndjobauka moitai yomukwiyu. Okwa nambela koshitai shimwe, ndele ta komona komutwe ongo ta lombwele Gingile ta ti: "Omaadi oo aa! Ila paife! Omolwashike tashi ku pula efimbo lile? Gingile ka li e wete nande onyiki imwe koshi yomuti okwa li ashike e na elineekelo muOhole.
 
 ##
-Gingile okwa tula outa waye pedu koshi yomuti , ta ongele ouxwapata ndele ta tema omundilo.Eshi omundilo wa xwama okwa tula oshiti shikukutu shile mokati komundilo wa yaka . Oshiti eshi oshishiivike nawa shaashi oha shi u ndumuka omwifi ngeenge ta shipi. Okwa londa komuti a humbata oshiti nomayoo, koxulo yoshiti oku ina kuya momundilo.
+Gingile okwa tula eonga laye poshi koshi yomuti, ta ongele outi vouxwapata ndele ta tema omundilo. Eshi omundilo wa xwama okwa tula oshiti shikukutu shile mokati kediko lomundilo wa yaka. Oshiti eshi oshi shiivike nawa, shaashi ohashi lundumuka omwifi uhapu ngeenge tashi pi. Okwa londa osho komuti, e shi humbata nomayoo, kombingo yoshiti oko ku na omundilo.
 
 ##
-Opo elipo, oku udite eweelelo leenyiki ta di ingaana eshi ta di tuka. Eenyiki okwali tadi ingaana unene dimwe ota di diko doo dimwe ota di shuna komututu oko kuna omaadi. Eshi Gingile a fika opo pena elonga okwa undulilamo oxulo yoshiti oko kuna omwifi komututu. Enyiki oda djako meendelelo ta di ingaana da handuka nokuhandukilila. Oda tuka ko komututu tadi fadukapo omwifi shaasshi ka di hole omwifi. Ashike manga ina di tukapo oda lya nokufiiila Gingle eehengo dado.
+Divadiva, oku udite omuumo weenyiki tadi ingaana eshi ta di tuka. Eenyiki okwa li de lipyakidila dimwe otadi di ko komututu do dimwe otadi shuna komututu oko ku na eshila lomaadi eenyiki. Eshi Gingile a fika opo pe na eshila lomaadi eenyiki, okwa xwela ko oxulo yoshikuni osho tashi twimaana omwifi komututu. Enyiki oda dja ko komututu meendelelo tadi ingaana da handuka nokupindjala. Oda tuka ko komututu tadi faduka po shaashi ka di hole omwifi. Ashike manga inadi ya onhapo oda lya nokufiila Gingile eehengo da wana notadi luluma.
 
 ##
-Eshi eenyike da yaa, Gingle okwa ya meshila leenyiki neenyala daye ndee ta
-
- dimo nomaadi eenyiki amwe okwali ta a shisha keenyala. Okwa tula eshila lomaadi eenyiki momhunda oyo kwali a humbata komapepe aye ndee ta londolokako komuti.
+Eshi eenyiki da dja mo, Gingile okwa ya komututu neenyala daye ndee ta kufa mo oifima nomashila omaadi eenyiki oo okwa li taa shisha keenyala. Okwa tula omashila omaadi eenyiki momhunda oyo kwa li a humbata komapepe aye ndee ta londoloka ko komuti.
 
 ##
-Ngede okwali ta tale nokukonenena ashishe osho shali ta shi ningwa ku Gingile. Yee okwali a teelela Gingile e mufiilepo omaadi onga olupandu. Ngede okwali ta nhuka noitayi eshi ta londoloka a yuka pedu lomuti. Ngede okwali ta shomona kemanya lili popepi nokamati aka Gingile, a teelela olupandu laye.
+Ohole okwa li ta tale nokukonenena ashishe osho sha li tashi ningwa kuGingile. Ye okwa li a teelela Gingile e mu fiile po omaadi ongolupandu komuuliki weenyiki. Ohole okwa li ta nhuka noitai okudja kushimwe a yuka kushikwao e li moihaindje yomuti. Gingile eshi ta londoloka nokwa fika pedu lomuti. Ngede okwa li ta shomona kemanya li li popepi nokamati aka Gingile, a teelela olupandu laye.
 
 ##
-Ashike Gingle okwa dima ashike omundilo , ta kufapo eonga laye ndele ta ende a shune keumbo, te lidimbike okadila. Ngede okwa tameka nokusheketa mokule tati " VIK-too, VIK-too"!. Gingle okwa okwa kala ofika ndee ta kanghama ta tale yee ta nhongonona okadila , ndele ta yolo mokule. Okwa pula oka dila tatii " hano owa hala omaadi eenyiki kaume kange?" Ha!(Gingile ta yolo) ame ashike nda longa oilonga aishe navali ame ndalika keenyiki. Omolwashike mbela tuna oku topolelafana omaadi aa eenyiki mawa mawa ngaha? Ngigile mokupula ngaho okwa ya. Ngede okwali a handuka unene. Okwali eudite kutya Gingile ita dulu oku ninga nai ngaho. Okwe mu kwatela onghone onghene naye okuna oku mu ningilasha shii.
+Ashike Gingile okwa dima ashike omundilo, ta toola po eonga laye ndele ta ende a shune keumbo, noina pupa ko nande okadila. Ngede okwa tameka nokusheketa mokule ta ti "VIK-too! VIK-too!" Gingile okwa kala ofika ta tale ye ta nongonona okadila, ndele ta yolo mokule. Okwa pula okadila ta ti "Hano owa hala omaadi eenyiki kaume kange? Ha! Gingile ta yolo ashike aame nda longa oilonga aishe navali ame onda lika keenyiki. Omolwashike mbela tu na oku tukulilafana omaadi aa eenyiki mawa mawa ngaha? Gingile mokupula ngaha okwa ya. Ohole okwa li a fita po neenghono. Okwa li e udite kutya Gingile ita dulu oku mu ninga nai ngaho. Okwe mu kwatela onghone onghene naye oku na oku mu ningila sha shii.
 
 ##
-Konima yoivike ihapu, Gingile okwa uda ewi la Ngede te mu u fanene omaadi eenyiki. Ewi ole mudimbulikifa omaadi eenyiki oo manyenye nokwa kwata kohokwe yoku landula okadila natango. Konima eshi Gingile a kala noku landula mo , Ngede okwa tokola a fudepo koshi yeno lakula. "Ahhaaa" Gingile ta dilaadila . " eenyiki opo dina oku kala dili apa, odina oku kla dili momuti omu." Okwa endelela a shakale omundilo waye ndee ta tameke oku londa komuti, noshikuni shomwifi sha humbatwa nomayoo. Ngede okwali eli omutumba ta nongonona noukeka.
+Konima yoivike imwe imwe, Gingile okwa uda ewi laOhole te mu ifanene omaadi eenyiki. Ewi ole mu dimbulukifa omaadi eenyiki manyenye nokwa kwata kohokwe yokushikula okadila aka natango. Konima eshi Gingile a kala nokushikula mo, konima eshi Ohole a twalatwala Gingile konghulo nomufitu, okwa tokola okufuda po ndele ta nambele koshi yengade leno la kula. “Ahh" Gingile ta diladila. "Eenyiki opo di na okukala di li apa, odi na okukala di li momuti omu." Okwa endelela a shakale omundilo waye ndee ta tameke okulonda komuti, noshikuni shomwifi sha humbatwa nomayoo. Okadila Ohole okwa li e li omutumba te mu tale nawa.
 
 ##
-Gingile okwa londa ashike okwali ena omalimbililo molwaashi ka kwali nande eudite eenyiki ta di duma. " Shiimba eshila leenyiki olili moule womuti. oshso a dilaadila". Okwa twikila okulonda a yuka koshitayi shimwe shomuti. Ashike ponhele yokumona eenyiki, okwe hanga a tala moshipala shetotongwe. Etototngwe okwali la handuka neenghono molwaashi ola piyaanekelwa eemhofi. Etotongwe fifikinifa omesho alo kashona ndee ta li akameke okanya ta li eta kombada omayoo oo akula oo okwa honga neenghono.
+Gingile okwa londa ashike okwa li a limbililwa molwaashi kakwa li nande e udite eenyiki tadi duma. "Shiimba eshila leenyiki oli li pombada pokule. Osho a diladila." Okwa twikila okulonda kouxulonyono woshitayi shimwe shomuti. Ashike ponhele yokumona eenyiki, okwa haluka eshi ve lidenga oipala mumwe netotongwe lekadi. Etotongwe okwa li la handuka neenghono molwaashi ola nyonenwa eemhofi dalo. Etotongwe ola fifikinifa omesho alo kanini ndee tali akameke okanya kalo ka pwa ko tali kenya omayoo makula a honga neenghono.
 
 ##
- Etotongwe nande kwali la hala oku nhukila Gingile ina lidula vali shaashi okwa nhukako komuti. Molwwasho okwali ta nhuka ta endelele okwa palufa oshitayi shimwe ndee te lidengepo neenghono, ta fonghoka pokapando. Okwa ya ta shongoloka ta endelele. OKwali ena elao shaashi etotongwe okwali la fya eemhofi unene, ndele kakwali nokuli ta li dulu oku mu taataya. Ngede omukongi womaadi eenyiki shunifila Ngede onghone yaye. Gingile okweli honga oshilongwa.
+Etotongwe, manga inali mu nhukila, Gingile divadiva okwa londoloka ko komuti. Molwokweendelela kwaye okwa ponya oshitai opo a li e na okulyata. Okwa wa ko komuti ndee te lidenge poshi. Ta fonghoka pokamhando. Okwa ya ta shongoloka ta endelele. Lao linene, etotongwe okwa li la fya eemhofi unene, nokakwa li nokuli tali dulu oku mu taataa. Ohole omuuliki womaadi eenyiki e likufa onghone yaye, naGingile okwe lihonga oshilongwa.
 
 ##
-Okudja opo eshi ounona va Gingile va uda ehokololola laNgede ova tameka oku fimaneka okadila aka kashona. Ngeenge ta va likola omaadi eenyiki okwali hava shilipaleke kutya ova fillapo okadila aka omaadi a wana.
+Ovana vaGingile eshi va uda ehokololola laOhole ova tameka okufimaneka okadila aka kanini. Ngeenge tava likola omaadi eenyiki okwa li hava fi oshisho kutya ova filla po okadila aka omaadi a wana.
 
 ##
 * License: [CC-BY]

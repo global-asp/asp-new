@@ -1,52 +1,52 @@
 # Etokolo
 
 ##
-Omukunda wange ouna omaudjuu mahapu. Ohatu kala momikweyo dile ngeenge twaka teka omeva kokapomba kamwe akeke oko tuna.
+Omukunda wange omu na omaudjuu mahapu. Ohatu kala momikweyo dile ngeenge twa ka teka omeva. Okapomba oko, oko akeke oko tu na momukunda wetu.
 
 ##
-Ohatu kala twa teelela eeshali doikulya tweipewa kovafinghenda.
+Ohatu kala twa teelela oikulya yeeshali twe i pewa kovafinghenda.
 
 ##
-Ohatu lipatele momaumbo etu kuyele omolwa eembudi.
+Ohatu pate momaumbo etu kuyele omolweembudi.
 
 ##
-Ounona vahapu ovafiyapo ofikola.
+Ounona vahapu ova fiya po ofikola.
 
 ##
-Ounona voukadona vepupi lopokati ohava longo onga ovanailonga vomomaumbo komikunda dimwe.
+Ounona voukadona ohava longo ongovanailonga vomomaumbo komikunda dimwe.
 
 ##
-Ounona voumati ohava endaula oipwaendo manga vakwao hava longo komapya ovanhu vamwe.
+Ounona voumati ohava endaenda oipwaendo manga vakwao hava longo momapya ovanhu vamwe.
 
 ##
-Ngeenge omhepo yapepe, oimbodi yeembapila ohai kala yahakela komiti nokomaluumbo eedalate.
+Omhepo ngeenge ya pepe, oimbodi yeembapila ohai kala ya hakela komiti nokomaluumbo eedalate.
 
 ##
-Luhapu ovanhu ohava tetwa koitandu yomakende oyo yaekelwashi nouhasha.
+Luhapu ovanhu ohava tetwa koitandu yomakende oyo ya ekelwashi nouhasha.
 
 ##
-Fikulimwe okapomba okwali kakukuta itakadi omeva shoovali oikwatelwa yetu yomeva nayo oyali yapwa.
+Fikulimwe okapomba okwa li ka pata itaka di omeva yo vali oikwatelwa yetu yomeva nayo okwa li ya pwa.
 
 ##
-Tate okwa enda eumbo neumbo tashivi ovanhu koshoongalele shomukunda.
+Tate okwa enda eumbo neumbo ta shivi ovanhu koshoongalele shomukunda.
 
 ##
-Ovanhu ova ongala momuti umwe wakula vapwilikine etumwalaka.
+Ovanhu ova ongala momuti umwe wa kula va pwilikine etumwalaka.
 
 ##
-Tate okwafikama ndele tatii, "Otwa oumbweni okulongela kumwe mekandulepo lomukundu ou"
+Tate okwa fikama ndele ta ti, "Otwa pumbwa okulongela kumwe mekandulepo lomikundu detu."
 
 ##
-Juma weedula hetatu oo ali omutumba koshitayi shomuti okwaingida, "Ame ohandi dulu oku kwafela shinasha newapaleko".
+Juma weedula hetatu oo a li omutumba kendangalati lomuti okwa ingida, "Ame ohandi dulu okukwafela kombinga yewapaleko."
 
 ##
-Omukulukadi umwe okwatya, "Ovakulukadi otava dulu oku waiminange tukalonge oikulya".
+Omukulukadi umwe okwa ti: "Ovakulukadi otava dulu oku waimina nge tu ka longe oikulya."
 
 ##
-Omushane umwe okwa fikama ndele tati, "Ovalumenhu ohatu kaxupa ondungu".
+Omushamane umwe okwa fikama ndele ta ti: "Ovalumenhu ohatu ka xupa ondungu."
 
 ##
-Atushe otwa ingida newi limwe, "Otwapumbwa tulundulule eenghalamwenyo detu" Okudja efiku olo otwa tameka okulongela kumwe mokukandulapo omikundu.
+Atushe otwa ingida newi limwe, "Otwa pumbwa tu lundulule eenghalamwenyo detu." Okudja efiku olo otwa tameka okulongela kumwe mokukandula po omikundu detu.
 
 ##
 * License: [CC-BY]

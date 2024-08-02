@@ -4,16 +4,16 @@
 Omutima wange ohau holola omaliudo mahapu.
 
 ##
-Oha ndi kala ndi udite ehafo ngeenge meekulu tetu lombwele omahokololo efimbo loknguloshi.
+Ohandi kala ndi udite ehafo ngeenge meekulu te tu hokolole omahokololo efimbo lokonguloshi.
 
 ##
-Oha ndi ngwangwana ngeenge handi danauka nookaume kange.
+Ohandi kala ndi wete nda nyika oulai ngeenge handi danauka nookaume kange.
 
 ##
-Oha ndi kala ndi udite nai ngeenge tate tati kena oimaliwa.
+Ohandi kala ndi udite nai ngeenge tate ta ti ke na oimaliwa.
 
 ##
-Oha ndi kala ndi udite ohole ngeenge meme ta papatelenge.
+Ohandi kala ndi udite ohole ngeenge meme ta papatele nge.
 
 ##
 * License: [CC-BY-NC]

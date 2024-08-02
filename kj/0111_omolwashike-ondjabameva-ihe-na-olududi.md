@@ -1,28 +1,28 @@
-# Omolwashike ondjabameva ihena olududi
+# Omolwashike ondjabameva ihe na olududi
 
 ##
-Fikulimwe okandiba okwali taka ende taka kunghula nomulonga.
+Fikulimwe okandiba okwa li taka ende komunghulo womulonga.
 
 ##
-Ondjabameva nayo opo yahangwa tai pashiyona yoo tai li oumwiidi vayo venya vatalala nawa.
+Ondjabameva nayo oya hangwa tai endaenda yo tai li omwiidi wa hapa nawa.
 
 ##
-Ndjabameva kali ewete kutya kandiba naye opo eli, ohaluka okwe mulwatela pedu ekasha laye. Kandiba okwa tameka nee tayaayaana, Ndjabameva ove! Kuwete nande kutya owa lyatela pedu ekasha lange?"
+Ndjabameva ina mona kutya Kandiba naye opo e li ponhele oyo, ohaluka okwa lyata Kandiba kekasha lako. Kandiba okwa tameka ta ingida, Ove Ndjabameva! Ku wete hano kutya owa lyata nge?"
 
 ##
-Ndjabameva tayandje ombili, "Ombili inandi kumona, diminengepo!"Ashike Kandiba kali ahala oku pwilikina nokwa ula Ndjabameva kutya, "Oweshiningila owina! Fikulimwe ouna ashike oku talela! Ouna okukala wafuta!
+Ndjabameva ta yandje ombili, "Ombili inandi ku mona. Dimine nge po!" Ashike Kandiba ka li a hala okupwilikina notambula ombili. Okwa ingida Ndjabameva ta ti:, "Owe shi ningila owina! Ou na ashike okutalela mulimwe lomomafiku! Ou na okufuta!"
 
 ##
-Kandiba okwa kakonga omundilo ndele tati, "Inda uka telamene Ndjabameva ove umuxwike ngeenge adimo momeva eshi teya okulya omwiidi. Okwa lyatange komhadi! Omundilo owanyamukula, "Kapena oudjuu opo, Kandiba kaume kange. Ohandi shiwanifapo ngaashi toshipula."
+Kandiba okwa ka konga Mundilo ndele te mu lombwele ta ti, "Inda u ka xwike Ndjabameva ngeenge a di mo momeva eshi te uya komutunda a lye omwiidi. Okwa lyata nge! "Kape na oupyakadi opo, kaume kange Kandiba, ohandi shi ningi ngaashi wa pula."Mundilo osho a nyamukula.
 
 ##
-Konima yefimbo, Ndjabameva fimbo ali tali okamwiidi kaye ali oshinano okudja pomulonga, "Whoosh!" omundilo owatukuka. Omundilo owa tameka oku xwika ko olududi la Ndjabameva.
+Konima yefimbo, Ndjabameva fimbo okwa li ta li omwiidi kokule kanini okudja pomulonga, ohaluka omundilo owa tukuka. "Wuu!" Omundilo owa hovela okuxwika ko olududi laNdjabameva.
 
 ##
-Ndjabameva okwa tameka talotoka yee takwena ayuka komeva. Olududi laye alishe okwali lapyako komundilo. Ndjabameva okwa kala takwena, "Olududi lange alishe ola pyako komundilo! Olududi lange alishe kakunasha vali! Olududi lange liwa!"
+Ndjabameva okwa faduka po ye ta kwena a yuka momeva. Olududi laye alishe okwa li la pya ko komundilo. Ndjabameva okwa kala ta kwena, "Olududi lange alishe ola pya ko komundilo! Olududi lange alishe la pya ko filu kaku na sha vali! Olududi lange liwa!"
 
 ##
-Kandiba okwali ahafa eshi olududi landjabameva lapyako. Okudja kefiku olo ondjabameva ohai tila omundilo, molwoumbada womudilo, ondjabameva iha i dipo vali oshinano pomeva.
+Kandiba okwa li a hafa eshi olududi laNdjabameva la pya ko. Okudja kefiku olo ohai tila omundilo, noiha kala vali kokule nomeva.
 
 ##
 * License: [CC-BY]

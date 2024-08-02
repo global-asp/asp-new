@@ -1,37 +1,37 @@
 # Tingi neengobe
 
 ##
-Tingi okwali ha kala nainakulu.
+Tingi okwa kala puinakulu.
 
 ##
-Voo nainakulu okwali hava kalifa eengobe.
+Vo nainakulu ova li hava ka lifa eengobe.
 
 ##
-Efiku limwe opweuya ovakwaita.
+Efiku limwe ope uya ovakwaita.
 
 ##
-Ovakwaita ova shingapo eengobe.
+Ovakwaita ova shinga po eengobe.
 
 ##
-Tingi nainakulu ova fadukapo ndele ta va kahondama.
+Tingi nainakulu ova faduka po ndele tava ka hondama.
 
 ##
-Voo ova ka hondama moixwa fiyo oufiku.
+Ova ka hondama moixwa fiyo oufiku.
 
 ##
 Ovakwaita ova ka aluka vali.
 
 ##
-Tingi okwa holekwa ku inakulu koshi yomafo.
+Tingi okwa holekwa kuinakulu koshi yomafo.
 
 ##
-Omukwaita umwe okwa lyata Tingi nomhadi yaye yokolulyo , Ashike Tingi ine li nyenga nande nande.
+Omukwaita umwe okwa lyata Tingi nomhadi yaye yokolulyo, Ashike Tingi ine linyenga nande nande.
 
 ##
-Ovakwaita eshi vaya Tingi na inakulu ova shituluka apa kwali va hondama.
+Ovakwaita eshi va ya Tingi nainakulu ova shituluka apa kwa li va hondama.
 
 ##
-Ovaya meumbo tava ende tava hondjaunine.
+Ova ya meumbo tava ende tava hondjaunine melimweneno.
 
 ##
 * License: [CC-BY]

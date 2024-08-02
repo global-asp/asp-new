@@ -4,22 +4,22 @@
 Okwa kukuta.
 
 ##
-Etango ota li xwike.
+Etango ola pupyala.
 
 ##
 Oku na omhepo.
 
 ##
-Okuna olulemo.
+Oku na olulemo.
 
 ##
 Okwa talala.
 
 ##
-Ota ku lokwa.
+Otaku lokwa.
 
 ##
-Okuna omingungumo.
+Oku na omingungumo.
 
 ##
 Ondi wete outa wodula.

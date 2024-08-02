@@ -1,37 +1,37 @@
-# Omulumenhu wofika ile
+# Omulumenhu omule unene
 
 ##
-Etemo laye olina omupini muxupi.
+Etemo laye lixupi unene.
 
 ##
-Oshivelo shonduda yaye oshali shixupi.
+Oshivelo shonduda yaye oshixupi unene.
 
 ##
-Ombete yaye oyali ixupi.
+Ombete yaye oixupi neenghono.
 
 ##
-Ombasikela yaye okwali ixupi.
+Ombasikela yaye oixupi neenghono.
 
 ##
-Omulumenhu ou okwali ena ofika ile!
+Omulumenhu ou omule unene!
 
 ##
-Okwa pangelelwa etemo laye lomupini mule.
+Okwa ninga omupini wetemo mulemule.
 
 ##
-Okwa tunga oshivelo shonduda yaye shayeluka.
+Okwa ninga oikulo yomivelo donduda yaye ile unene.
 
 ##
-Okwa longa ombete youle wemuyeleka.
+Okwa ninga ombete ile unene.
 
 ##
-Okwa landa omashikela yomufika mule.
+Okwa landa ombashikela ile unene.
 
 ##
-Ohakala omutumba koshipundi shile. Ohali nofoloko ina oule wapitilila.
+Okwa li omutumba koshipundi shileshile. Oha li nefoloko lilelile.
 
 ##
-Okwa tembuka meumbo laye ndele ta kakala momufitu. Okwa kala nomwenyo eedula dihapu.
+Okwa fiya po eumbo laye ndele ta ka kala mofuka inene. Okwa kala mo eedula dihapu.
 
 ##
 * License: [CC-BY]

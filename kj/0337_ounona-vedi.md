@@ -1,37 +1,37 @@
 # Ounona vedi
 
 ##
-Okwali kuna ovaneumbo veholafane.
+Okwa li ku na ovaneumbo ve holafane.
 
 ##
 Mokukala kwavo iha va lu. Ndele voo oha va yakula ovakulunhu vavo moilonga aishe yomeumbo nomepya.
 
 ##
-Ashike ka kwali va pitikwa oku ehena popepi nomundilo.
+Ashike kakwa li va pitikwa okweehena popepi nomundilo.
 
 ##
-Oilonga yavo aishe okwali have ilongo oufiku shaashi voo ovamewa medi!
+Oilonga yavo aishe okwa li have i longo oufiku shaashi voo ovamewa medi!
 
 ##
-Ashike okamati kamwe okali ka djuulukwa okuya pokamutenya pondje.
+Ashike okamati kamwe oka li ka djuulukwa okuya pondje pokamutenya.
 
 ##
-Efiku limwe ehalo lokuya pondje ola kula neenghono. Ovamwainamati ove mukumaida eheshininge...
+Efiku limwe ehalo lokuya pondje ola kula neenghono. Ovamwainamati ove mu kumaida ehe shi ninge...
 
 ##
-Akutu nani okunghililo oleya la laata! Okwa hengumungapo koupy wetango.
+Akutu nani ekunghulilo ole ya la laata! Okwa hengumungapo koupyu wetango.
 
 ##
-Ounona vedi okwali va nyemata mokumona omumwayinamati ta hengumukapo.
+Ounona vedi okwa li va nyemata mokumona omumwainamati ta hengumukapo.
 
 ##
-Ashike ova konga ondunge. Ovama oshihengumukile momufolomo wokadila.
+Ashike ova konga ondunge. Ova ma oshihengumukile momufolomo wokadila.
 
 ##
-Ovakufa oshihongwa sho mumwaina kombada yondudu ile.
+Ova twala oshihongomwa shamumwaina kombada yondudu ile.
 
 ##
-Etango eshi lapita, oshihongomwa osha tukapo ta shi imbi mouyelele weenhe detango longula.
+Etango eshi la pita, oshihongomwa osha tuka po tashi imbi mouyelele weenhe detango longula.
 
 ##
 * License: [CC-BY]

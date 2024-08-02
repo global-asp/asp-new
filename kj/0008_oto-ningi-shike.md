@@ -1,28 +1,28 @@
-# Otoningi shike?
+# Oto ningi shike?
 
 ##
-Ame o handi imbi.
+Ame ohandi imbi.
 
 ##
-Yee ota molola.
+Ye ota molola.
 
 ##
 Ame o handi pandula nomake.
 
 ##
-Yee ote linane omukuku.
+Ye ote linane omukuku.
 
 ##
-Yee ota ifana.
+Ye ota ifana.
 
 ##
 Ame ohandi nyamukula.
 
 ##
-Yee ota pwilikine.
+Ye ota pwilikine.
 
 ##
-Otoningi shike?
+Oto ningi shike?
 
 ##
 * License: [CC-BY]

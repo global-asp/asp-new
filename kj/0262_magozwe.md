@@ -1,52 +1,52 @@
 # Magozwe
 
 ##
-Moshilando sho malipyakidilo mo Nairobi shoo oshina onghalo ya yooloka no ka muna efiloshisho ngaashi keumbo, omwa kala ongudu yovamati vehana momaumbo omo ha vadi. Oha vatambulako efiku keshe lili ngaashi lili. Ongula yefiku limwe, konima eshi ovamati ava va penduka ova yalulula oishiinda yavo polupanda olo la li la talala. Opo va nee ve likufe outalala ova tema omundilo noimbodi. Mokati kongudu yovamati omwa li muna umwe haifanwa Magozwe. Yee oye ali mushona kuvakwao.
+Moshilando shinene shomalipyakidilo Nairobi omwa kala okangudu kovamati vehe na omalukalwa opo hava di, onghalamwenyo omo va li oya yooloka filu filu konghalamweno iwa efiloshisho okeumbo. Efiku keshe ohave li tambula ko li li ngaashi li li. Ongula yefiku limwe, ovamati ava va penduka tava yalulula nokutonya oyiinda yavo polupanda olo litalala opo hava nangala. Ova shakala omundilo noimbodi opo va xuxumukwe. Mongudu yovamati omwa li umwe ha ifanwa Magozwe. Ye oye a li munini kuvakwao.
 
 ##
- Eshi ovakulunhu va Magozwe va xulako okwali ashike ena eedula dili nanho. Okwaya a ka kale naxekulu . Xekulu ka kwali ena efiloshisho naye. Yee ka kwali hemupe oikulya yawana. Navali okwali he mulongifa oilonga ihapu idjuu.
+Ovakulunhu vaMagozwe ova mana oweenda wavo manga a li e na omido nanho. Magozwe okwa ya a ka kale puxekulu. Omulumenhu ou kakwa li e na efiloshisho naMagozwe. Ye ihe mu pe oikulya ya wana. Okwa li he mu longifa oilonga ihapu yo oidjuu.
 
 ##
-Ngeenge Magozwe ta ngongota ile ena omapulo xekulu okwali hemu denge yee tatii " ove elai neenghono ito dulu oku lihongosha. Konima yeedula nhatu do kuhepekwa Magozwe okwa fadukapo xekulu . Okwa ka kala hadi momapandaanda.
+Magozwe ngeenge ta ngongota ile a pula sha, xekulu ohe mu denge, Ngeenge Magozwe okwa pula ngee ota dulu okuya kofikola xekulu ohe mu denge ndee ta ti, "Ove elai ito ke lihonga sha mofikola.” Konima yeedula nhatu e li monghalo ei, Magozwe okwa shuuka po puxekulu, ndele ta kala momandavanda.
 
 ##
-Onghalo yomomapandaanda okwali idjuu, novamati vahapu ovo velimo oha va nyengwa oku mona oikulya keshe efiku. Omafimbo amwe oha vakwatwa po , nefimbo limwe oha va dengwa. Ngeenge tava vele kapena nande omunhu he va twala koshipangelo. Ongudu ei oya li hai xupu moimaliwa ishona oyo vakufa moku ehela , mokulandifa oinailona nomoyeekelwashi oyo haidulu oku alulwa. Onghalamwenyo okwali idjuu unene shaashi omwalli muna eengudu ha di ndjifafana doo ta di lu tadi kondjo di kale dina eenghono moshilando.
+Onghalo yomomapandavanda oya li idjuu, vahapu vovamati ava ova li tava xupu shokadila kombinga yoikulya keshe efiku. Peemhito dimwe ohava kwatwa po, omafimbo amwe ova dengwa. Ngeenge tava vele kape na ou te va kwafele. Ongudu ei oya li hai xupu moumaliwa vanini va ehelwa nomokulandifa oinailona nomoinima oyo ya ekelwa shi hai dulu okulongululwa vali. Onghalamwenyo oya li idjuu neenghono, molwaashi omwa li eengudu tadi lwifafana opo di kwate ko oitukulwa yomoshilando.
 
 ##
-Efiku limwe manga Magowe ta hadaula mendoloma loimbodi, okwe litwa mo okambo kouhokololo ka kaka koo oka kulupa. Okwe ka wapaleka omakako ndele te ka tula moshako. Okudja opo okwa kala nee he kakufamo moshako keshe efiku yee ta tale omafano. Yee ka kwali eshii oku lesha oitya.
+Efiku limwe manga Magozwe a li ta hade mendoloma loimbodi, okwe litwa mo okambo kouhokololo ka kaka ko oka kulupa. Okwe ka wapaleka omakako, ndele te ka tula moshako. Keshe efiku okwa kala he ka kufa mo moshako ndele ta tale omafano, molwaashi ka li e shii okulesha.
 
 ##
-Omafano okwali ta a ulike ehokolololo lomumati aka ninga omushingidila eshi a kula. Magowe okwa kala ha tu ondjodi yomutenya eshi naye ta kala omushingidila. Omafimbo amwe oha kala ta dilaadila ewete afa oye omumati ou eli mehokololo.
+[TRANSLATION]: Ehokololo ola li tali popi kombinga yomumati oo a kula ndele ta ningi omushingidila. Magozwe okwa kala he litungile ouumbo ngeno oye a ninge omushingidila. Omafimbo amwe ohe lihalele ngeno a kale oye a li omumati oo a popiwa mehokololo.
 
 ##
-Okwali kwa talala na Magozwe okwali a fikama pomadidiliko opeendjila ta ehela. Omulumenhu umwe okwa enda a yuka kuye ndele tati " Halo edina lange aame Thomas . Oha ndi longo popepi, ponhele ili apa to dulu oku pewaposha shokulya, omulumenhu osho emulombwela. Okwa ulika ketungo loluvala lishunga lina oipeleki itwima eulu ndele tatii "onde lineekela oto dulu okuyako uka pewe oikulya". Magozwe okwa tala komulumenhu ndele ta tale keumbo, , okwa nyamukula tati " eeheno shiimba" Magozwe ta nyamukula ndele yee ta pilameneko.
+Okwa li kwa talala naMagozwe okwa li a fikama pomunghulo wondjila ta ehela. Omulumenhu umwe okwa enda a yuka kuye. Ndele ta ti: "Halo! aame Thomas. Ohandi longo popepi opo, ponhele opo oto dulu okumona po oikulya, omulumenhu osho a ti. Okwa ulika ketungo loluvala lishunga li na oipeleki imbulau."Onde lineekela oto ka ya ko ngaho u ka pewe oikulya?." Omulumenhu te mu pula. Magozwe okwa tala komulumenhu nokonima ta tale keumbo, "Eheeno shiimba" Magozwe ta nyamukula ndele ta pilamene ko.
 
 ##
-Konima yeemwedi da landulako ongudu younona ovo vehena omaumbo omo ha vadi ova ka ikilila oku mona Thomas momundingonoko. Okwali e hole okupopya novanhu unene tuu ovo havadi momapandaanda. Okwali omunandjungu nomulididimiki, ka kwali ha ngwenyauna ovanhu yee okuna efimaneko novanhu. Ovamati vamwe ova tameka okuya keumbo loluvala lishunga loipeleki i twima eulu vakapewa oikulya pefimbo lomutenya.
+Meemwedi da shikula ko ongudu yovamati vehe na omalukalwa ova ka ikilila okumona Thomas momundingonoko. Okwa li e hole okupopya novanhu unene tuu ovo hava di momapandavanda. Thomas e hole okupwilikina omahokololo eenghalamwenyo dovanhu. Okwa li omunandjungu nomulididimiki, iha ngwadjaula ovanhu ye oku na efimaneko novanhu. Ovamati vamwe ova hovela okuya keumbo loluvala lishunga loipeleki imbulau va ka lye omusha pefimbo lomutenya.
 
 ##
-Magozwe okwali eli omutumba polupanda ta tale omafano eshi Thomas euya okukala omutumba puye vashaama. "Ehokololo ota li popi kombinga yashike"? Thomas ta pula. "Ota li popi kombinga yomumati a ninga omushingidila", Magozwe ta nyamukula. "Omumati olye edina laye?" Thomas ta pula." "Ka ndishishi, ka ndishi oku lesha" Magozwe ta nyamukula nengungumano.
+Magozwe okwa li e li omutumba polupanda ta tale omafano mokambo eshi Thomas e uya ndele ta kala omutumba puye. "Ehokololo otali popi kombinga yashike?" Thomas ta pula. "Otali popi kombinga yomumati a ninga omushingidila," Magozwe ta nyamukula .Edina lomumati olye?" Thomas ta pula." "Kandi li shii, ame kandi shii okulesha" Magozwe ta nyamukula nengungumano.
 
 ##
- Eshi va shakena, Magozwe okwa tameka oku hokololela Thomas kombinga yonghalamwenyo yaye mwene. Ehokololo laye okwali ta popi kombinga ya xekulu nemeumbo tomenho olo lemukufamo meumbo laxekulu . Thomas okwali ha pwilikine alushe noukeka, iha nyamukula luhapu , yee ina lombwela nande Magozwe kutya okuna oku ninga po shike.
+Eshi va shakena, Magozwe okwa tameka oku hokololela Thomas kombinga yonghalamwenyo yaye. Ehokololo laye okwa li ta popi kombinga yaxekulu nomolwashike she mu shuula mo meumbo. Thomas ina popya sha shihapu, ye ina lombwela Magozwe osho shi na okuningwa po, ashike okwa pwilikine e litula mo Omafimbo amwe ohava kundafana pefimbo tava li meumbo loipeleki imbulau.
 
 ##
-Pefimbo lefiku ledalo la Magozwe eshi a wanifa eedula omulongo, Thomas okwe mupa okambo kouhokololo. Omwali muna okahokololo ta ka popi kombinga yomumati a kulila komukunda ndele ta kaninga omudanitanga a fimana. Thomas okwa leshela Mazogwe okahokololo oikando ihapu fiyo efiku limwe e mulombwela tati "ondi wete efimbo olafika opo uye koskola ove u ke lihonge oku lesha". "oushi uditeko ngahelipi?" Thomas okwa hokolola kutya okushi onhele imwe opo hapa dulu oku kala ounona voo ta va yi kofikola.
+Pedalo laMagozwe eshi a wanifa eedula omulongo, Thomas okwe mu pa okambo kouhokololo. Omwa li okahokololo taka popi kombinga yomumati a kulila komukunda, ndele ta ka ninga omudanitanga a fimana. Thomas okwa leshela Mazogwe okahokololo oikando ihapu fiyo efiku limwe e mu lombwela ta ti "ondi wete efimbo ola fika opo uye kofikola ove u ke lihonge okulesha. Oto diladila ngahelipi?" Thomas okwa yelifila kutya oku shi onhele imwe opo hapa dulu okukala ounona, vo tava i kofikola.
 
 ##
- Mazogwe okwali ta dilaadila onhele ei ipe no kuya kofikola. Ota shi ka kala nga helipi pamwe xekulu okwali eli mondjila, yee pamwe omulayi shili unene nokulihonga? Ngeenge ounona vakwao ove mu denge ngeenge ayi monhele ei ipe?Okwali a tila " Shiimba oshili vali xwepo oku kala momapandaanda." Osho elipula.
+Mazogwe okwa li ta dilaadila onhele ei ipe nokombinga yokuya kofikola. Pamwe xekulu okwa li e li mondjila eshi a tile ye elai ite ke lihonga sha kofikola? Pamwe otave ke mu denga ngeenge a i monhele ei ipe? Okwa li a tila. "Shiimba oshi li vali xwepo okukala momapandavanda." Osho a diladila..
 
 ##
-Okwa holola oumbada waye ku Thomas. Efimbo nefimbo Thomas okwe mu kwashilipaleka kutya onghalamwenyo otai kala iwa konhele ipe.
+Okwa holola oumbada waye kuThomas. Efimbo nefimbo Thomas okwe mu kwashilipaleka kutya onghalamwenyo otai dulu kala iwa konhele ipe.
 
 ##
-Okudja opo Magozwe okwa tembukila monduda ipe meumbo loipeleki i twima omafo. Monduda okwali ha va kalamo novamati vaavali ovo a hanga mo. Meumbo oha mu kala ounona veli omulongo aveshe aveshe kumwe.
+Okudja opo Magozwe okwa ya monduda ipe meumbo loipeleki i ingelina. Monduda ova li novamati vavali. Meumbo omwa li ounona aveshe kumwe ova li omulongo. Ova li mo naMeme Cissy, omushamane waye, eembwa nhatu, okambishi, noshikombo sha kulupa.
 
 ##
-Magozwe osho a ta meke ofikola, ashike okwali shidjuu kuye. Okwali a pitililwao kushihapu. Omafimbo amwe okwali a hala okushuna monima. Ashike okwali ha dilaadila kombinga yomushingidila nomudanitanga venya va hokololwa mokambo kouhokololo. Ngaashi naana voo, yee naye ina shuna monima.
+Magozwe osho a hovele ofikola, ashike okwa li shidjuu kuye. Okwa li a pitililwa kushihapu neenghono. Omafimbo amwe okwa li hala okufya ounye. Ashike okwa li ha diladila kombinga yomushingidila nomudanitanga ovo va hokololwa mokambo kouhokololo. Ngaashi naanaa vo, ina fya ounye.
 
 ##
-Magozwe okwali eli omutumba moluumbo keumbo loluvala lishunga noipeleki i twima omafo, ta lesha okambo kouhokololo a dja nako kofikola. Thomas okwe ya ndele ta kala omutumba va shaama naye. "Okambo ota ka popi kombinga yashike?" Thomas ta pula. "Ota kapopi kombinga yomumati a ninga omulongifikola." Magozwe ta nyamukula. " Omumati olye edina laye?" Thomas ta pula. "Edina laye o Magozwe." Magozwe ta nyamukula nelimemesho.
+Magozwe okwa li e li omutumba moluumbo keumbo loluvala lishunga noipeleki lingelina, ta lesha okambo kouhokololo a dja nako kofikola. Thomas okwe ya ndele ta kala omutumba ponghulo naye. "Okambo ota ka popi kombinga yashike?" Thomas ta pula. "Otaka popi kombinga yomumati a ninga omulongifikola." Magozwe ta nyamukula. "Omumati oye lye?" Thomas ta pula. "Edina laye olo Magozwe." Magozwe ta nyamukula nelimemesho.
 
 ##
 * License: [CC-BY]

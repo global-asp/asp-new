@@ -1,7 +1,7 @@
 # Okamwameme mati okananyalo
 
 ##
-Onda penduka nditeme omundilo.
+Onda penduka ndele handi shakala omundilo.
 
 ##
 Ohandi fulukifa omeva.
@@ -10,16 +10,16 @@ Ohandi fulukifa omeva.
 Ohandi pandaula oikuni.
 
 ##
-handi pilula mombiya.
+Handi pilula mombiya.
 
 ##
-handi kombo pedu.
+Handi kombo olukolongo.
 
 ##
 Handi wapaleke oiyaxa.
 
 ##
-Omolwashike ndina okulonga noudiinini manga omumwamememati elimoudano.
+Omolwashike ndi na okulonga noudiinini… … manga omumwamememati e lipyakidila nokudanauka.
 
 ##
 * License: [CC-BY-NC]

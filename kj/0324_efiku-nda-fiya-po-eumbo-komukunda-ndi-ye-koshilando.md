@@ -1,52 +1,52 @@
-# Efiku ndadja keumbo ndaya koshilando
+# Efiku nda fiya po eumbo komukunda ndi ye koshilando
 
 ##
-Onhele yoku londekela youbesa vanini momukunda wetu oyali iyadi ovanhu neebesa dalondeka shapitilila. Pedu opali omitwalo dandubala dali datelela dilondekwe. ovalondeki okwali tava ingida omadina oilando oko eebesa davo dayuka.
+Onhele ya finana yomafikameno oubesa vanini momukunda wetu oya li i yadi ovanhu neebesa da londeka sha pitilila. Pedu opa li eendongelwa da ndubalala da telela okulondekwa. Ovalondeki okwa li tava ingida omadina eenhele oko okwa yuka eebesa davo.
 
 ##
-"Koshilando! Koshilando! twayuka koutokelo!" Onda uda omulondeki taingida. Oyo oyali obesa ndali ndapumbwa oku lefa.
+"Koshilando! Koshilando! Otwa yuka koutokelo!" Onda uda omulondeki ta ingida. Obesa ei oyo nda pumbwa okulefa.
 
 ##
-Konyala eebesa dayuka koshilando okwali diyadi, ashike ovanhu vahapu okwali tave lifininike vahala oku londa. Vamwe ovali valongela omitwalo davo koshi yobesa. Vamwe okwali valongela omitwalo davo meni mee laka.
+Obesa ya yuka koshilando konyala oi yadi, ashike natango ovanhu vahapu okwa li tave lifininike va hala okulonda. Vamwe ova li va longela eendongelwa davo koshi yobesa. Vamwe okwa li va longela eendongelwa davo momakololo omeni lobesa.
 
 ##
-Ovatwaalelwa vape ovali vakumatela outekete vavo efimbo tava kongo apa tava kala omutumba mobesa oyo yali iyadi. Ovakulukadi ava vali nounona ovali tava ningi nawa ounona ounona vevalongekidile olweendo.
+Ovatwaalelwa vape ova li va kumatela outekete vavo pefimbo tava kongo apa tava kala omutumba mobesa i yadi ngofenya. Ovakulukadi ava va li nounona ova li tave va ningi nawa noku va longekidila olweendo.
 
 ##
-Onde lifininika ndikakale lwopekende. Omunhu ali popepi naame okwali a kwata adiinina onailona yaye itwima omafo. Okwali adjala eenghaku deesandala dakulupa, ondjafa yakulupa, yee okwali tamonika ambadapala.
+Ame nde lifininika lwopekende. Omunhu ou twa shaama naye okwa li e kwate onailona yaye ingeline e i diinina. Okwa li a djala eenghaku deesandala da kulupa, nondjafa ya pomboka, ye okwa li ta monika a mbadapala.
 
 ##
-Onda tala pondje yobesa nondamona kutya ondali handi ende , handi fiyepo omukunda, onhele omo ndakulila. Okwali ndayuka koshilando shinene.
+Onda tala pondje yobesa nonda koneka nhumbi handi fii po omukunda wetu, onhele omo nda kulila. Okwa li nda yuka koshilando shinene.
 
 ##
-Omitwalo okwali dapwa kulondeka novatwaalelwa aveshe ovali veli omutumba. Ovalandifi natango ovali tave lifininike vahala okuya meni lobesa vaka landife oilandifomwa yavo kovatwaalelwa. Keshe umwe okwali taingida edina laasho shali tashilandifwa. Oitya oyali iyolifa kuame.
+Okulondeka eendongelwa okwa pwa, novatwaalelwa aveshe ova li omutumba. Ovalandifi natango ova li tave lifininike va hala okuya meni lobesa va ka landife oilandifomwa yavo kovatwaalelwa. Keshe umwe okwa li ta ingida edina laasho a li ta landifa. Oitya oya li iyolifa kwaame.
 
 ##
-Ovatwaalelwa vomwaalu munini ova landa oikunwa, voo vamwe tava lande oukokotomwa ndele tava tameke tava taafina. Ava vali vehena oimaliwa ngaashi ame otwa kala ashike twa talako.
+Ovatwaalelwa vomuvalu munini ova landa oikunwa, vo vamwe tava lande oukokotomwa ndele tava tameke tava taafina. Ava vali vehe na oimaliwa ngaashi ame otwa kala ashike hatu ondola omesho.
 
 ##
-Elipyakidilo eli okwali lapiyaaanekwa kombeda yobesa, edidiliko lali tali ulike kutya okwali twafikama okuya. Ovalondeki ovaikida opo ovalandifi vadjemo vaye pondje.
+Elipyakidilo eli okwa li la piyaanekwa keshiko lombeda yobesa, okuulika kutya obesa otai katuka. Ovalondeki ova ingida opo ovalandifi va dje mo va ye pondje.
 
 ##
-Ovalandifi tave liundaula vayuka pondje tavadi mobesa. Vamwe ova yandja eeshendja kovaendindjila. Vamwe ovali tava kendabala oku twikila noku landifa.
+Ovalandifi ova li tava undulafana va yuka pondje tava d mo mobesa. Vamwe ova yandja eeshendja koonakuya mondjila. Omanga vamwe natango ova li tava kendabala nokulandifa shihapu.
 
 ##
-Eshi obesa yafiyapo okapale, onda tala mekende. Okwali ndalimbililwa ngeenge onandi kaalukileko tuu fiku limwe komukunda oku.
+Obesa oya katuka okudja pokapale, onda li handi tale mekende. Okwa li nda limbililwa ngeenge onandi ka alukile ko ngaho komukunda wetu.
 
 ##
-Eshi olweendo latwikila, meni lobesa omwali mwandjena neenghono. Onda fifikina nelineekelo ndikofe.
+Molweendo, meni lobesa okwa li mwa pupyala neenghono. Onda fifikina nelineekelo ngeno ndi kofe po.
 
 ##
-Omadilaadilo ange okwa shuna lwanima keumbo. Meme ota kala tuu eli meameno? Oundiba vange ota eta tuu oimaliwa? Omumwameme mati ota dimbuluka tuu atekele oumuti vange?
+Omadilaadilo ange okwe lishuna keumbo. Meme ota kala ngaho meameno? Oundiba vange otava eta ngaho oimaliwa? Omumwamememati ota dimbulukwa tuu a tekele oumuti vange?
 
 ##
-Mondjila, onda kendabala ndikoneke omadina eenhele oko tatekulu kwali hakala moshilando shinene. Okwali handi lipopile noku endulula omadina aa efimbo ndali handi kofa.
+Mondjila yokuya, onda kala handi lidimbulukifa edina lonhele oko tatekulu ha kala moshilando shinene. Onda li natango handi li tumbula nokweendulula omadina aa pefimbo olo handi lendenga keemhofi.
 
 ##
-Konima yeevili omuowoi, onda penduka keweelelo nengwadjaulo oshoyo ovatwaalelwa tava ingida kutya ova hala okuya komukunda. Onda nyangulapo okandjato kange ndele handi helukamo mobesa.
+Konima yeevili omuowoi, onda penduka keingido nengwadjaulo laavo tava kongo ovo va hala ovatwaalelwa ava tava tava i komukunda tava di moshilando. Onda vakula po okandjato kange ndele handi heluka mo mobesa.
 
 ##
-Obesa taishuna oya yada diva diva. Meni lefimbo lixupi ota ikala yaya medimo londjila yayuka koushilo. Osho shili shafimana kwaame paife oku tameka ndikonge eumbo latetekulu.
+Mepakumo leisho obesa yokushuna ovanhu komikunda oya hada meendelelo. Otai ninngi i katuke nokuli ya yuka koushilo oko ya dile. Osho shi na oshilonga kwaame paife okutameka okukonga opo pa ama eumbo latatekulu.
 
 ##
 * License: [CC-BY]

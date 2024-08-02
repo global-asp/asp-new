@@ -1,22 +1,22 @@
-# Anansi noupunandunge
+# Anansi nokayuma keendunge
 
 ##
-Konale nale mefimbo lakapita ovanhu kakwali vena ounongo muhapu. Kakwali veshii kutya oimeno ohai kunwa ngahelipi, kutya nee oku hondja oidjalommwa, ile oku hambula oivela. Kalunga Nyame akala mewangadjo okwa kala ena omaupunandunge aeshe ounyuni. Okwa kala e a tuvikila nawa moshiyuma shedu.
+Nale nale ovanhu kakwa li ve shii sha. Kakwa li ve shii okukuna, kakwa li ve shii okuhondja oidjalomwa, kakwa li ve shii okuhambula oivela. Oshikalunga Nyame, osho sha kala mewangadjo, osho ashike sha li shi na eendunge nounongo woinima aishe yomounyuni. Ounongo ou okwa li e u tuvikila nawa mokayuma kedu.
 
 ##
-Efiku limwe, Nyame okwa tokola kutya oshiyuma shedu osho shina oupunandunge oteshiyandje ku Anansi. Keshe efimbo Anansi atalamo moshiyuma shedu okwa li helilongosha shipe. Okwali shinyakula neenghono.
+Efiku limwe Nyame okwa tokola okuyandja okayuma keendunge kuAnansi. Keshe tuu pomhito opo Anansi ta tale mokayuma, oha di po a shiiva sha shipe. Osha li oshinima shihafifa kuye.
 
 ##
-Omunalwisho Anansi okwa dilaadila, "Oshiyuma eshi ohandi shikaleke meameno ndeshi tulika moitai yomulumbuti. Okudja opo aame ashike handi kala ndishi ashishe!"Okwa konga ongodi ile ndele tamange oshiyuma eshidingunuka nongodi ei ditika nawa, yee teimangele medimo laye. Okwa tameka nee okulonda komuti. Okwali nee shidjuu okulonda komuti noshiyuma shaashi oshiyuma okwali alushe tashi lidengaadenga meengolo daye eshi talondo.
+Omunalwisho Anansi okwa diladila, "Ohandi holeke oshiyuma eshi sheendunge meenhai domuti mule. Aame ashike handi kala ndi shi ashishe!" Okwa hodila ongodi ile ndele ta mange oshiyuma e shi dingonoka nongodi ei ditika nawa, ye te limangele medimo laye. Okwa tameka nee okulonda komuti. Okwa li nee shidjuu okulonda komuti noshiyuma, shaashi efimbo alishe okwa li tashi mu denge meengolo daye eshi ta londo.
 
 ##
-Alushe omonamati munini wa Anansi ohakala ofika pefina lomuti temu tale eshi talondo. Okwatya, "Ngeno itashi kala shipu ngeenge oshiyuma oweshi mangela kombuda?" Anansi takendabala amangele oshiyuma shiyadi oupunandunge kombuda yaye, noshali shemu pupalela shili.
+Okamonamati kaAnansi oka li pefina lomuti ta ke mu tale eshi ta londo. Oka ti: "Ngeno itashi kala shipu ngeenge oshiyuma owe shi limangele kombuda?" Anansi ta kendabala a mangele oshiyuma shi yadi oupuna weendunge kombuda yaye, nokwa mona nhumbi sha li shipulela okulonda.
 
 ##
-Inapakalwa efimbo yee okwa fika nale koxulo yomuti. Okwa kanghama ndele telipula, "Aame shike kwali ndina okukala ndina eendunge ndidule dovanhu aveshe, ndele paife omumwangemati okwa dulange meendunge!" Oshinima eshi okwali shahandula Anansi neenghono ndele ta umbile oshiyuma pedu.
+Ina pakalwa nokuli ye okwa fika nale koxulo yomuti. Okwa kanghama ndele ta lidiladila, "Aame shike kwa li ndi na okukala ndi na eendunge ndi dule dovanhu aveshe, ndele paife omumwangemati oku dule nge vali eendunge!" Oshinima eshi okwa li sha handula Anansi neenghono, ndele ta umbile oshiyuma pedu.
 
 ##
-Oshiyuma eshi shelidenga pedu osha tatauka moupambu. Okudja opo upuna ndunge owa kala wamangulukila keshe umwe tau tukulilwafanwa. Opo nee padja ovanhu vahondje oidjalomwa, vahambule oilongifo moitenda, voo va etepo yoo keshe tuu osho hashidulu oku longwa komunhu.
+Okayuma eshi ke lidenga pedu oka tatauka moikangwa. Okudja opo eendunge oda mangulukila keshe umwe noda tukulilwafanwa. Opo nee pa dja ovanhu ve lihonga okulonga momapya, okuhonfja oidjalomwa, okuhambula oilongifo yoitenda, vo va ete po yo keshe tuu osho hashi dulu okulongwa komunhu.
 
 ##
 * License: [CC-BY]

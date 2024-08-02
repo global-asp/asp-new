@@ -1,28 +1,28 @@
 # Eexwiki
 
 ##
-Thuli okuna eexwiki dixupi.
+Thuli oku na eexwiki dixupi.
 
 ##
-Anna okuna eexwiki dile.
+Anna oku na eexwiki dile.
 
 ##
-Cathy oye ena eexwiki dile.
+Cathy oye e na eexwiki diledile.
 
 ##
-Zama okuna eexwiki dapandwa.
+Zama oku na eexwiki da pandwa.
 
 ##
-Baba okuna eendjedi.
+Baba oku na eendjedi.
 
 ##
 Zanele okwa fula eexwiki daye.
 
 ##
-Thabo okuna eexwiki dakululwa.
+Thabo okwa tetwa eexwiki.
 
 ##
-Themba okwa kululako eexwiku daye.
+Themba okwa kulula ko eexwiki daye.
 
 ##
 * License: [CC-BY-NC]

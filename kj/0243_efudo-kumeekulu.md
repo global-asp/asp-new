@@ -1,64 +1,64 @@
-# Efudo pamwe na Meekulu
+# Efudo kuMeekulu
 
 ##
-Ondongo na Apiyo ova kala moshilando na tate wavo. Ovali hava kala va hafela unene omafudo. Hakutya ashike ofikola oya pata. Ndele omolwaashi ohava kala vahala okuya vaka talelepo Meekulu wavo. Inakulu okwali momukunda hamu kwatwa eeshi wali uli popepi netale.
+Odongo naApiyo ova kala moshilando naxe. Ova li va hala nokuhalela efudo li fike. Hamolwaashi, ashike ofikola oya pata. Ashike unene omolwaashi ohava kala va hala okuya va ka talele po inakulu. Inakulu okwa li momukunda hamu kwatwa eeshi wa li u li popepi netale.
 
 ##
-Ondongo na Apiyo okwali va hafa unene shaashi oshali efimbo loku katalelapo Meekulu wavo vali. Onguloshi yatetekela ova longela eendjato davo ndele tava kala velilongekidila olweendo londjila lile okuya kuinakulu komukunda. Eemofi okwali devalondoka ndele ova kala ashike tava popi kombinga yefudo oufiku aushe.
+Odongo naApiyo okwa li va hafa unene shaashi osha li efimbo loku ka talela po Meekulu wavo vali. Onguloshi ya tetekela efiku lokuya ova longela eendjato davo, ndele tava kala ve lilongekidila olweendo lile lokuya komukunda oko ku na inakulu. Okwa li va londokwa keemhofi ndele ova kala ashike tava popi kombinga yefudo lavo oufiku aushe.
 
 ##
-Ongula eshi kwasha, ovaya medimo londjila vayuka komukunda noshihauto sha tate wavo.Ovashinga vakoyelela eendudu, oinamweno yomofuka nomapya o tee. Ovali tava imbi voo tava valula omatuwa.
+Ongula inene yefiku la shikula, ova londa moshihauto shaxe va ye komukunda. Ovashinga va pita peendudu, poifitukuti nomomapya otee. Ova li tava imbi vo tava valula omatuwa.
 
 ##
-Konima yefimbo ounona okwali valoloka ndele tava kofa.
+Konima yefimbo ounona okwa li ova loloka ndele tava kofa.
 
 ##
-Xe okwe vapendula eshi vafika komukunda. Ovahanga inakulu Nyar-Kanyada afuwapo pokamate koshi yomuti. Nyar-Kanyada melaka lo Luo, otashiti "omona kadona wovanhu vova Kanyada" Okwali omukainhu muwa yee okuna eenghono.
+Odongo naApiya ova pendulwa kuxe eshi va fika komukunda. Ova hanga inakulu Nyar-Kanyada a fuwa po poshiinda koshi yomuti. Nyar-Kanyada melaka lOshiluo, otashi ti "okakadona kovanhu vaKanyada" Okwa li omukainhu muwa ye oku na eenghono.
 
 ##
-Nyar-Kanyada okwe va tambulako nawa meumbo taimbi yee tanyande nehafo eumbo alishe.Ovatekulu okwali vahafa unene oku mupa omaano oo kwali vemu etela koshilando. "Tete natu patulule omaano ange," Ondongo tati. "Ahawe ange oo tete!" Apiyo tati.
+Nyar-Kanyada okwe va tambula nawa meumbo ta imbi nehafo ye ta danisha neumbo alishe. Ovatekulu okwa li va hafa unene oku mu pa omaano oo kwa li ve mu etela okudja koshilando. "Tete natu patulule omaano ange," Odongo ta ti. "Ahawe ange oo tete!" Apiyo ta ti.
 
 ##
-Konima eshi apatulula omaano, Nyar-Kanyada okwa yambeka ovatekulu vaye pamukalo womufyuululwakalo wavo.
+Konima eshi a patulula omaano, Nyar-Kanyada okwa nangeka noupuna ovatekulu vaye panghedi yomufyuululwakalo wavo.
 
 ##
-Konima Ondongo na Apiyo ovaya pondje. Ovaka taataa oupuka veenghanga noudila.
+Konima Odongo na Apiyo ova ya pondje. Ova ka taataa oupuka veenghanga noudila.
 
 ##
-Ova kala nokulonda komiti voo tava danauka nomeva metale.
+Ova kala nokulonda komiti vo tave lishamine omeva ometale.
 
 ##
-Eshi kwatoka ova alukila keumbo valye ouvalelo. Manga ina vamana okulya voo ova kwatwa keemofi, ovali tava nyongila!
+Eshi kwa toka ova shuna keumbo va ka lye ouvalelo. Manga ina va mana okulya vo ova wa onhundulu keemhofi!
 
 ##
-Efiku la landulako, tate wavo okwa shinga ashune koshilando evafiyapo na Nyar-Kanyada.
+Efiku la shikula ko, xe okwa shinga a shune koshilando e va fiya po naNyar-Kanyada.
 
 ##
-Ondongo na Apiyo ova kala noku kwafela inakulu noilonga yomeumbo. Okwali hava katyava noku kateka omeva. Okwali yoo hava katoola omai noku kona oihape moshikunino.
+Odongo naApiyo ova kala nokukwafela inakulu noilonga yomeumbo. Okwa li hava ka tyava noku ka teka omeva. Okwa li yo hava ka ongela omai eexuxwa noku likola oihape moshikunino.
 
 ##
-Nyar-Kanyada okwa longa outekulu oku teleka oshifima noku shilya nomunghoka. Okwe valonga yoo okunings olwishi lo coconut noku lilya noshi yayofwa.
+Nyar-Kanyada okwa honga outekulu okuteleka oshifima noku shi lya nomunghoka. Okwe va ulikila yo nhumbi olwishi lomaxuku eendunga dokokonata noku li lya neeshi da yofwa.
 
 ##
-Ongula imwe, Ondongo okwa kalifa eengobe Meekulu waye. Oda fadukila kepya lamushiinda.Omunafaalama okwali ahandukila Ondongo unene. Okwa tilifa kutya oimuna ote idiinini fiku olo shaashi oya lyapo oikunwa yaye. Opo oimuna ih kaye omapya ovanhu vali.
+Ongula yefiku limwe, Odongo okwa ka lifa eengobe dainakulu. Oda tondokela mepya lamushiinda. Omunafaalama okwa li a handukila Odongo neenghono. Okwa mu tilifa kutya ota diinine eengobe ote di idilile shaashi oda lya po oikunwa yaye. Okudja efiku olo, omumati okwa kala ha fi oshisho eengobe diha ye vali moupyakadi.
 
 ##
-Mefiku limwe, ounona ovaya nainakulu Nyar-Kanyada komalandifilo. Okwali enapo okafitola havslandifa oihape, Ofyuuka nee fewa. Apiyo oku hole oku lombwela ovalandi eendado doilandomwa. Ondongo yee ohalongele oinima oyo ovalandi valandwa.
+Efiku limwe, ounona ova ya nainakulu Nyar-Kanyada komalandifilo. Okwa li e na po okatala kaye ta landifa oihape, ofyuuka neefewa. Apiyo oku hole okulombwela ovalandi eendado doilandomwa. Odongo ye oha longele oinima oyo oya landwa kovalandi.
 
 ##
-Konima ngeenge vadimbuka oha vanhu pamwe otee yo chai. Ohava kwafele inakulu oku valula oimaliwa oyo alandifa fiku olo..
+Pexulilo lefiku ngeenge va dimbuka ova nwa pamwe otee yoludi lwochai. Ounona ova kwafela inakulu okuvalula oimaliwa oyo a landifa fiku olo.
 
 ##
-Konima yefimbo lixupi efudo olali lapwako nounona ovali vena oku shuna koshilando. Nyar-Kanyada okwa pa Ondongo ekopi yee Apiyo temupe ombidja youtalala. Okwe valongelela oikulya yavo yolweendo.
+Divadiva efudo ola pwa ko nounona ova li ve na okushuna koshilando. Nyar-Kanyada okwa pa Odongo ekopi ye Apiyo te mu pe ombidja youtalala. Okwe va longelela oikulya yavo yomolweendo.
 
 ##
-Eshi tate wavo evaila, kavali vahala okuya. Ounona ova indila Nyar-Kanyada aye pamwe navo koshilando. Yee okwe limemesha ndee tati, "Ame onda kulupa nokuya koshilando. ohandi muteelele mwaalukile vali komukunda."
+Eshi xe e va ila, kakwa li va hala okuya. Ounona ova indila Nyar-Kanyada a ye pamwe navo koshilando. Inakulu okwe limemesha ndee ta ti, "Ame onda kulupa nokukala moshilando. Ohandi kala nde mu teelele mu alukile vali komukunda."
 
 ##
-Ondongo na Apiyo aveshe ova papatela inakulu ndele tave mulekele.
+Odongo naApiyo aveshe ova papatela inakulu ndele tave mu lekele.
 
 ##
-Eshi Ondongo na Apiyo vaalukila kofikola ova hepaulila ookaume kavo numbi onghalamwenyo yokomukunda. Ounona vamwe okwali veudite kutya onghalamwenyo koyomukunda oilixwepo. Ashike konyala, keshe umwe okwa dimina kutya. Ondongo na Apiyo okwali vena Meekulu wavo muwa.
+Eshi Odongo na Apiyo va alukila kofikola ova hepaulila ookaume kavo onghalamwenyo yokomukunda. Ounona vamwe okwa li ve udite kutya onghalamwenyo yokoshilando oi li nawa. Omanga vamwe va li ve wete yokomukunda oi li xwepo. Ashike ounona aveshe, ova dimina kutya Odongo naApiyo ove na inakulu muwa.
 
 ##
 * License: [CC-BY]
