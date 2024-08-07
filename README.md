@@ -25,6 +25,7 @@ kj | Oshikwanyama
 kln | Kalenjin
 koo | Lukhonzo
 kqn | Kaonde
+kri | Krio
 ktz | Ju|’hoansi
 kwn | Kwangali
 lg | Luganda
@@ -39,7 +40,7 @@ ng | Oshindonga
 ny | Cinyanja
 old | Kichaga
 om | Oromo
-pcm | Nigerian pidgin
+pcm | Nigerian Pidgin
 rw | Kinyarwanda
 sg | Sango
 so | Somali
