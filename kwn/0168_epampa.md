@@ -35,4 +35,4 @@ Masiku ogo, muhakuli kwa pitisilire vantu vaka danene komundiro va hamberere mut
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust, Pensa Limungu, Kapilolo Mahongo, Marlene Winberg
 * Translation: Alex Kasona
-* Language: en
+* Language: kwn

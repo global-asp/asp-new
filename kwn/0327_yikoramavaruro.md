@@ -1,32 +1,32 @@
-# kuvarura yikorama
+# Yikoramavaruro
 
 ##
-Nzovhu gumwe kwa ku ka nwa mema.
+Nzovhu gumwe kuna ka nwa mema.
 
 ##
-Nombahe mbali kwa ku ka nwa mema.
+Nombahe mbali kuna kuza di ka nwe mema.
 
 ##
-Nonyatji ntatu noyidira yine nayo kuna ka nwa mema.
+Nonyatji ntatu noyidira yine nayo kuna kuza yika nwe mema.
 
 ##
-Nompara ntano noYinguruve ntazimwe kuna kugenda yize ko mema.
+Nohonge ntano noyinguruve hamboumwe kuna kugenda yina vuyuka komema.
 
 ##
-Yivaradi ntambali kuna kudukira ko mema.
+Yivaradi hambombali kuna kudukira komema.
 
 ##
-Mafuma ntantatu nonomfi ntane kwa ku zogana momema.
+Mangowowo hambondatu nonomfi mugoyi kuna kuzoga momema.
 
 ##
-Nyime gumwe kuna kununga, nage ana hara kunwa mema.Yilye ogu ana kara nowoma naNyime?
+Nyime gumwe kuna kuura. Nage ana hara kunwa. Yilye ogu ga tjira nyime?
 
 ##
-Nzovhu gumwe kuna kunwa mema kumwe na Nyime.
+Nzovhu gumwe kuna kunwa mema nanyime.
 
 ##
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Anna Sengumbe
+* Translation: Djaupyu Siteketa
 * Language: kwn

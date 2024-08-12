@@ -1,91 +1,92 @@
-# Kuzogana moMukuro gwaZambezi
+# Kuzogana moZambezi
 
 ##
-Kwa kere ezuva tali moneka unene Sondaha kositenguko. Vakadona wovanona moLusese kwa kere tava pongo monda zonomutayi dositji sosinene Musikili moCaprivi.
+Nohonga dezuva kwa vetere unene moSondaha kositenguko. Vakadonagona wopoLusese kwa ya pongere monda zositji soUkuzu wounene moCaprivi.
 
 ##
-Mukumo goruhafo romazwi gawo kwa gu zuvhire mondandango nazinye. Awo kwa zigidire vakwaawo. "Nakamwu, ame kuna kukundindira." "Genderera, Chaze." "Silume! Wiza!"
+Ezogerero lyomazwi gawo goruha kwazuvhikire momukunda nagunye. Awo kwa zigidire vakwawo zawo. "Nakumwu, Ame kuna kukundindira." "Genderera ko, Chaze." "Silume! Wiza mukwetu!"
 
 ##
-Maria kwa tara-tarere Ntwala. Ntwala ngava twara nkenye Sondaha va ka zogane. "Ntwala! Ntwalee! Ntwalaa! Ntwaloo!" yimo ga zigidire.
+Maria ta vema-vema apapare Ntwala. Ntwala yige ava twara va ka zogane nkenye Sondaha. "Ntwala! Ntwalee! Ntwalaaa! Ntwaloo!" yimo ga zigilire.
 
 ##
-Ntwala kwa zigilire kesinya kwina lyondandango, "Nyame ogu! Ame nyone nina kundindira." Vakadona navenye kwa dukire va ka mu gwane.
+Ntwala yipo ga zigilire kesinyakwina lyomukunda, "Nyame ogu, nyone nina kundindira." Vakadona navenye tava mudukire va ka mugwane.
 
 ##
-"Muna liwapaikire mu ze mu ka zogane neina?" Ntwala ga va pulire ngoso. "Yimo," awo kwa zigilire noruhafo apa va ndjakaikire nokuvatauka kumwe nehafo.
+"Namuvenye muna liwayilire mo ka zoga neina?" Yimo ga va pulire Ntwala. "Nhi," yimo va gogomokere kulimburura noruhafo oku tava vatauka.
 
 ##
-Apa va gendere va ze komukuro Ntwala kwa va simwitilire masanseko. "Tu tantera apa ndandango zetu za hanzerere mema," yimo va zigilire. "Tu tantera yokuhamena Mbanze nEngwanza."
+Monzira zawo zokuza komukuro Ntwala kwa va simwitilire masanseko. "Tu simwitira ko apa rwa kere ruhanzo pomukunda gwetu," Yimo va pulire. "Tu simwitira ko kuhamena Mbanze neNgwanza."
 
 ##
-Pepi nomukuro kwa kere po sitji sosinene soUwongo. Vakadona kwa paparerere Ntwala ewongo lyenene unene.
+Konontere domukuro kwa kere ko emukurutji lyoUwongo. Vakadona kwa kwa kwa horowerere Ntwala ewongo lyenene.
 
 ##
-"Ame nina gwana lyenene unene," yimo ga zigilire Joy. Age kwa pere Ntwala ewongo lyendi.
+"Ame nina gwana lyenene po," yimo ga zigilire Joy. Yipo ga geve ewongo kwaNtwala.
 
 ##
-"Zendeni makura mu ka zogane," yimo ga tanterere Ntwala vakadona. Navenye kwa dukilire momema, tava litakumine nokuzoragana apa va zuvhire mema gomatenda goMukuro gwaZambezi.
+"Namuvenye gwireni mo mu ka zogane," yimo ga tanterere vakadona Ntwala. Navenye yipo va vataukilire mo, awo kwalikumwidire mo ku zuvha utenda womema gomomukuro gwaZambezi.
 
 ##
-Ntwala kwa sikeme konontere domukuro. Age kwa tere vangandu. Age kwa tere vakadona wovakurona awo tava lirombere nokudivira. Age kwa tere vakadona wovanona vana kurafagura mema nokulironga kuzoga.
+Ntwala kwa sikeme kononkenkera domukuro. Age kwa tere nokunomena vangandu. Age kwa tere vakadona wovakondi mo tava rumbasana mokuzoga ntani mo ku divira. Age kwa mwene hena vakadonagona tava lirafagwire mema ntani kulironga kuzoga.
 
 ##
-"Ruveze romarumbasano," moruhura yipo ga zigilire. "Sikameni momukweyo." Age kwa damwine ewongo lyenene po unene. Age kwa lizuguminine ure momema moomu tupu ga vhulilire.
+"Siruwo somarumbasano," yimo ga zigilire sikando sokuhulilira. "Sikameni momukweyo." Yipo ga gusire ewongo lyenene po a lizugumine ure unene momema.
 
 ##
-"Zimwe, mbali, ntatu. ZENDENI!" yimo ga zigilire. Vanona kwa dukilire momema nokuzoga va vyuke kewongo. Ntwala kwa va tere.
+"Zimwe, mbali, ntatu. ZENDENI. Yimo ga zigilire. Vanona tava dukire momema nokuzoga va yuke oku lyakarere ewongo. Ntwala age kwa va tarerere tupu.
 
 ##
-"Ame gokuhova!" yimo va zigilire kumwe oMaria naChaze. "Namuvenye kuna kara wokuhova," yimo ga zigilire Ntwala.
+"Nyame gokuhova!" yimo vazigilire oMaria naChaze posiruwo simwe tupu. "Namuvenye wokuhova," yige Ntwala
 
 ##
-"Ame nina hara kuhamena hena momarumbasano," yimo ga uyungire Maria. "Yimo!" yimo ga uyungire Chaze. "Kuvhura tu hamene mo, Ntwala?" yimo va pulire vakadona wopeke.
+"Nina hara tu tengwire po hena," yimo ga uyungire Maria. "Nawa tupu!" Yige Chaze. "Kuvhura tupu, Ntwala?" Yimo va pulire vakadona vamwe.
 
 ##
-"Sikameni hena momukweyo," Ntwala yimo ga va tanterere. Age kwa damwine ewongo nokulizugumina koure moomu ga vhulire.
+"Sikameni hena momukweyo," Yimo ga va tanterere Ntwala. Ta damuna ewongo nokulizugumina hena koure.
 
 ##
-"Zimwe, mbali, ntatu. ZENDENI!" yimo ga zigilire. Vanona kwa dukilire momema nokuzogana va vyuke kewongo. Ntwala kwa va tere.
+"Zimwe, mbali, ntatu. ZENDENI!" Yimo ga zigilire. Vanona yipo dukilire momema no ku zoga va yuke oku lyakarerere ewongo. Ntwala age kwa va tarerere tupu.
 
 ##
-"Ame gokuhova!" yimo ga zigilire Chaze. Maria kwa hagekere kuzoga. "Chaze yige mufundi," yimo ga uyungire Ntwala. "Ono rugana nawa Chaze. Ngesi tu zeni nye kembo."
+"Nyame gokuhova!" Yimo ga zigilire Chaze. Maria yipo ga hagekere kuzoga. "Chaze nyove mufundi," yige Ntwala. "Ono rugana nawa, Chaze. Tu zeni ko nye kembo ngesi."
 
 ##
-Vanona kwa gendere naNtwala va ze kembo. "Ntwala, tu sansekera esanseko," yimo va mu hundilire. Awo kwa hara kupurakena komasanseko gendi.
+Vanona kwa gendere naNtwala va ze kembo. "Tu simwitira ko esanseko, Ntwala," yimo va pulire. Awo kwa haferere kupurakena komasanseko gendi.
 
 ##
-Maria kwa kokavere konyima zaChaze noku mu zundura a gwire pevhu. Chaze yipo ga tamekere kulira. "Ozina vaChaze nava ka ku toona," yimo ga tanterere Joy Maria.
+Maria yipo ga yombere Chaze kumwe nokumuzundwira pevhu. Chaze yipo ga tamekere kulira. "Onane vaChaze tava ka kutoona," yimo ga tanterere Joy, Maria.
 
 ##
-"Maria! Morwasinke ono toonene Chaze?" yimo ga pulire Ntwala. "Age kuna fundu marumbasano gokuzoga. Kapi yina hungama," yimo ga uyungire Maria.
+"Maria morwa sinke on toonene Chaze?" Yimo ga pulire Ntwala. "Morwa yeeyi ana fundu marumbasano gokuzoga. Eyi kapi ta yi vhuru kukara ngoso," yige Maria.
 
 ##
-Ntwala kwa ninkire vakadona navenye va hingire mosikwamusere. "Yisinke ga tu tantera mukuronasure?" yimo ga pulire. "Kulitoona sininke sosidona. Vantu wokurwana va hepa kuvatengeka," yimo ga uyungire Nakamwu.
+Ntwala yipo ga tanterere vakadona navenye vayingire kulikundurukida. "Mukuronasure yisinke ka tu tanterere?" Yimo ga pulire. "Yidona kurwanangana. Vantu ava ava rwana ka hepa kuva pa matengekero," yimo ga uyungire Nakumwu.
 
 ##
-"Maria ga hepa kugava mbili," yimo ga uyungire Namasiku. "Chaze ga hepa nage kumutoona," yimo ga uyungire Joy. "Hawe, yidona kulitoona," yimo ga uyungire Ntwala.
+"Maria gava mbili," yimo ga uyungire Namasiku. "Chaze nage amu zuvhise kukora," yimo gauyungire Joy. "Hawe, epuko lyenene mokulizuvhisa nyamweni nanyamweni," yige Ntwala.
 
 ##
-Ntwala kwa tente asi, "Omu nina kugazara Maria kapi nga zogana Sondaha zina kuwiza." Maria kwa lilire mahodi gomanzi. "Mbi... mbi... mbili Chaze. Mbili eyi ninka kutoona. Kapi hena ngani toona muntu," age kwa geve mbili.
+Ntwala kwa uyungire asi, "Ame kuna kugazara asi Maria kapisi nga wize ko kokuzogana Sondaha ozo zina ku kwama ko." Maria kwalilire sili mahodi gomanzi. "Ame… Ame… Gusirange po Chaze. Gusirange po kweyi nina kutoona. Kapi ngani toona hena muntu nkenye," yimo ga geve mbili.
 
 ##
-"Nina ku gusire po," yimo ga uyungire Chaze nokulidingira mawoko gendi Maria. "Ame naMaria natu za kumwe nove kembo," yimo ga tanterere Ntwala Chaze. "Maria na ka gava hena mbili konyoko."
+"Nina ku gusire po," yige Chaze kumwe nokulidingira mawoko gendi Maria. "Name naMaria ta tu zi kumwe kembo," yimo ga ga uyungire Ntwala a tantere Chaze. "Maria ga hepa ku ka gava mbili konane woge nako."
 
 ##
-Maria kwa tanterere ozina vaChaze, "Ame kuna toona Chaze morwa age kuna fundu marumbasano. Mbili. Chaze mukwetu, eyi nina mu toona sininke sosidona."
+Maria kwa ka tanterere onane vaChaze, "Ame kuna toona Chaze morwa yeeyi ana fundu marumbasano gokuzoga. Gusireninge po. Chaze mugoli zange, yidona unene kumutoona."
 
 ##
-Mugolikadi Sibungo kwa purakenene Maria. "Olyo epuko kali kara Maria, sininke sosidona kutoona vantu. Mpandu eyi ono ya gava mbili kwange. Nina ku gusire po." Mugolikadi Sibungo kwa tanterere Ntwala, "Ove mpitisili gomuwa."
+Mugolikadi Sibungo kwapurakenene Maria. "Olyo epuko Maria, yidona unene kutoona vantu. Mpandu unene kweyi ono gava mbili kwange. Nina kugusire po." Mugolikadi Sibungo yipo ga tanterere Ntwala asi, "Ove mpitisili gomuwa."
 
 ##
-Mugolikadi Sibungo kwa uyungisire vanona navenye. "Ntwala kwa gazarere sitengeko sosiwa saMaria. Age kwa toonene Chaze morwa age kwa zumbanesere marumbasano gokuzoga. Ngesi kapi nga vhura kuhamena momarumbasano."
+Mugolikadi Sibungo kwa uyungisire vanona navenye. "Ntwala yipo ga gazarere sitengekeso sosiwa saMaria. Age kwa toonene Chaze morwa kwazumbanesere marumbasano. Ngesi kapi ngalihamesera mo hena.
 
 ##
-"Nye Nane," Chaze kwa menywine, "Ame kapi nina hara asi Maria Sondaha zina kuwiza nga kare membo. Ame nina hara hena tu ka lirombere mokuzoga sivike sina kuwiza!"
+"Nye nane," Chaze ta menyuna, "Kapi nina hara Maria nga kare kembo Sondaha ozo zina kuwiza. Nina hara hena ngani ya rumbasane nendi kuzoga sivike oso sina kuwiza.
 
 ##
 * License: CC BY-NC-SA
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
+* Translation: Valentin Mpasi
 * Language: kwn

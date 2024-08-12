@@ -1,77 +1,74 @@
-# Mugara gokusiva
+# Mugara gokusivagera
 
 ##
-Ngesi kuna kara Mapeu ntani Rico kuna kuza kodoropa kumwe nozina. Age kwa hara kuza kodoropa. Doropa kuhafesa! Kwa kara mo yininke yoyinzi kutara.
+MoMapeu Rico nonane vendi tava zi kodoropa. Age kwa hara kuza nkenye apa kuza kodoropa. Kodoropa kuwa unene. Kwa kara ko yininke yoyinzi yokuvhura ku ka mona.
 
 ##
-Rico kwa kwaterere unene kuwoko kozina. Nombunga dononzi dovantu kuna kupita.
+Rico ta kwaterere kononyara donane vendi unene. Vantu wovanzi kuna kupita-pita.
 
 ##
-Kuna kara po mavega gana kurandesa yininke va ruganesa vantu komawoko.
+Kuna kara ko mavangorandesero yihongagura yomutaro yokomawoko.
 
 ##
-Nombahe dononunu kwa di honga mositji. Varugongoro nomakangara kwa yi ruganesa kon odarate nonombare doruvara. Maurenga va ruganesa kositemba sompo.
+Kuna kumoneka po nombahe vahonga noyitji, varugongoro ntani novamusugururu varuganesa konondarate noyiranda yomaruvara, noyifuwilisopeke yokudwara varuganesa koyitemba yomauta gompo.
 
 ##
-Makura yipo ga si zuvhire. Ngovera zontovara zorusumo ‘Hompa gEfumano’. Age kwa hagekere kupurakena. Kupiko zina kutundilira? Kuna kuzuvhika ngwendi muntu ana kusiva yinote yene-yene yorusumo ‘Hompa gEhafo’.
+Makura ta yi zuvhu! Kweli gumwe ana kupwagesa ngovera zontovara monsiva zo 'Amazing Grace.' Ta sikama a purakene. Kupi ko zina kutundilira?
 
 ##
-"Kapi na zuvha rumwe muntu a sivi uwaawa ngesi, " yimo ga gazarere pwamwene.
+"Ana huru apa nizuvhe muntu gokusiva ufuuli ngesi," yimo ga gazarere pwamwene.
 
 ##
-Yipo ga gendere mokatji kovantu. Makura yipo ga mu mwene! Mugara. Mwenya ezwi lyokusiva. Vantu kuna kutura yimaliva yoyitenda mondorohwa zina kara komeho zomugara.
-Nye... po yi li yina lilimbi...
+Ta pinauka movantu. Makura ta mono mugara ogu ana kusiva. Vantu kuna kutura yisilinga yoyitenda mokandorohwa kokanunu ka kere komeho zendi.
+Nye … koyili ya dilire kuwapa …
 
 ##
-Mugara gokusiva kapi ana kutara vantu. Age kuna kutara koyimaliva. Kapi ana kutara kwankenye sininke. Age kuna kupapara yimaliva yoyitenda mondorohwa nokuyitura melimba lyendi.
+Mugara ogu gokusiva kapi ana kutara kovantu. Kapi ana kutara koyimaliva. Kwato tupu oku ana kutara. Age kuna kupapara yisilinga yoyitenda mokandorohwa kumwe nokuyitura melimba lyendi.
 
 ##
-Rico ta tara mugara gokusiva, "Mpamwe kwa twika ga twika."
-Rico kapi ga mona rumwe muntu gokutwika. Ta zuvhu woma.
-Ta kwata nononkondo koroko zozina nokupura nakauke, "Nane, ogo mugara kwa twika?"
+Rico yipo ganungurukilire mugara ogu nokugazara, "Mpamwe mutwiku." Rico ha ga hura opo a mone rumwe mutwiku. Age kwa kere ana tjira. Ta dodere mohema zonane vendi nokuvapura nezwi lyenkenda, "Nane, ogwina mugara mutwiku?"
 
 ##
-Awo tava kwata kuwoko kwendi, "Yimo, kwa twika."
-"Tara age kuna kara nompango zonzera. Sinzi sovantu wokutwika kusimba mpango zonzera. Age kuruganesa mpango ezi a papaterese ko makero noyizonagwisa yongandi."
+Yipo va gusire kuwoko kwendi. "Nhi" tava mulimbura, "nhi, mutwiku. Tara, age kuna kara nositji sosizera. Vatwiku wovanzi kusimba sitji sosizera. Age kuruganesa sitji esi yipo a dimburure oku kuna kara makero ntani nayimwe peke."
 
 ##
-"Nye ngapi ana wiza kodoropa? Ngapi omu ana gendi movantu wovanzi ngesi?" Rico ana kupura ngoso.
+"Nye ngapi omu ana gendi a ya sike kodoropa? Ngap omu ana ana pinauka mombunga zovantu navenye ava? Yimo ga pulire Rico.
 
 ##
-Ozina tava mu tantere, "Mpamwe ga kara nomuntu ogu a mu pitisire nzira. Muntu ogo ose kumutumbura asi mulikidinzira."
+Onane vendi tava mutantere asi, "Mpamwe ga kara nomuntu ogu a vhuru ku mu vatera mokumupinaukisa. Ose kumutumbura muntu gwangesi asi Mupukuruli.
 
 ##
-Awo kwa gendere va ze kevega lyoyikorama. Noramba dongendasano tadi lisinti ukwiliva, matuwa taga sikama ntani vagendi porupadi tava taguruka sitaura.
+Tava gendi dogoro poZoopark. Noroboti tadi litjindji di kare sinamahako, matuwa ta ga sikama ano vantu tava taguruka sitarata.
 
 ##
-"Tara koramba zoukwiliva. Nsene zina kara ukwiliva ose kumona asi pana kara epopero mokutaguruka sitaura. Moyirongo yimwe kukara mo muhagaro gokukumba, " ozina vana kumutantera. "Nsene muntu gokutwika a zuvha muhagaro gokukumba ta diva asi pana kara epopero mokutaguruka sitaura."
+"Tara koramba zosinamahako. Nsene tumo asi sinamahako ngoso kapi pana kara hena siponga kwetu mokutaguruka sitaura. Moyirongo yimwe ku kara po ezogerero lyepembeso," yimo va uyungire onane vendi. "Vatwiku apa ava zuvhu nye muhagaro ogu gepembseso, tava diva nye asi kapi yina kara siponga mokutaguruka sitaura."
 
 ##
-Tava hingire pongwena zoukwiliva zevega lyoyikorama nokutara vantu vana kugenda va ya va pite.
-"Vantu vamwe wokutwika kwa kara nonombwa dokuvapitisira. Nombwa odo kwa di ronga di pitisire mwenyazo. Nye, nombwa odo ndiro unene. MoNamibia nonsesu unene nombwa dokupitisira da kara mo."
+Tava yingire powayi wosikwiliva wopoZoopark oku tava tara vantu vana kupita-pita.
+"Vatwiku vamwe kwa kara nombwa ezi azi va pukurura," yiwo onane vendi. "Nombwa odo kwa di deura di pukurure venyado, nye ado ndiro sili zonene. Nombwa dangesi nonsesu da kara mo moNamibia."
 
 ##
-"Kapi ta vhuru kutara tivhi," Rico ana kuuyunga ngoso.
-"Age kuzuvha tivhi noradio, " Ozina vaRico vana kumutantera. "Vantu wokutwika kwa hwa kuzuvha nawa yininke kupitakana vantu ava ava mono."
+"Mutwiku kapi a tara TV," yige Rico.
+"Age kuzuvha TV ntani Radio," yimo vamutanterere onane vendi. "Vatwiku kuzuvha yininke kupitakana vantu ava ava mono."
 
 ##
-"Nye kapi a vhuru kuresa nobuke ndi nosaitunga," Rico ana kuuyunga ngoso.
-"Po di li nobuke va tjangera vantu wokutwika montjangeso zoBreili. Mevega lyononkango va nduruka moyinka amo kwa karamo yindjomo-ndjomo eyi va rugana nondanda. Ngwendi nomoradiworokeso."
+"Nye kapi a resa nobuke ndi a rese nosaitunga," yige Rico.
+"Kodili nobuke vatjanga nonoBraille. Mevega asi varuganese inka mokutjanga nonkango, awo nondanda kwadifulisa yipo asi mutwiku a vhure kudipapatere nomawoko a rese.
 
 ##
-"Ngapi na resa nsene kapi a mono?"
-"Age kuresa nononyara dendi. Age kupapatera nononyara dendi yindjomo-ndjomo, ngwendi moomu o mono nondanda nomeho goge."
+"Ngapi omu na resa nsene age kapi a mono?
+"Age kuresa nononyara dendi. Kupapatera koyo vafulisa nononyara dendi, ngwendi momu tupu o mono nondanda nomenho goge."
 
 ##
-Rico ana tetuka sili unene mokugazara asi vantu ava va twika nawo kurugana yininke yankenye ezuva; yininke ngamoomu kugenda modoropa, ngamoomu kusiva nonsumo, ngamoomu kuresa.
+Rico ana tetuka mo ku gazara asi vantu vatwika nawo kurugana yirugana ya nkenye ezuva; yininke ngwendi kugendagura modoropa, kusivagera nonsumo, ngwendi kuresa.
 
 ##
-Ozina tava mu tantere, "Elisigo tupu lya kara pokatji koge nomuntu gokutwika lyeeli tupu asi ove kumona ano muntu gokutwika kapi a mono."
-"Ame kumona, nye kapi ani vhuru kusiva uwaawa ngwendi gogwina mugara gokutwika," Rico ta menyuna.
+Onane vendi tava mutantere asi, "Elisigo tupu pokatji koge nomutwiku lyeli asi ove kumona ano mutwiku age kapi a mono."
+"Ame kumona, nye kapi tani vhuru kusiva ufuuli sivhulise gwina mutwiku," Rico ta mwenyuna.
 
 ##
 * License: CC BY-NC-SA
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
-* Translation: Karl Nairenge
+* Translation: Valentin Mpasi
 * Language: kwn

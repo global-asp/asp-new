@@ -32,4 +32,4 @@ Nohuki do nompe kwa lisigire nedi da kere korutu nare. Elisigo eli nkenye apa ng
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
 *Translation:Anna Sengumbe
-* Language: en
+* Language: kwn

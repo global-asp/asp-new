@@ -47,4 +47,4 @@ Konyima zosiruwo sosire, Nyime taka tengura nosipara seroroko, morwa Mpo kwa duk
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
 * Translation: Alex Kasona
-* Language: en
+* Language: kwn
