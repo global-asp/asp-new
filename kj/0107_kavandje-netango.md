@@ -31,5 +31,5 @@ Olududi eli lipe eshi la ka mena kombuda, kakwa li vali la faafana filufilu naal
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: <Bertha Haimbodi>
+* Translation: Bertha Haimbodi
 * Language: kj
