@@ -47,4 +47,4 @@ Munyima dho ruvedhe rorure, Nyime ghaka hukire no rupara ro kughaya, yoyishi Mwe
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
 * Translation: Maria M. Dikuua
-* Language: en
+* Language: mhw

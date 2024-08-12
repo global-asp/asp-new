@@ -65,4 +65,4 @@ Nyina gha mu tongwere, " Apa ngenyu mwakutjakera pakatji koye nomukunga owe ne k
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
 * Translation: Maria M. Dikuua
-* Language: en
+* Language: mhw

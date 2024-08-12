@@ -89,4 +89,4 @@ Nyokwetu Sibungo gha ghambithire hanuke waheya. "Ntwala ghana ghayara thiwana ma
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
 * Translation: Ruthgela Shawanga
-* Language: en
+* Language: mhw

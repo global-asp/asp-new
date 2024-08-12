@@ -35,4 +35,4 @@ Ghuthiku ghu, nganga gha turithirepo yikina yo kumudiro mukushamberera yitombora
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust, Pensa Limungu, Kapilolo Mahongo, Marlene Winberg
 * Translation: Ruthgela Shawanga
-* Language: en
+* Language: mhw

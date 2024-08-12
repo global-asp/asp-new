@@ -32,4 +32,4 @@ Ghuhuki ghoghupya oghu wa nenine apa gha huyukire ne wa karire gho rudhi rwaro n
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
 * Translation: Maria M. Dikuua
-* Language: en
+* Language: mhw

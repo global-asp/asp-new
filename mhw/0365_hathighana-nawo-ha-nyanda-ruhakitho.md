@@ -89,4 +89,4 @@ Munyima dhoyifa mwedyendi Kave na ngumwenyendi Muzaa ha ghamwene Hilifa gha rong
 * Text: Kandume Ruusa, Sennobia-Charon Katjiuongua, Eliaser Nghitewa
 * Illustration: Jamanovandu Urike
 * Translation: Maria M. Dikuua
-* Language: en
+* Language: mhw
