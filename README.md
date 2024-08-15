@@ -46,7 +46,8 @@ sg | Sango
 so | Somali
 sw | Kiswahili
 ti | Tigrinya
-tn | Setswana
+tn | Setswana (South Africa)
+tn | Setswana (Namibia)
 toi | ChiTonga
 tum | Tumbuka
 xog | Lusoga
