@@ -1,4 +1,4 @@
-# Mdogo wangu mvivu
+# Maneru namroko
 
 ##
 Nkekurie nde asa moro.
@@ -10,7 +10,7 @@ Nkekora mringa.
 Nkeparapara nguu.
 
 ##
-Nkekora madidi kinunguny.
+Nkekora madidi a kinungunyi.
 
 ##
 Nke awira mba.
@@ -19,11 +19,11 @@ Nke awira mba.
 Nkesanja shtela.
 
 ##
-Nki kitewe nkerunda owenyi tupu maneru ichoko nalekerundaa?
+Nki kitewe nkerunda owenyi tupu maneru icho oko nalekerundaa katema tupu?
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Lauwo George
+* Translation: Lauwo George, Rogath Lauwo
 * Language: old
