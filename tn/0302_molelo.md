@@ -1,13 +1,13 @@
 # Molelo
 
 ##
-Leba, molelo!
+Leba, molelo.
 
 ##
-Molelo o a fisa.
+Molelo o a tuka.
 
 ##
-Molelo o apaya.
+Molelo o a apaya.
 
 ##
 Molelo o naya bothito.
@@ -16,10 +16,10 @@ Molelo o naya bothito.
 Molelo o ntsha lesedi.
 
 ##
-Leba, molelo!
+Leba, molelo.
 
 ##
-Molelo o a makatsa.
+Molelo o a hakgamatsa.
 
 ##
 Gape o a thatafatsa.
