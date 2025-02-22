@@ -44,6 +44,7 @@ pcm | Nigerian Pidgin
 rw | Kinyarwanda
 sg | Sango
 so | Somali
+st | Sesotho
 sw | Kiswahili
 ti | Tigrinya
 tn | Setswana (South Africa)
