@@ -4,7 +4,7 @@
 Kgang e e simolotse bogologolo jaaka diphologolo le batho ba ne ba nna mmogo. Mo malatsing a o batho ba ne ba sena ditshwanelo tsa go gotsa. Ba ne ba ja dijo tse di tala. Ke Tau fela o ne a na le maatla a molelo.
 
 ##
-Batho le diphologolo ba ne ba kopana go loga leano. ''Re tla dira eng go tsaya molelo gotswa mo go Tau gore re kgone go apaya dijo tsa rona?'' ba botsa. Ba ne ba tsaya tshwetso ya go leta go fitlhela maitsiboa mme ba simolola go opela le go opela, ba opa diatla, mme ba opa diatla, ba bitsa mongwe le mongwe gore ba kopane. ''Tlang lo bine le rona. Tlang lo bine le rona. Tlang lo bine le rona.''
+Batho le diphologolo ba ne ba kopana go loga leano. "Re tla dira eng go tsaya molelo gotswa mo go Tau gore re kgone go apaya dijo tsa rona?" ba botsa. Ba ne ba tsaya tshwetso ya go leta go fitlhela maitsiboa mme ba simolola go opela le go opela, ba opa diatla, mme ba opa diatla, ba bitsa mongwe le mongwe gore ba kopane. "Tlang lo bine le rona. Tlang lo bine le rona. Tlang lo bine le rona."
 
 ##
 Diphologolo di le dintsi di ne tsa tswa mo sekgweng go tla go bina le go opela le bone. Tau e ne ya tla ka dithobane tsa yone tsa molelo. O ne a kgotletsa dithobane, a kgotletsa a di kgotletsa. Go ise go ye kae go ne ga bonala mosi o monnye kafa tlase ga dithobane. Tau o ne a butswela mosi mme a tsenya bojang jo bo omeletseng. Go ne ga bonala tlhase e nnye mme mongwe le mongwe a tlisa logong. Go ise go ye kae mongwe le mongwe o ne a bina go dikologa molelo.

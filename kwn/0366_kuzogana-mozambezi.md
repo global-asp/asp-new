@@ -67,7 +67,7 @@ Ntwala yipo ga tanterere vakadona navenye vayingire kulikundurukida. "Mukuronasu
 "Maria gava mbili," yimo ga uyungire Namasiku. "Chaze nage amu zuvhise kukora," yimo gauyungire Joy. "Hawe, epuko lyenene mokulizuvhisa nyamweni nanyamweni," yige Ntwala.
 
 ##
-Ntwala kwa uyungire asi, "Ame kuna kugazara asi Maria kapisi nga wize ko kokuzogana Sondaha ozo zina ku kwama ko." Maria kwalilire sili mahodi gomanzi. "Ame… Ame… Gusirange po Chaze. Gusirange po kweyi nina kutoona. Kapi ngani toona hena muntu nkenye," yimo ga geve mbili.
+Ntwala kwa uyungire asi, "Ame kuna kugazara asi Maria kapisi nga wize ko kokuzogana Sondaha ozo zina ku kwama ko." Maria kwalilire sili mahodi gomanzi. "Ame... Ame... Gusirange po Chaze. Gusirange po kweyi nina kutoona. Kapi ngani toona hena muntu nkenye," yimo ga geve mbili.
 
 ##
 "Nina ku gusire po," yige Chaze kumwe nokulidingira mawoko gendi Maria. "Name naMaria ta tu zi kumwe kembo," yimo ga ga uyungire Ntwala a tantere Chaze. "Maria ga hepa ku ka gava mbili konane woge nako."

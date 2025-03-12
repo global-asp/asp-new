@@ -13,7 +13,7 @@ Hanu awa ha di pa dyango dyokughurithera kuna kughura mbuyo.
 Ene noghofotji temba oyu ghana kughura mapanana ghaTom. Awo ne kuna kughura mbuyo edhi hana kughuritha hambuyama ngenyu.
 
 ##
-"Mumukunda wetu, hambuyama pithagho ngenyu ha ghurithanga mbuyo," hanu haghamba. " Katughuru munye yu?" Hanu hepura.
+"Mumukunda wetu, hambuyama pithagho ngenyu ha ghurithanga mbuyo," hanu haghamba. "Katughuru munye yu?" Hanu hepura.
 
 ##
 Ene Tom yene mbadi wa kuhupura. Aye kwitha ghukugherera, "mughure mapanana ghange! Mughure mapanana ghange ghomatowi ghopyuu!"

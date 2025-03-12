@@ -19,7 +19,7 @@ Cwale a li utwa! Linzwi le linde la 'Grace ya Makaza'. A yema kuteeleza. Li zwel
 "Na li kuba mutu ni sa utwi mutu ya pyopyola mulola hande cwalo," a ikupula.
 
 ##
-A pumahanya mwahal'a batu. Mi cwale a mu bona! Muuna. Muña linzwi le lipyopyola muloli. Batu ba sweli kubeya muwayawaya mwalikapanyana fapil'a muuna yo. Kono … ku na ni se sifosahalile …
+A pumahanya mwahal'a batu. Mi cwale a mu bona! Muuna. Muña linzwi le lipyopyola muloli. Batu ba sweli kubeya muwayawaya mwalikapanyana fapil'a muuna yo. Kono... ku na ni se sifosahalile...
 
 ##
 Muuna ya pyopyola muloli ha talimi batu. Ha talimi masheleñi. Ha ku na sa talima. U babatela muwayawaya mwalikapa ni kuubeya mwapokoto ya hae.

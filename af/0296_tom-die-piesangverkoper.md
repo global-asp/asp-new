@@ -13,10 +13,10 @@ Mense by die mark koop die vrugte.
 Maar niemand koop Tom se piesangs nie. Hulle verkies om vrugte by vrouens te koop.
 
 ##
-"Net vrouens verkoop vrugte in ons gemeenskap," sê die mense. " Watse soort man is dit die?" vra die mense.
+"Net vrouens verkoop vrugte in ons gemeenskap," sê die mense. "Watse soort man is dit die?" vra die mense.
 
 ##
-Maar Tom gee nie moed op nie. Hy bly roep, " Piesangs te koop! Koop my lekker ryp piesangs!"
+Maar Tom gee nie moed op nie. Hy bly roep, "Piesangs te koop! Koop my lekker ryp piesangs!"
 
 ##
 Een vrou tel 'n tros piesangs op uit die houer. Sy bekyk dit deeglik.

@@ -16,7 +16,7 @@ Yipara ya Simbegwire ya kutjindjire. Mbadi gha wanine karo noruvedhe ro kuhungum
 Apa twa pitire po tughonda totupu, wiha Simbegwire gha wa tongwerire eshi ñanyi gha kutunde mudimbo mayuwa ghongandji. "Na kona kuyenda kuruyendo no yirughana," gha ghambire. Ene, nadimuka eshi ñanyi mwa ku kukunge. Rupara rwa Simbegwire rwa ndjembukire ene, wihe mbadi gha yinongononine. Anita mbadiko eyi gha ghambire. Naye mbadi gha shambererire.
 
 ##
-Yinu ya kukutere Simbegwire. Ngeshi mbadi ghana mana yirughana yendi yo padighumbo, ngambi nga kushivana, Anita ne kumupumura. Karo pa kudya murarero , mbuyama yu ngadyanga yidya yoyingi kuthiyerapo Simbegwire tukukumwena totumbirumbiru. Kehe ghuthiku Simbegwire nga diranga kate kukotha, gho ndhondhera ngugho wa nyina.
+Yinu ya kukutere Simbegwire. Ngeshi mbadi ghana mana yirughana yendi yo padighumbo, ngambi nga kushivana, Anita ne kumupumura. Karo pa kudya murarero, mbuyama yu ngadyanga yidya yoyingi kuthiyerapo Simbegwire tukukumwena totumbirumbiru. Kehe ghuthiku Simbegwire nga diranga kate kukotha, gho ndhondhera ngugho wa nyina.
 
 ##
 Mathikuthiku ghamweya, Simbegwire gha rarere no mbadi gha pindukire wangu."Owe mukamadighana sha ghuva!" Anita gha kugherire. Gha kokire Simbegwire pa ghudidi. Ngugho yu sha ghuwa gha kakatere ku dimboha, no gha djadjukire muyipindhi yiwadi.

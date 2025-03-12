@@ -19,7 +19,7 @@ Handi kombo olukolongo.
 Handi wapaleke oiyaxa.
 
 ##
-Omolwashike ndi na okulonga noudiinini… … manga omumwamememati e lipyakidila nokudanauka.
+Omolwashike ndi na okulonga noudiinini... ...manga omumwamememati e lipyakidila nokudanauka.
 
 ##
 * License: [CC-BY-NC]

@@ -4,7 +4,7 @@
 Kumbighana ghemanine mumukunda wetu noghakarire nohanu hohengi awa hadhinekire. Pamuve pakarire murongero dhodhingi thikuma dhokudhineka. Hadhineki hakuyererire ghutoya mena kukutha ku hana kuyenda makumbi ghagho.
 
 ##
- ''Ñurumbara! ñurumbara! Kuna kuyenda kuditokera!'' Na yuvire mudhineki ghana kukuyerera. Oya ne yokumbi nashana kutjaghera.
+"Ñurumbara! ñurumbara! Kuna kuyenda kuditokera!" Na yuvire mudhineki ghana kukuyerera. Oya ne yokumbi nashana kutjaghera.
 
 ##
 Kumbi ghomuñurumbara ghashanine kuyara, ene hengi hanu awa ha kuthindadhekire ha dhine. Hamwe haturire murongero dhawo mwishi dhokumbi. Hamwe haturire dhawo pawiru dhokumbi.

@@ -10,7 +10,7 @@ Bushiku bumo namwene bamaama nababika icimuseke pa kasuba panse ya ŋanda. Ilyo 
 Caliweme ukutamba bamaama, inkonde, amabuula ya nkonde, no museke uukulu. Nomba bamaama epakuntuma ukuli bamaayo. Elyo nabeba nati, "Maama napaapaata lekeni imoneko ifyo mucita..." Bamaama epakuti, "We mwanawe uleumfwa, cita ifyo nakweba endesha." Efyo naile ulubilo.
 
 ##
-Ilyo nabwelele, nasangile bamaama nabekala panse, nomba tapaali inkonde nangu umuseke. "Maama, umuseke ulikwisa, ne nkonde shilikwi, nga …" Bamaama epakuti, "Fili kuncende yandi iyankama." Nshatemenwe.
+Ilyo nabwelele, nasangile bamaama nabekala panse, nomba tapaali inkonde nangu umuseke. "Maama, umuseke ulikwisa, ne nkonde shilikwi, nga..." Bamaama epakuti, "Fili kuncende yandi iyankama." Nshatemenwe.
 
 ##
 Panuma ya nshiku shibili, bamaama bantumine mukusenda inkonto yabo ku muputule. Cilya naisulafye iciibi, akaceena kankonde ishapya kampokelela. Kukati ekwali umuseke wa nkaama. Ninshi nabafisa bwino-bwino mu bulangeti bwakale. Nafimbulapo nanunshako akaceena akasuma.

@@ -49,7 +49,7 @@ Kalizazi leliñwi, ili nako ya kakusasani, muuna-muhulu abulelela Mbongolo kuli 
 Fahalimu a lilundu mwahalaa malu bautwa buloko mi balobala. Mbongolo yalola kuli bo maayona nebakula mi nebaibiza. Mi aito zuha...
 
 ##
-… malu nasabonahali hamoho cwalo ni mulikanaayona, muuna-muhulu.
+... malu nasabonahali hamoho cwalo ni mulikanaayona, muuna-muhulu.
 
 ##
 Mbongolo, kasamulaho, yaziba sakueza.

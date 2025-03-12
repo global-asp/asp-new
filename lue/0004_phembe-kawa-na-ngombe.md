@@ -29,4 +29,4 @@ Ngombe kwenyi kalizakaminako nge minyau nayiza. Ngombe kazanguwisako hakuzomboka
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Masho Kaloza
-* Language: lue 
+* Language: lue

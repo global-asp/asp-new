@@ -19,13 +19,13 @@ Koko o ne a kgopilwe ka a latlhegetswe. E ne e le motho yo o latlhegetsweng yo o
 Koko o ne a kgopilwe tota gore a atlhamolose molomo wa gagwe thata mme a gotsa sebokolodi.
 
 ##
-Fa Koko a le mo tseleng go ya lwapeng, a kopana le Mme Sebokolodi. Mme Sebokolodi a botsa,''A ga o a mponela ngwana?''Koko a didimala .Mme Sebokolodi o ne a tshwenyegile.
+Fa Koko a le mo tseleng go ya lwapeng, a kopana le Mme Sebokolodi. Mme Sebokolodi a botsa, "A ga o a mponela ngwana?" Koko a didimala .Mme Sebokolodi o ne a tshwenyegile.
 
 ##
-Morago Mme Sebokolodi a utlwa lentswe le le kwa teng.'' Nthusa mme!'' lentswe le lela. Mme Sebokolodi a leba leba mme a reetsa ka tlhoafalo. Lentswe le tswa moteng ga koko.
+Morago Mme Sebokolodi a utlwa lentswe le le kwa teng. "Nthusa mme!" lentswe le lela. Mme Sebokolodi a leba leba mme a reetsa ka tlhoafalo. Lentswe le tswa moteng ga koko.
 
 ##
-Mme Sebokolodi a goa,''Dirisa maatla a gago ngwanaka!'' Dibokolodi di kgona go dira monkgo o o bosula le go leka go go bosula. Koko a simolola go bobola.
+Mme Sebokolodi a goa, "Dirisa maatla a gago ngwanaka!" Dibokolodi di kgona go dira monkgo o o bosula le go leka go go bosula. Koko a simolola go bobola.
 
 ##
 Koko a simolola go ruruga. O ne a metsa a bo a kgwa mathe. O ne ithimola a bo a gotlhola. Mme a gotlhola. Sebokolodi se ne se ferosa sebete.

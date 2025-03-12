@@ -13,7 +13,7 @@ Mo sekgweng, a bona sengwe se se phatshimang mo godimo ga letlapa. A atamela let
 "O montle," ga bua Phokoje a raya selo se se phatshimang se. "Mme gone ke wena mang? Ke ka ntlha ya eng o le nosi? "Ke Letsatsi" selo se se phatshimang sa araba. "Balosika ba ntlogetse fa e rile ba emelela. Ba ne ba sa batle go ntsholetsa. Ke mogote thata."
 
 ##
-Phokoje a re " Mme gone o montle thata! Ke tla go tsholetsa ke be ke go isa kwa gae go ya go kopana le rre. "Go siame, o ka na wa ntsholetsa mme o seka wa ngongorega fa ke go fisa," ga bua Letsatsi.
+Phokoje a re "Mme gone o montle thata! Ke tla go tsholetsa ke be ke go isa kwa gae go ya go kopana le rre." "Go siame, o ka na wa ntsholetsa mme o seka wa ngongorega fa ke go fisa," ga bua Letsatsi.
 
 ##
 Phokoje a pega letsatsi mo mokwatleng wa gagwe mme ba simolola mosepele wa go ya gae. Ba ise ba ye kgakala ke fa letsatsi le fisa boboa jwa ga phokoje. "A o kgona go fologa pele go tswa mo mokwatleng wa me? Ke batla go ikhutsa," ga bua Phokoje. Mokwatla wa gagwe o ne o le botlhoko thata mo a neng a palelwa le ke go tsamaya. "Tswelela fela!" ga bua Letsatsi. "Ke go boleletse gore o seka wa ngongorega!"

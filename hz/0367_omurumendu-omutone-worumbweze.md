@@ -19,7 +19,7 @@ Tjimanga eye wa zuu! Pe na omundu ngu ma tono orumbweze ama imbura embiriro indi
 "Ami hi ya rora okumuna omundu ngu ma tono orumbweze nawa nao nganda mba kwatwa.
 
 ##
-Eye wa kawondja okutuurunga mokati kovandu. Tjimanga eye wa muna omurumendu ingwi ngu ma tono orumbweze. Ovandu mave twa mo ovimariva mokarooha momurungu we. Posiya ... pe na otjiṋa tji tji he ri nawa…
+Eye wa kawondja okutuurunga mokati kovandu. Tjimanga eye wa muna omurumendu ingwi ngu ma tono orumbweze. Ovandu mave twa mo ovimariva mokarooha momurungu we. Posiya... pe na otjiṋa tji tji he ri nawa...
 
 ##
 Omurumendu omutone worumbweze ke nokutara movandu. Ke nokutara movimariva. Ke nokoṋa ku ma tara kaparukaze. Eye ma vyavyanga ovimariva mokarooha ne vi twa mondjaṱu ye.

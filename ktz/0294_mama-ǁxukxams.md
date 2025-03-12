@@ -10,7 +10,7 @@ Mama ǁxara koh nǂai area khoe ko ju ǂ'angsi, ka ǃ'aihn ǁa'aǃ'au, gǂu'u, k
 Ka koh o ǃka nǀ'ang ko ku se Mama, kosin ǁxukxam, ǁxukxam nǃu'ubusi kosin ǃauh nǃa'an. Te Mama ǁkoa ua mi ko mi taqe ko di'isi. "Mama, ǀxom nǀang kxoe mi se tca a oo totoa ka ..." "Nǁau nǂai koara ǂ'ang a ǀ'ae, da'ama du tca a ǃoa a ǀ'ae," ha zaihn. Mi ǃaah u.
 
 ##
-ǁ'Aea mi ce, Mama nǀanga tzi te ǁae ǃauh, ǃkauasi te ǁxukxam koara. "Mama, kore ǃauh o, kore ǁxukxam o, kore o…." Te ǁoaq ce nǀe'ea mi ho o, "Ha gea mi marapa ǁ'a tcisi gǃam khoea." Ka koh kaice o ǃka ta'am ǀkau!
+ǁ'Aea mi ce, Mama nǀanga tzi te ǁae ǃauh, ǃkauasi te ǁxukxam koara. "Mama, kore ǃauh o, kore ǁxukxam o, kore o..." Te ǁoaq ce nǀe'ea mi ho o, "Ha gea mi marapa ǁ'a tcisi gǃam khoea." Ka koh kaice o ǃka ta'am ǀkau!
 
 ##
 ǀAm tsaqn ǂaun, Mama ǁkoa mi te ko mi u gua ha nǂhao ǃaihan ko ha tza tjua nǃang. Te tcin to'a he mi oo ǃ'oa tjutzi, ǁxukxam sa nǃum ǁ'a ha ǂ'an gǃa'ama mi. Tju nǃang ǂaeh ke o koa kahin Mama marapa ǃauh nǃa'an gea. Ha ǁau te ǃxuma ha ǀ'ae ko nǂahm ǃ'an nǀui. Mi ǃ'oan ǁ'a nǂahm ǃ'an te ha nǂai nǂhai mi.

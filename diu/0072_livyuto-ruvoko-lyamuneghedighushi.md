@@ -4,7 +4,7 @@
 Oshino shitimwitira shaNgede, mushani waghushi, ntani mukafumughona wamakurulya va ta Gingle. Liyuva limwe opo ayendire Gingle aka shane a yuvu Ngede ana ku mu yito. Gingle ava vareka kukugwemena pakughaya ushi. A yimana ategherere nawa, kupupwida dogoro a mono shidira pamutavi pamutwe wendi. "Chitik-chitik-chitik," shina kutjopitira shidira, omo shina kuteremba-teremba kuta shitondo yenda shitondo."Chitik-chitik-chitik," a shi yita, kuminanga kadidi mposhi Gingle a kwame.
 
 ##
-Muruku rwaukahe waviri, ava katika mughukuyu waunene. Ngede ayimana munda yadimutavi. Nko shungiri pamutavi umwe nko kungumukira Gingle naku mu tantera ashi, " Odino pano! Yiya ngoli! Vinka una kudighamena weyo?" Gingle kapi adi monine mpuka uye munda yashitondo, ene ngoli a huguvalire Ngede.
+Muruku rwaukahe waviri, ava katika mughukuyu waunene. Ngede ayimana munda yadimutavi. Nko shungiri pamutavi umwe nko kungumukira Gingle naku mu tantera ashi, "Odino pano! Yiya ngoli! Vinka una kudighamena weyo?" Gingle kapi adi monine mpuka uye munda yashitondo, ene ngoli a huguvalire Ngede.
 
 ##
 Gingle nko kutura lighonga lyendi palivhu munda yashitondo, a pongayiki tuhako natumushoni twakukukuta a vankede mundiro. Opo wahwamine mundiro utwere nawa, a turapo tutondo twakukukuta mposhi ghukwate mundiro. Shikuni shinya kwayuvikire mukutapa muti waghuyingi pakutwera. A vareke kuronda, kuno uye ana patende shitiki shina kutumuku muti namayegho.
@@ -22,7 +22,7 @@ Ngede kengire navintje vinya a rughanine Gingle. Kwa mu tatililire tupu a mu shu
 Ene ngoli, Gingle a dimita mundiro, a damuna lighonga lyendi nko kayenda kumundi, nakushuva shidira. Ngede a yiyiri naugara, "VIC-torr! VIC-torrr!" Gingle a yimana, a tetuka nakukengurura shidira nko kushepa unene. "Una shana udhi ndi, una shana, muholi wande? Ha! Ene ngoli ame kurughana virughana navintje, kumwe nakuntjuma mpuka. Mukonda munke tukutaperera ushi nove?" Nko kayenda. Ngede a garapa! Kapi wakalire muteku wauwa unya kwendi! Ana hepa ku mu vyuta ruvoko.
 
 ##
-Liyuva limwe muruku rwa vivike vyangandi Gingle a yuvu shivito shaushi sha Ngede. A vurukuka utovali waushi, nko kukwama shidira shinya nka. Muruku rwaku mu pititira Gingle kuntere yawiya, Ngede a yimana a pwiyumukeko mushitondo muugumbaghamo. "Ahh," A ghayara Gingle. " Ushi mpoghuli una hepa kukara ngoli muno mushitondo." Nko kuvankeda mundiro wangu-wangu, kumwe nakuvareka kuronda, ano katondo kamundito kana kutumuko muti ana kapandeka navayegho. Ngede a shungiri a mu kengere.
+Liyuva limwe muruku rwa vivike vyangandi Gingle a yuvu shivito shaushi sha Ngede. A vurukuka utovali waushi, nko kukwama shidira shinya nka. Muruku rwaku mu pititira Gingle kuntere yawiya, Ngede a yimana a pwiyumukeko mushitondo muugumbaghamo. "Ahh," A ghayara Gingle. "Ushi mpoghuli una hepa kukara ngoli muno mushitondo." Nko kuvankeda mundiro wangu-wangu, kumwe nakuvareka kuronda, ano katondo kamundito kana kutumuko muti ana kapandeka navayegho. Ngede a shungiri a mu kengere.
 
 ##
 Gingle a rondo, na kuteteka ngoli ashi morwa nka ana kupulira kuyuva mpuka. "Walye hushi ure una kara mushitondo," a ghayara. A shenye shimpe pamutavi umweya. Mulivango lya kumona ushi, hawe twaka-twaka namajto ghalishimbu! Lishumbu lina garapa mukonda yakuluyakumuna paturo. Nko kuferera kadidi, nakuyashama lineghede mayegho ghalyo ghamanene ghamatwe.

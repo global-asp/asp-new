@@ -10,7 +10,7 @@ Eyi sweta yayinene.
 Eyi ngonga yayinene.
 
 ##
-Ou muhya wamumbunda wa …
+Ou muhya wamumbunda wa...
 
 ##
 Eli litepa lyalindende.

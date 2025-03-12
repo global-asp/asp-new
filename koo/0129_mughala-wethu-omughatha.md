@@ -19,7 +19,7 @@ Ngabiraya olhubughabugha.
 Ngoghaya esya bbakuli.
 
 ##
-Busana naki ngakolha kutsibu … ... mughala wethu inyanimusatha?
+Busana naki ngakolha kutsibu... ...mughala wethu inyanimusatha?
 
 ##
 * License: [CC-BY-NC]

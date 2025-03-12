@@ -34,7 +34,7 @@ Ngurova zimwe apa vaka tengwire vakondi vendi kembo, Kwakere vana mwena unene. S
 " Kuvhura nimudimbire po, age kuvhura a hafe hena," Sakima yimo ga tanterere vakondi vendi. Nye vakondi vendi tava mu tundisa po. "Age mugara gongawo, nye ove mumati tupu gositwiku. Ove kwaku gazara asi rusumo roge taru muvatere?"
 
 ##
-Nye nampili ngoso, Sakima kapi gali geve. Mumbyendi gomukadona tamu kwatesa ko. Yipo gahuyungire asi " Nonsumo da Sakima kuna zuvhisa nge mbili apa nina zuvhu nzara. kuvhura mugara gongawo nge dimu zuvhise mbili.
+Nye nampili ngoso, Sakima kapi gali geve. Mumbyendi gomukadona tamu kwatesa ko. Yipo gahuyungire asi "Nonsumo da Sakima kuna zuvhisa nge mbili apa nina zuvhu nzara. kuvhura mugara gongawo nge dimu zuvhise mbili."
 
 ##
 Ezuva lya kweme ko, Sakima yipo ga puli mumbyendi gomukadona amu pitisire kembo lyomu gara gongawo.

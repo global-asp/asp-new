@@ -49,7 +49,7 @@ Tsiku lina m'mawa, nkhaalamba inapempha Bulu kuti ainyamule kuipereka pa mwamba 
 Pamwamba pa mithambo, anagona. Bulu analota kuti amai ake anali kudwala ndipo anali kumuitana. Ndipo pamene anauka...
 
 ##
-….Mithambo inasowa pamozi ndi mzake, nkaalamba ija.
+... Mithambo inasowa pamozi ndi mzake, nkaalamba ija.
 
 ##
 Bulu pomaliza anadziwa zomwe anafunika kucita.

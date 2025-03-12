@@ -34,20 +34,20 @@ Rre o ne a tsamaya ntlo le ntlo a kopa batho go tsenela phuthego ya motse.
 Batho ba ne ba phutega ka fa tlase ga mokala o motonna ba reetsa.
 
 ##
-Rre o ne a ema a re,''Re tshwanetse ra dira mmogo go rarabolola mathata a rona.''
+Rre o ne a ema a re, "Re tshwanetse ra dira mmogo go rarabolola mathata a rona."
 
 ##
 Juma yo o neng a le dingwaga tse robedi,a dutse mo godimo ga setlhare
-a goa,'' Ke kgona go thusa ka go phepafatsa.''
+a goa, "Ke kgona go thusa ka go phepafatsa."
 
 ##
-Mme mongwe a re,''Bomme ba kgona go kopana le nna gore re tlhome dijo.''
+Mme mongwe a re, "Bomme ba kgona go kopana le nna gore re tlhome dijo."
 
 ##
-Rre yo mongwe a ema a re,''Borre ba tla epa sediba.
+Rre yo mongwe a ema a re, "Borre ba tla epa sediba."
 
 ##
-Ra goa rotlhe ka lentswe le le lengwe,'' Re tshwanetse go fetola matshelo a rona.''Gotswa ka letsatsi leo ra dira mmogo go rarabolola mathata a rona.
+Ra goa rotlhe ka lentswe le le lengwe, "Re tshwanetse go fetola matshelo a rona." Gotswa ka letsatsi leo ra dira mmogo go rarabolola mathata a rona.
 
 ##
 * License: [CC-BY]

@@ -16,7 +16,7 @@ Kuji kikumbi.
 Kwatalala.
 
 ##
- Mvula ibena kunoka.
+Mvula ibena kunoka.
 
 ##
 Mvula ibena kupaata.

@@ -16,19 +16,19 @@ Daar is klein kameelperdjies wat uit hout gekerf is, verkleurmannetjies en akked
 Dan hoor hy dit! Iemand fluit the lieflike deuntjie van ‘Amazing Grace ". Hy gaan staan om te luister. Waar kom dit vandaan?
 
 ##
-"Ek het nog nooit iemand so mooi hoor fluit nie, " dink hy by homself.
+"Ek het nog nooit iemand so mooi hoor fluit nie," dink hy by homself.
 
 ##
-Hy baan sy weg deur die mense. Daar sien hy die man wie so fluit. Mense gooi muntstukke in ‘n klein blikkie voor hom. Maar…iets is verkeerd…
+Hy baan sy weg deur die mense. Daar sien hy die man wie so fluit. Mense gooi muntstukke in ‘n klein blikkie voor hom. Maar... iets is verkeerd...
 
 ##
 Die fluitende man kyk nie na die mense nie. Hy kyk ook nie na die geld nie. Hy kyk na niks nie. Hy soek na die muntstukke in die blikkie en sit dit dan in sy sak.
 
 ##
-Rico staar na die fluitende man en dink, " Miskien is hy blind. " Rico het nog nooit tevore ‘n blinde persoon gesien nie. Hy voel bang. Hy gryp sy ma se rokspante vas en vra saggies, " mamma, is daardie man blind?"
+Rico staar na die fluitende man en dink, "Miskien is hy blind." Rico het nog nooit tevore ‘n blinde persoon gesien nie. Hy voel bang. Hy gryp sy ma se rokspante vas en vra saggies, "Mamma, is daardie man blind?"
 
 ##
-Sy vat sy hand. "Ja, " antwoord sy, "Ja, hy is blind. Kyk, hy het ‘n wit kierie. Baie blinde mense dra ‘n wit Kierie. Hy gebruiik dit om gate en hindernisse te vermy."
+Sy vat sy hand. "Ja," antwoord sy, "Ja, hy is blind. Kyk, hy het ‘n wit kierie. Baie blinde mense dra ‘n wit Kierie. Hy gebruiik dit om gate en hindernisse te vermy."
 
 ##
 "Maar hoe het hy dan dorp toe gekom? Hoe het hy die pad gevind tussen al die mense deur?" vra Rico.

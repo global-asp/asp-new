@@ -4,7 +4,7 @@
 Eendag het mamma 'n klomp vrugte gekry.
 
 ##
-"Wanneer kan ons van die vrugte kry?" vra ons. " Ons sal die vrugte vanaand eet," sê mamma.
+"Wanneer kan ons van die vrugte kry?" vra ons. "Ons sal die vrugte vanaand eet," sê mamma.
 
 ##
 My broer Rahim is gulsig. Hy proe aan al die vrugte. Hy eet 'n klomp daarvan.
@@ -28,13 +28,13 @@ Ons is ook kwaad vir Rahim. Maar Rahim is glad nie jammer nie.
 Rahim begin siek voel.
 
 ##
-" My maag is só seer," fluister Rahim.
+"My maag is só seer," fluister Rahim.
 
 ##
 Mamma het geweet dit gaan gebeur. Die vrugte straf vir Rahim!
 
 ##
-Later, vra Rahim ons omverskoning. " Ek sal nooit weer so snoep wees nie," belowe hy. En ons almal glo hom.
+Later, vra Rahim ons omverskoning. "Ek sal nooit weer so snoep wees nie," belowe hy. En ons almal glo hom.
 
 ##
 * License: [CC-BY]

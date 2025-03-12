@@ -1,10 +1,10 @@
 # bia mini ninkurili
 
 ##
-waliɣ’ bila,  zaɣ’ karili
+waliɣ’ bila, zaɣ’ karili
 
 ##
-waliɣ’ bila,  zaɣ’ karili
+waliɣ’ bila, zaɣ’ karili
 
 ##
 bɔɣ’ bihi, bɔɣ’ titali

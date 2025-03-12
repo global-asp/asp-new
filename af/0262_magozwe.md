@@ -34,7 +34,7 @@ Uiteindelik het Magozwe sy eie storie vir Thomas vertel. Die storie was oor sy o
 Met Magozwe se tiende verjaarsdag het Thomas vir hom 'n nuwe storieboek gegee. Dit was die verhaal van 'n arm seun van ‘n klein dorpie wat 'n bekende sokkerspeler geword het. Thomas het die storie keer op keer vir Magozwe gelees. Eendag sê hy, "Ek dink dit is tyd dat jy skool toe gaan en self leer lees. Wat dink jy?" Thomas het verduidelik dat hy weet van ‘n plek waar kinders kan woon en skool toe gaan.
 
 ##
-Magozwe het gedink aan die nuwe plek en aan skool toe gaan. Wat as sy oom reg was – sê nou net hy is te dom om iets te leer? Wat as hulle hom by die nuwe plek gaan slaan? Hy was bang. "Dis miskien beter om voort te gaan om op die straat te leef, " het hy gedink.
+Magozwe het gedink aan die nuwe plek en aan skool toe gaan. Wat as sy oom reg was – sê nou net hy is te dom om iets te leer? Wat as hulle hom by die nuwe plek gaan slaan? Hy was bang. "Dis miskien beter om voort te gaan om op die straat te leef," het hy gedink.
 
 ##
 Hy het sy vrese met Thomas gedeel. Met tyd het die man die seun gerusgestel dat die lewe by die nuwe plek beter sal wees.

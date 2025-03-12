@@ -10,7 +10,7 @@ Zazi leliñwi, nabona sizuma sene sibeilwe fa lizazi ili fandaa ndu ya bo kuku b
 Neku tabisa kubuha bo kuku, makonde, matali a makonde ni sizuma sesituna. Kono bo kuku baniluma kuya ku bo ma. "Kuku, nikupa kuli munisiye ni buhe zemulukisa..." "Usike waba mwanana wa mahanyi, eza zeu bulelezwi," batundamena. Senifunduka inge ni mata.
 
 ##
-Hasenikutile, bo kuku nebainzi fande kusina sizuma kapa makonde. "Kuku, sizuma sikai, makonde kaufela akai, mi lika kaufela likai …?" Kono kalabo yeneni filwe feela neeli, "liinzi mwa sibaka saka sa mabibo." Neeli nto yeneswabisa!
+Hasenikutile, bo kuku nebainzi fande kusina sizuma kapa makonde. "Kuku, sizuma sikai, makonde kaufela akai, mi lika kaufela likai...?" Kono kalabo yeneni filwe feela neeli, "liinzi mwa sibaka saka sa mabibo." Neeli nto yeneswabisa!
 
 ##
 Hase kufitile mazazi amabeli, bo kuku baniluma kuyobangela mulamu wa bona kwa musiyo wa bona. Nisa kwahulula feela sikwalo, naamuhelwa ki muunko wobuhali wa makonde anali bukaufi nikubuzwa. Mwa musiyo nekunani sizuma sesituna sa bo kuku sa mabibo. Nesipatilwe hande ki kubo yakale. Seni iapula ni kununka muunko womunde kakufitisisa.

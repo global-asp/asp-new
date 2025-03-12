@@ -4,7 +4,7 @@
 Leba ditshedi.
 
 ##
-Kgomo e a re ," moo."
+Kgomo e a re," moo."
 
 ##
 Podi ya re, "Mee,
@@ -16,7 +16,7 @@ Pitse ya re, "kukunyetsa."
 Kolobe e a "kgorotlha."
 
 ##
-Koko e a , "kokoretsa."
+Koko e a, "kokoretsa."
 
 ##
 Ntswa e a," bogola."

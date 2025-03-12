@@ -67,7 +67,7 @@ Ntwala wa ningira ovakazona avehe okuhaama motjiwongo. "Otjiuru tjosikore tje tu
 "Maria nga ningire ondjesiro," Namasiku wa tja. "Chaze nga yarure omatoneno ngo mu ye," Joy wa tja. "Kako, kanawa okutonasana," Ntwala wa tja.
 
 ##
-Ntwala wa tja, "Ami me munu kutja Maria Osondaha ndji mai ya ka sokukatjaara." Maria wa rira omipupo vyomahoze. "Ndji… ndji… ndji isira Chaze. Ndji isira tji mbe ku hihamisa. Ami hi mee roro okuhihamisa omundu rukwao," eye we riyaya.
+Ntwala wa tja, "Ami me munu kutja Maria Osondaha ndji mai ya ka sokukatjaara." Maria wa rira omipupo vyomahoze. "Ndji... ndji... ndji isira Chaze. Ndji isira tji mbe ku hihamisa. Ami hi mee roro okuhihamisa omundu rukwao," eye we riyaya.
 
 ##
 "Ami mbe ku isire," Chase wa tja ne ri varanga mu Maria. Eṱe na Maria matu i pamwe koyeṋu," Ntwala wa tja ku Chaze. "Maria wina ma sokukaningira ondjesiro ku mamaa woye."

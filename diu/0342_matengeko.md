@@ -35,7 +35,7 @@ Rahim ana vareke kuvera.
 Vanane va vi yivire ashi vya weno kuvishora. Nyango kuna kumu tengeka Rahim!
 
 ##
-Muruku, Rahim atu pa mbiri. " Kapi ngani pira nka kutapa," ana huguvalita. Ntani natuvantje tuna vipura.
+Muruku, Rahim atu pa mbiri. "Kapi ngani pira nka kutapa," ana huguvalita. Ntani natuvantje tuna vipura.
 
 ##
 * License: [CC-BY]

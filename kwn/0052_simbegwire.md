@@ -34,7 +34,7 @@ Ngurangura zo kukwamako, Simbegwire ta dimbi simpe rusumo rooro. Apa va wizire v
 Ogu mukadi ta tara keguru lyositji. Apa ga mwene mukadonagona noyizupangwidi yendi yonguho, ta lili, "Simbegwire, munwa mumbyange gomugara!" Vakadi wokuhupako tava hageke ku kuhwa va vatere Simbagwire kuhumburuka kositji. Mukurwa goguhwe gomukadi makura ta mu lidingire a mu pakere mbili.
 
 ##
-Simbegwire ta mu gusa nye mukurwa goguhwe gomukadi a mu tware kembo lyendi, Age kwa pere simbagwire nondja dougenya , ta mu tura pombete nonguho zendi. Masiku ogo, Simbegwire kwa lilire komeho a rare. Nye kapisi mahodi geguwo. Morwa gadivire asi ozina gona tava mu pakere mbili.
+Simbegwire ta mu gusa nye mukurwa goguhwe gomukadi a mu tware kembo lyendi, Age kwa pere simbagwire nondja dougenya, ta mu tura pombete nonguho zendi. Masiku ogo, Simbegwire kwa lilire komeho a rare. Nye kapisi mahodi geguwo. Morwa gadivire asi ozina gona tava mu pakere mbili.
 
 ##
 Apa va katengwire oguhwe kembo, tava ya gwana monzugo zendi mwato yuma. "Yinke yahoroka, Anita?" kwa pulire nomutjima gomudigu. Mukadi ta faturura asi Simbegwire kwa duka mo membo. "Ame kwa here a fumadeke nge" yimo a na kuuyunga. "Nye nampo ame ngani mu vyukilire kumutantera." Oguhwe va Simbegwire tava tundu membo noku vyukilira vaze kediva. Tava ka twikira vaze komukunda oku ga kara mukurwendi gomukadi noku ka pura nsene asi vamonako Simbengwire.

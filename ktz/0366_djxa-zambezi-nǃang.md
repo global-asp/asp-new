@@ -67,7 +67,7 @@ Ntwala gǂara ǁ'hom waqnsi nǀang siǃa gǃooa nǁari nǃang. "Skore ǁ'aiha re
 "Maria ǂ'aun gǂara ǁae ǀ'an," Namasiku koe nǁa. "Chaze ǂaun ǂam ce ha," Joy koe nǁae. "A-an, ka, ka ǀoa jan ke ǂama khoe," Ntwala koe nǁae.
 
 ##
-Ntwala ko "mi ǂ'ang te ko Maria te ǀoa djxa ǀxoa mǃa ko Sondah ku tsi." Maria tjin tcaq ha gǀa'a ǃusi. "Mi… mi… ǁae na Chaze. ǁAe na ka ke mi nǂ'am a. Mi ǀoa ceka nǂ'am ju nǀui," ha koe gǂara kxui.
+Ntwala ko "mi ǂ'ang te ko Maria te ǀoa djxa ǀxoa mǃa ko Sondah ku tsi." Maria tjin tcaq ha gǀa'a ǃusi. "Mi... mi... ǁae na Chaze. ǁAe na ka ke mi nǂ'am a. Mi ǀoa ceka nǂ'am ju nǀui," ha koe gǂara kxui.
 
 ##
 "Mi ǁae ǀ'an a," Chaze koe nǁae te nǃama Maria. "Etsa Maria ku gǃa ǀxoa a ko tjuǀho," Ntwala koe ǃoa Chaze. "Maria ceka gǃa gǂara a taqe ko ǁae ǀ'an."

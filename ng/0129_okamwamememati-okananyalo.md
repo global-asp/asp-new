@@ -19,7 +19,7 @@ Ohandi kombo egumbo.
 Ohandi yogo iiyaha.
 
 ##
-Omolwashike ndi na okulonga nuudhiginini… … manga omumwamememati ta dhana owala?
+Omolwashike ndi na okulonga nuudhiginini... ...manga omumwamememati ta dhana owala?
 
 ##
 * License: [CC-BY-NC]

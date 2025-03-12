@@ -13,7 +13,7 @@ In die bos, sien hy iets wat blink op ‘n rots. Hy het nader en nader aan die r
 "Jy is pragtig," sê Jakkals vir die glans. "Maar wie is jy? Hoekom is jy alleen?" "Ek is die son," antwoord die glans. "My familie het my hier gelos toe hulle verhuis. Hulle wou my nie gedra het nie. Ek is te warm."
 
 ##
-Die jakkals sê: "Maar jy is so mooi! Ek sal jou dra. Ek sal jou huis toe vat om my vader te ontmoet. " "Doodreg, jy kan my dra. Maar moet nie kla wanneer ek te warm word vir jou nie," sê die son.
+Die jakkals sê: "Maar jy is so mooi! Ek sal jou dra. Ek sal jou huis toe vat om my vader te ontmoet." "Doodreg, jy kan my dra. Maar moet nie kla wanneer ek te warm word vir jou nie," sê die son.
 
 ##
 Jakkals dra die son op sy rug en begin sy reis huis toe. Kort voor lank, het die son Jakkals se pels gebrand. "Sal jy asseblief van my rug afklim? Ek moet rus," sê Jakkals. Sy rug was so seer dat hy skaars kon loop. "Gaan net voort!" sê die son. "Ek het jou gesê om nie te kla nie!"

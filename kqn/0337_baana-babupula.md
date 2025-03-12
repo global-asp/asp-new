@@ -16,7 +16,7 @@ Baingijilenga nkito yabo yonse kimye kya bufuku mambo babumbilwe na bupula.
 Bino nsongwalume umo wakebeshenga bingi kuya mumute.
 
 ##
-Juuba jimo, lusako lwanji lwakoselako. Bakolojanji babalume baesekele kumukanya…
+Juuba jimo, lusako lwanji lwakoselako. Bakolojanji babalume baesekele kumukanya...
 
 ##
 Bino babanjile kumukanya! Wasungulukile namute.

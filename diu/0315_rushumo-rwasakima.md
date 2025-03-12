@@ -31,7 +31,7 @@ Ngurova yimwe vakurona vendi opo vakavyukire kumundi,vavo vana mwena. Sakima avi
 "Udito munke una karo po,yina,vava?" a pura Sakima. Sakima avi nongonona nka ashi mona ngavo wamumati ana kombana. Mukafumu unya kwa kalire ana guvu nka uye mukuma una mukwata.
 
 ##
-"Kuni muyimbira po. Kuvhura a hafe nka," Sakima a tantere vakurona vendi. Ene ngoli vakurona vendi kapi vamu pulitilire. " Uye mukafumu wamungavo ngudu. Ove mumati tupu wakupira mantjo. Una kughayara ashi rushumo roye kuru muvatera?"
+"Kuni muyimbira po. Kuvhura a hafe nka," Sakima a tantere vakurona vendi. Ene ngoli vakurona vendi kapi vamu pulitilire. "Uye mukafumu wamungavo ngudu. Ove mumati tupu wakupira mantjo. Una kughayara ashi rushumo roye kuru muvatera?"
 
 ##
 Nampiri ndi ngoweyo,Sakima kapi a kutapire. Mughunyendi wamudidi wamukadona a mukwatita ko. A ghamba,"Marushumo ghaSakima kuntendeka monyo wande nange ame ndjara nakuyuvha. Kugha vhura kushengawida mukafumu wangavo."

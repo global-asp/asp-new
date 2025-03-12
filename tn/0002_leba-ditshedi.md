@@ -4,25 +4,25 @@
 Leba ditshedi.
 
 ##
-Kgomo e a re ," moo."
+Kgomo e a re, "Moo."
 
 ##
 Podi ya re, "Mee,
 
 ##
-Pitse ya re, "kukunyetsa."
+Pitse ya re, "Kukunyetsa."
 
 ##
-Kolobe e a "kgorotlha."
+Kolobe e a "Kgorotlha."
 
 ##
-Koko e a , "kokoretsa."
+Koko e a, "Kokoretsa."
 
 ##
-Ntswa e a," bogola."
+Ntswa e a, "Bogola."
 
 ##
-Morui a re,"Shh!"
+Morui a re, "Shh!"
 
 ##
 * License: [CC-BY-NC]

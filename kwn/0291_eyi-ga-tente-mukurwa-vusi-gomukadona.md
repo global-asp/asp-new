@@ -7,13 +7,13 @@ Ngurangura zimwe zonene o zinakuru vaVusi kwamu zigidire, "Vusi ninakanderere gu
 Monzira zendi zoku za kova kondi vendi, Vusi ta gwana vamati vavali vana kutora enyango. Mumati gumwe ta mu nyangura euta makura ta li vete mositji tali tauka.
 
 ##
-" Yisi ono rugana?" Yimo ga zigilire Vusi. " Olina euta lyosikuki. Sikuki sekwareko lyampanzange. Yinke naka uyunga mukurwange nsene sipira po sikuki sekwareko?"
+"Yisi ono rugana?" Yimo ga zigilire Vusi." Olina euta lyosikuki. Sikuki sekwareko lyampanzange. Yinke naka uyunga mukurwange nsene sipira po sikuki sekwareko?"
 
 ##
 Vamati tava livere eyi vana rugana kwa Vusi. "kapi natu vhura ku kuvatera nosikuki, nye kozili mpango natu pa mpanzoge," Yimo gauyungire gumwe. Ano Vusi ta twikire norugendo rwendi.
 
 ##
-Monzira zendi ta gwana vagara vavali vana ku tunga nzugo. " Kuvhura tu dikiseko oso sitji soge kwakumoneka asi sa kora?" yimo ga pulire gumwe. Nye sitji oso kapi sa kere sina koro kozina nzugo makura tasi teka.
+Monzira zendi ta gwana vagara vavali vana ku tunga nzugo. "Kuvhura tu dikiseko oso sitji soge kwakumoneka asi sa kora?" yimo ga pulire gumwe. Nye sitji oso kapi sa kere sina koro kozina nzugo makura tasi teka.
 
 ##
 "Yinke eyi muna rugana?" Yimo ga zigilire Vusi." Oso sitji kuna kara uhwi wampanzange. Vatoli venyango yiwo vana sipenge apa vana taura euta lyosikuki. Sikuki sekwareko lyamukurwange. Ngesi pwato euta, pwato sikuki, ntani pwato uhwi. Yinke naka uyunga mpanzange?"
@@ -22,10 +22,10 @@ Monzira zendi ta gwana vagara vavali vana ku tunga nzugo. " Kuvhura tu dikiseko 
 Vatungi tava livere kweyi vana teza sitji, "Kapi natu vhura kukuvatera nosikuki, nye pouli wayi wokuvhura kupa mpanzoge." Yige gumwe gwawo. Makura Vusi ta twikire nonzira zendi.
 
 ##
-Mokukwama nzira, Vusi ta gwana munafarama nondidi. " Wayi musinke korupekwa, kuvhura nimakere ko?" Yimo za pulire ndidi. Nye wayi kwa tovarere unene dogoro ndidi tazi u manapo naunye.
+Mokukwama nzira, Vusi ta gwana munafarama nondidi. "Wayi musinke korupekwa, kuvhura nimakere ko?" Yimo za pulire ndidi. Nye wayi kwa tovarere unene dogoro ndidi tazi u manapo naunye.
 
 ##
-Yinke ono rugana?" Yimo ga zigilire Vusi. " Wina wayi kuna kara uhwi wa mpanzange. Vatungi vana u penge apa vana teza mpango sina tundu kova toli venyango. Vatoli enyango yiwo vana penge mpango apa vana taura euta lyosikuki sa mpanzange. Sikuki sekwareko lya mpanzange. Ngesi pwato euta, pwato sikuki, ntani pwato uhwi. Yinke nakauyunga mpanzange?"
+"Yinke ono rugana?" Yimo ga zigilire Vusi. "Wina wayi kuna kara uhwi wa mpanzange. Vatungi vana u penge apa vana teza mpango sina tundu kova toli venyango. Vatoli enyango yiwo vana penge mpango apa vana taura euta lyosikuki sa mpanzange. Sikuki sekwareko lya mpanzange. Ngesi pwato euta, pwato sikuki, ntani pwato uhwi. Yinke nakauyunga mpanzange?"
 
 ##
 Ndidi tazi livere kweyi za kere makurulya. Munafara tayi tambura asi ndidi za hepa ku za naVusi zi kare uhwi wa mpanzendi. Ku tunda opo Vusi ta twikire.

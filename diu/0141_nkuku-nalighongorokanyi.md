@@ -19,13 +19,13 @@ Nkuku a garapa unene mukondashi ana kombanita. A kombanita unene. Lighongorokany
 Nkuku a garapire unene nko kuyashama unene nakumina lighongorokanyi.
 
 ##
-Pakuyenda kumundi nkuku mpo a kugwanikure navawina valighongorokani. Vawina valighongorokanyi ava mu pura, " Una mono ko monande ndi?" Nkuku kwato ovyo alimburulire. Vawina vaLighongorokanyi va kalire shinka.
+Pakuyenda kumundi nkuku mpo a kugwanikure navawina valighongorokani. Vawina valighongorokanyi ava mu pura, "Una mono ko monande ndi?" Nkuku kwato ovyo alimburulire. Vawina vaLighongorokanyi va kalire shinka.
 
 ##
-Makura vawina vaLighongorokanyi ava liwyi lyalididi. " mvhaterenu yina! Ali liri liywi. Vawina valighongorokanyi ava piraraghuka vakenga nakuntje nakutegherera nawa. Liywi kwatundire munda yankuku.
+Makura vawina vaLighongorokanyi ava liwyi lyalididi. "Mvhaterenu yina! Ali liri liywi. Vawina valighongorokanyi ava piraraghuka vakenga nakuntje nakutegherera nawa. Liywi kwatundire munda yankuku."
 
 ##
-Nyokwa lighongorokanyi ayiyiri, " Ruhanita nkondo doye monande!" Maghongorokanyi kuvhura kufumburuka mwamudona na kuyivika udona-dona. Nkuku a vareke kuvera.
+Nyokwa lighongorokanyi ayiyiri, "Ruhanita nkondo doye monande!" Maghongorokanyi kuvhura kufumburuka mwamudona na kuyivika udona-dona. Nkuku a vareke kuvera.
 
 ##
 Nkuku a pikuka. Makura a mini manyenye. Makura a wetjimita nakukotora. Makura akotora. Lighongorokanyi ali kara djanyi-djani!

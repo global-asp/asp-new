@@ -22,7 +22,7 @@ Insokoshi shiipi.
 Nomba insapato ishi shiipya.
 
 ##
-… Shilalinga bwino.
+... Shilalinga bwino.
 
 ##
 * License: [CC-BY-NC]

@@ -16,7 +16,7 @@ Mowiza, age kwa mwene sininke sina kuvembera pemanya. Yipo gehederere pepi neman
 Mbanze ta uyunga asi "Nye ove omuwa! Tani kusimbi. Ame tani ku twara kembo o ka mone otate." "Nawa tupu, simbange tupu. Nye kapisi o sivane apa nani pupyara unene," yimo lina ku uyunga ezuva.
 
 ##
-Mbaze yipo gasimbire ezuva komugogo gwendi nokutengurako kembo.Pwahana kupita siruwo ezuva linatameke kuhwika mbanze.Kuvhura otundeko komugogo gwange?'' Nahepa kupwizumukako, " yimo ga uyungire mbaze. Mugogo gwendi kwaremanene unene nokugenda kapi ga vhulire. "Twikira tupu!" yimo lya uyungire ezuva. "Nakutantere asi kapisi o sivane."
+Mbaze yipo gasimbire ezuva komugogo gwendi nokutengurako kembo. Pwahana kupita siruwo ezuva linatameke kuhwika mbanze. Kuvhura otundeko komugogo gwange? "Nahepa kupwizumukako," yimo ga uyungire mbaze. Mugogo gwendi kwaremanene unene nokugenda kapi ga vhulire. "Twikira tupu!" yimo lya uyungire ezuva. "Nakutantere asi kapisi o sivane."
 
 ##
 Makura Mbanze ta mono sisindi monzira. Yipo ga kokavere konhi zosisindi yipo ezuva li gwepo.

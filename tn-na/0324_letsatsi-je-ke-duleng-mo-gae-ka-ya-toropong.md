@@ -23,7 +23,7 @@ Ke ne ka leba kwa ntle ga bese mme ke ne ka gopola ke tswa mo motseng wa me, lef
 Go ne go oletswe baeti ba dutse. Barekise ba sa ntse ba tsena mo teng go ya go rekisa dilo tsa bone kwa balaming. Mongwe lw mongwe o ne a goa maina go itsise se a se rekisang. Mafoko ao a ne utlwala a sa tlwaelega.
 
 ##
-Bapagamo ba le mmalwa ba ne ba reka dinnotsididid, bangwe ba reka mo go nnye ba a ja. ba ba se nang madi , jaaka nna, be ne ba lebeletse fela.
+Bapagamo ba le mmalwa ba ne ba reka dinnotsididid, bangwe ba reka mo go nnye ba a ja. ba ba se nang madi, jaaka nna, be ne ba lebeletse fela.
 
 ##
 Ditiro tse di ne tsa kgorelediwa ke go hutara ga bese, sekao sa gore re ipaakanyeditse go kgoetsa. Moreki a goelela barekisi go tswa mo beseng.

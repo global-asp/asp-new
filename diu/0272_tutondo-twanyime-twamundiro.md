@@ -4,7 +4,7 @@
 Shitimwitira kuna kuvarekera kushikuru opo vya tungire vikorama kumwe navantu. Mumayuva ghanya vantu kapi valire naunakondo wakumundiro. Kavalyanga ndya dadivishu. Nyime ndje tupu a kaliro na nkondo damundiro.
 
 ##
-Vantu navikorama ava kupakerere ngoli va tunge po lighano." Vinke ovyo tu vhura kurughanako mukurenka ashi natwe tuwanane mundiro kwaNyime mposhi ngatu terekange ndya detu?" Ava kupura. Ava tokora kutaterera dogoro ngurorova makura ava vareke ngoli kuyimba, kukanda nakukanda, nakuyita kehe uno vaye pamwe. " Yiyenu muwa Dane natwe. Yiyenu muwa dane natwe. Yiyenu muya dane natwe."
+Vantu navikorama ava kupakerere ngoli va tunge po lighano." Vinke ovyo tu vhura kurughanako mukurenka ashi natwe tuwanane mundiro kwaNyime mposhi ngatu terekange ndya detu?" Ava kupura. Ava tokora kutaterera dogoro ngurorova makura ava vareke ngoli kuyimba, kukanda nakukanda, nakuyita kehe uno vaye pamwe. "Yiyenu muwa Dane natwe. Yiyenu muwa dane natwe. Yiyenu muya dane natwe."
 
 ##
 Vikorama vyaviyingi kwatundire muwiya viya kupakerere kudana nakuyimba. Nyime a yita tuntondo twendi twamundiro. Gha roro tutondo, a tutoro a tutoro. Kadidi tupu kamuti aka tutumuka kuntji yatutondo. Nyime afudiliri kukamuti kanya kumwe nakukonkerako mushoni wakukuta. Kamundiro aka twera makura kehe uno a yita shikuni shendi. Muruku tupu kadidi kehe navantje ava vareke kudana vadingurukide mundiro.
@@ -13,7 +13,7 @@ Vikorama vyaviyingi kwatundire muwiya viya kupakerere kudana nakuyimba. Nyime a 
 Ndimba kwakalire shikashama shamayere na maghuru. Ava mu tantere vantu, "Pashirugho shino tuna kuyimba ntani momo ana kudana natwe Nyime pano, kanyangure tutondo twendi twamundiro makura uka duke." Ndimba aka nyangura tutondo twamundiro twaNyime aka duka. Kapi vya mu tompokire mukondashi Nyime a mukwaminikidire a kaghupako tutondo twendi twamundiro.
 
 ##
-Nyime a yimbi rushumo rwendi rwakukupandayika: " kwande ame na burwashi. Kapi nakara naudito. Kuvhura kulya ove wahuki, kuvhura kukulya ove wakupira huki. Kapi naki nakara nashinka ame. Namuvantje ndya dande
+Nyime a yimbi rushumo rwendi rwakukupandayika: "Kwande ame na burwashi. Kapi nakara naudito. Kuvhura kulya ove wahuki, kuvhura kukulya ove wakupira huki. Kapi naki nakara nashinka ame. Namuvantje ndya dande."
 
 ##
 Mbambi kuduka nakukwangura kuvatuka. Ava mu renke vantu, Pashirugho ana kudana nakuyimba natwe Nyime, una hepa katjombora tutondo twendi twamundiro makura uka dukite.

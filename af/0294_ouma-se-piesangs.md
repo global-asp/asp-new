@@ -7,7 +7,7 @@ Ouma se tuin was wonderlik, vol van sorghum, gars en maniok. Die beste van alles
 Eendag het ek 'n groot grasmandjie in die son buite Ouma se huis gesien. Toe ek gevra het waarvoor dit was, was die enigste antwoord wat ek gekry het, "Dit is my tower mandjie." Langs die mandjie, was verskeie piesangblare wat Ouma kort-kort omgedraai het. Ek was nuuskierig. "Waarvoor is die blare, Ouma?" het ek gevra. Die enigste antwoord wat ek gekry het was: "Hulle is my tower blare."
 
 ##
-Dit was so interessant om na Ouma, die piesangs, die piesang blare en die groot grasmandjie te kyk. Maar Ouma het my na my ma toe gestuur om iets te doen. "Ouma, laat my asseblief toe om te kyk hoe u voorberei..." "Moenie hardkoppig wees nie, kind, maak soos ek sê, " het sy aangedring. Ek het weggehardloop.
+Dit was so interessant om na Ouma, die piesangs, die piesang blare en die groot grasmandjie te kyk. Maar Ouma het my na my ma toe gestuur om iets te doen. "Ouma, laat my asseblief toe om te kyk hoe u voorberei..." "Moenie hardkoppig wees nie, kind, maak soos ek sê," het sy aangedring. Ek het weggehardloop.
 
 ##
 Toe ek terugkom, het Ouma buite gesit, maar daar was geen mandjie of piesangs nie. "Ouma waar is die mandjie, waar is al die piesangs en waar..." Maar die enigste antwoord wat ek gekry het, was "Hulle is in my geheime plek." Dit was so 'n teleurstelling!

@@ -1,7 +1,7 @@
 # Cizyole ca Ngede
 
 ##
-Aaka, nkaano ka Ngede, kayuni kasololela kuli buci a Gingile, mulombwana mulyato. Bumwi buzuba Gingile naakali kuvwima, wakamvwa lwiito lwa Ngede. Gingile wakamvwa mate ayenda mukanwa muzeezo wabuci niwakanjila mumutwe. Wakaima akuswiilisisya, kumwi kazibauka, akubona kayuni mucisamu. Kayuni kakatalika kulila kuti kuklooo… akuuluka kuya mucisamu cimbi. Kakali kukkala-kkala mufwaafwi kutegwa Gingile akaccilile.
+Aaka, nkaano ka Ngede, kayuni kasololela kuli buci a Gingile, mulombwana mulyato. Bumwi buzuba Gingile naakali kuvwima, wakamvwa lwiito lwa Ngede. Gingile wakamvwa mate ayenda mukanwa muzeezo wabuci niwakanjila mumutwe. Wakaima akuswiilisisya, kumwi kazibauka, akubona kayuni mucisamu. Kayuni kakatalika kulila kuti kuklooo... akuuluka kuya mucisamu cimbi. Kakali kukkala-kkala mufwaafwi kutegwa Gingile akaccilile.
 
 ##
 Nikwakainda ciindi, bakasika acisamu cipati. Ngede wakasotooka-sotooka mucisamu. Wakazingulusya mutwe cakutondezya kuti "Mbobuno kuno buci! Koboola ino! Ncinzi ncomukila?" Gingile taakabona nzuki zyili zyoonse naakali mujungusi aacisamu, pesi wakamusyoma Ngede.
@@ -19,7 +19,7 @@ Nizyakamana kuzwa nzuki mumpako, Gingile wakanjizya janza lyakwe mumpako akugwis
 Ngede wakali kulangilila zyoonse zyakali kucitika. Wakali kuyeeyela kuti ulapegwa bulumbu bwa cipaanzi ca buchi kulanganya mulimo ngwaaka chita wakumutondehya kuli buchi Gingile. Wakali kuyaa buuluka mucisamu limwi wasika munsi mwachisamu kalindila bulumbu bwakwe.
 
 ##
-Pesi Gingile wakazima mulilo, akubweza nsumo lyakwe akutalika kweenda. Ngede wakalila cakunyema kati kokuuuu…., limwi Gingile wakaimikila akuseka cakunvwika amana ulaamba, "Uyanda buci ayebo tee mweenzuma? Ha! Pesi ndime ndabeleka mulimo onse akulumwa nzuki. Ncinzi nceti kupede buci bubotu oobu?" Mpoona wakeenda waunka. Ngede wakanyema kapati. Teesyi mbwacitwa oobo muntu. Ino-ino uya kucibbadelela cizyole.
+Pesi Gingile wakazima mulilo, akubweza nsumo lyakwe akutalika kweenda. Ngede wakalila cakunyema kati kokuuuu..., limwi Gingile wakaimikila akuseka cakunvwika amana ulaamba, "Uyanda buci ayebo tee mweenzuma? Ha! Pesi ndime ndabeleka mulimo onse akulumwa nzuki. Ncinzi nceti kupede buci bubotu oobu?" Mpoona wakeenda waunka. Ngede wakanyema kapati. Teesyi mbwacitwa oobo muntu. Ino-ino uya kucibbadelela cizyole.
 
 ##
 Bumwi buzuba, Gingile wakamvwa kulila kwa Ngede. Wakayeeya buchi kunona mbwakalide nvwiki hyainda zisyoonto akutalika kumuccilila Ngede. Ngede wakaima kuti apumune mucisamu cilaa cinvhule chibotu kapati. Gingile walo wakayeeya kuti buci buli mucisamu mumona oomu. Wakakunka kalilo. Mbuli cilengwa, wakatalika kutanta, Ngede wakali kwiide kulangilila.

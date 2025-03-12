@@ -7,7 +7,7 @@ Pakarekare hanu mbadi hadimukire kehe yino. Mbadi hadimukire kukuna mbuto, ngamb
 Diyuwa dimweya, Nyame gha tokore eshi gha kona kutapa kandimbe ko ghudimuki kwaAnansi. Kehe ruvedhe nga kenganga Anansi mukandimbe ka, aye nga dimukanga thinu thothipya. Nga yi mushambererithanga thikuma!
 
 ##
-Anansi gho ghumu gha ghayarire, " Ṅanyi niture kandimbe ka kuwiru dho thitondo tho thire. Podiyo eshi ka kukare kange pithange!" Gha dhingumutwedhire wanda gho ghure ku kandimbe, no gha kuwangerere kandimbe mudipumba dyendi. Gha dhinine thitondo. Ene ya mukarere ghukukutu kudhina thitondo no kandimbe ghu mugunda pa manwi ruvedhe roruhe.
+Anansi gho ghumu gha ghayarire, "Ṅanyi niture kandimbe ka kuwiru dho thitondo tho thire. Podiyo eshi ka kukare kange pithange!" Gha dhingumutwedhire wanda gho ghure ku kandimbe, no gha kuwangerere kandimbe mudipumba dyendi. Gha dhinine thitondo. Ene ya mukarere ghukukutu kudhina thitondo no kandimbe ghu mugunda pa manwi ruvedhe roruhe.
 
 ##
 Ruvedhe roruhe mwana Anonsi gho mungaghu ghemanine pamuve dho thitondo ghurorera. Gha ghambire, "Ngo mbadi ghuredhu ngo ghuna kuwangera kandimbe kumughongo ghoye?" Anansi gha yerekire ku kuwangera kandimbe ka kokuyara ghudimuki ku mughongo wendi, shemwa ya mukarere ghuredhu.

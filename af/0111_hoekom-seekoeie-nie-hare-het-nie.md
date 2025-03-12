@@ -13,7 +13,7 @@ Seekoei het nie vir Haas gesien nie en sy trap per ongeluk op Haas se voet. Haas
 Seekoei het vir haas omverskoning gevra: "Ek is so jammer. Ek het jou nie gesien nie. Asseblief, vergewe my!" Haas wil egter nie luister nie en het op Seekoei geskree: "Jy het dit aspris gedoen! Jy sal nog sien, eendag sal jy kry wat jy verdien!"
 
 ##
-Haas het toe vir Vuur gaan haal en sê toe: " Gaan brand vir Seekoei wanneer sy uit die rivier uitkom om gras te eet. Sy het op my getrap!" Vuur antwoord vir Haas: "Geen probleem nie, Haas, my vriend. Ek sal doen net soos jy vra."
+Haas het toe vir Vuur gaan haal en sê toe: "Gaan brand vir Seekoei wanneer sy uit die rivier uitkom om gras te eet. Sy het op my getrap!" Vuur antwoord vir Haas: "Geen probleem nie, Haas, my vriend. Ek sal doen net soos jy vra."
 
 ##
 Later het Seekoei ver van die rivier af gras gaan eet. Ewe skielik "Whoosh!" Vuur begin brand. Die vlamme het Seekoei se hare begin brand.

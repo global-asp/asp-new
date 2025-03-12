@@ -13,7 +13,7 @@ Lizazi lelitatama, ili nako ya kakusasani, bakala musipili wabona ni moota yabo 
 Hasekufitile nakonyana, banana ba, bakatala mi balobala.
 
 ##
-Bo ndatae Odongo ni Apiyo babazusa hase bafitile mwahae yabo kukwaabona. Nebafumani bo kukwaabona, bo Nyar-Kanyada inge baipumulisa fa museme mwatasaa kota. Libizo le la Nyar-Kanyada mwa mushobo wa si Luo litalusa kuli, "mwana wa musali wa batu bakwa Kanyada". Neeli yanatihile mi yo munde. 
+Bo ndatae Odongo ni Apiyo babazusa hase bafitile mwahae yabo kukwaabona. Nebafumani bo kukwaabona, bo Nyar-Kanyada inge baipumulisa fa museme mwatasaa kota. Libizo le la Nyar-Kanyada mwa mushobo wa si Luo litalusa kuli, "mwana wa musali wa batu bakwa Kanyada". Neeli yanatihile mi yo munde.
 
 ##
 Nyar-Kanyada abaamuhela hande baenyi bahae ni kubina inge apotoloha-potoloha mwa ndu ni kuopela tupina katabo. Baikulu bahae Nyar-Kanyada nebatabile hahulu mi bamutambeka limpo zahae zene bamulwalezi zenezwelela kwa tolopo. "Kakukala hamukwaulule mpo yezwa kuna," abulela Odongo. "Baatili, hamukalele yaka pili," abulela Apiyo.

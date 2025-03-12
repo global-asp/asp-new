@@ -23,7 +23,7 @@ For our village for Nandahabi, the mud house fine no be small.
 
 ##
 * License: [CC-BY]
-* Text: Yusuf, Yvonne, Desire, Arafat, Judith, , Susan
+* Text: Yusuf, Yvonne, Desire, Arafat, Judith, Susan
 * Illustration: Magriet Brink, Rob Owen, Danica Strydom, Wiehan de Jager, Kathy Arbuckle
 * Translation: Anthonia Ujene
 * Language: pcm

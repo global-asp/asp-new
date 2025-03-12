@@ -49,7 +49,7 @@ Ongula yefiku limwe omulumenhu okwa pula Ndongi e mu humbate noku mu twale koxul
 Mombadambada mokati koilemo aveshe va kwatwa keemhofi ndele tava kofa. Ndongi okwa twa ondjodi ina ta vele nokwa li te mu ifana. Eshi a papuduka meemhofi...
 
 ##
-… oilemo nakaume kaye womukulupe ova kana po.
+...oilemo nakaume kaye womukulupe ova kana po.
 
 ##
 Lwaxuuninwa Ndongi okwa shiiva osho e na okuninga.

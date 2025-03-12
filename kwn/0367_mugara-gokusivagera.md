@@ -20,7 +20,7 @@ Makura ta yi zuvhu! Kweli gumwe ana kupwagesa ngovera zontovara monsiva zo 'Amaz
 
 ##
 Ta pinauka movantu. Makura ta mono mugara ogu ana kusiva. Vantu kuna kutura yisilinga yoyitenda mokandorohwa kokanunu ka kere komeho zendi.
-Nye … koyili ya dilire kuwapa …
+Nye... koyili ya dilire kuwapa...
 
 ##
 Mugara ogu gokusiva kapi ana kutara kovantu. Kapi ana kutara koyimaliva. Kwato tupu oku ana kutara. Age kuna kupapara yisilinga yoyitenda mokandorohwa kumwe nokuyitura melimba lyendi.

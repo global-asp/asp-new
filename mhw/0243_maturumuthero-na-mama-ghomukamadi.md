@@ -54,7 +54,7 @@ Kughura gho diyuwa awo kunwa koshiva pofotji. Haghamwene nyakudyagho mukutara ma
 Ene, muruvedhe rorufupi maturumuthero gheyire kughuhura no hanuke ha hukire ku ñuru mbara. Nyar-Kanyada gha pire Odongo hutji no Apiyo djeshi. Gha wa rongere yidya yo muruyendo.
 
 ##
-Apa ghana kumine wihagho nawashimbe, mbadi hashanine kuhuka. Hanuke ha kandere Nyar-Kanyada gha yende nawo kuñurumbara. Gha hekire nokughamba eshi " Nomukuru keho me, ñanyi ni mutaterange mwa kwiye kokuno kudimbo karo.
+Apa ghana kumine wihagho nawashimbe, mbadi hashanine kuhuka. Hanuke ha kandere Nyar-Kanyada gha yende nawo kuñurumbara. Gha hekire nokughamba eshi "Nomukuru keho me, ñanyi ni mutaterange mwa kwiye kokuno kudimbo karo."
 
 ##
 Odongo naApiyo waheya ha ndhondhere nyakudyagho no kumuragha.

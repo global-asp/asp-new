@@ -31,7 +31,7 @@ Kaha kawa ahanjikile ngwenyi, "Ngwalileko kahela!" Nozibele akumbulwile ngwenyi,
 Kumbi nge hikumbi atelekelelenga nakukombela nakukosela uze kawa. Likumbi limwe kawa ahanjikile ngwenyi, "Nozibele, lelo ngwatela kutambukilako masepa vamwe. Komba muzuvo, teleka vyakulya kaha kosa vyuma vyami shimbu kanda nguhiluke."
 
 ##
-Omu alingile kawa hanayi lyehi, Nozibele ambachile jikhambu jitatu kumutwe wenyi. Ahakile lukhambu lumwe mwishi yakahela, lukwavo kunyima yachikolo, kaha lumwe mumulaka. Kufumaho atuchililile kuzuvo jimbushi. 
+Omu alingile kawa hanayi lyehi, Nozibele ambachile jikhambu jitatu kumutwe wenyi. Ahakile lukhambu lumwe mwishi yakahela, lukwavo kunyima yachikolo, kaha lumwe mumulaka. Kufumaho atuchililile kuzuvo jimbushi.
 
 ##
 Omu ahilukile kawa, atondele Nozibele. Atambakanyine ngwenyi, "Nozibele, uli kulihi?" Lukhambu lwatete lwahanjikile, "Nguli kuno, mwishi yakahela." Lukhambu lwamuchivali lwahanjikile, "Nguli kuno kunyima yachikolo." Lukhambu lwamuchitatu lwahanjikile, "Nguli kuno, mumulaka."

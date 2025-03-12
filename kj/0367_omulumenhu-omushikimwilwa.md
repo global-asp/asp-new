@@ -19,7 +19,7 @@ Okwa uda sha! Opena omunhu tashiki omwilwa ta imbi ongovela iwa yeimbilo "Amazin
 "Inandi uda nande nale omunhu ta shiki omwilwa muwa ngaashi ou," osho a diladila ye mwene.
 
 ##
-Okwa enda mokati kovanhu. Okwe mu mona omulumenhu ou ta shiki omwilwa. Ovanhu otava tula oimaliwa ikukutu mokandooha kanini ke li komesho yomulumenhu. Ashike… ope na sha sha puka…
+Okwa enda mokati kovanhu. Okwe mu mona omulumenhu ou ta shiki omwilwa. Ovanhu otava tula oimaliwa ikukutu mokandooha kanini ke li komesho yomulumenhu. Ashike... ope na sha sha puka...
 
 ##
 Omushikimwilwa ita tale kovanhu. Ye ita tale koimaliwa. Ye ita tale kusha. Ota kufa oimaliwa ikukutu oyo i li mokandooxa ndele tei tula melimba laye loshikutu.

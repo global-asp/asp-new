@@ -34,7 +34,7 @@ Kgomo ya ikwatlhaela seo mme e timana. Morui a dumalana gore kgomo e kgona go ts
 Ka nako ya dijo tsa maitsiboa kgomo ya tsiela kwa moruing. Mme Susi a timelwa ke tsela mo loetong la gagwe. O ile go goroga thari kwa lenyalong lwa ga mogoloe. Balalediwa ba setse ba ja.
 
 ##
-" Ke tla dira eng?" Susi o ne a lela. "Kgomo e e sieleng e ne e le mpho, e ke e neilweng ke baagi mo boemong jwa lotlhaka. Baagi ba neile lotlhaka gone ba lo robileng go tswa basedi ba maungo Basedi ba maungo ba neile logong ka gone ba thubile lee la kuku.Kuku e ne e le ya lenyalo.Jaanong ga go na lee, kuku, le mpho."
+"Ke tla dira eng?" Susi o ne a lela. "Kgomo e e sieleng e ne e le mpho, e ke e neilweng ke baagi mo boemong jwa lotlhaka. Baagi ba neile lotlhaka gone ba lo robileng go tswa basedi ba maungo Basedi ba maungo ba neile logong ka gone ba thubile lee la kuku.Kuku e ne e le ya lenyalo.Jaanong ga go na lee, kuku, le mpho."
 
 ##
 Mogoloe Susi a akanya sebakanyana. mme a re, "Susi kgatsadiaake,Boammaaruri ga ke na sepe le mpho.Ga rekegele le jone ka kuku! Rotlhe re mmogo fa, Ke itumetse.Jaanong tswala diaparo tsa gago tse dintle re keteke letsatsi le! Se ke se Susi a se dirileng.

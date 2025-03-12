@@ -67,7 +67,7 @@ Ntwala ghepure hashengeteya waheya hatende dikandero ghuhungumana. "Ngepi gha tu
 "Maria rombe mathigherero," gha ghambire Namasiku. "Chaze naye gha muhuthe, gha ghambire Joy. "Ca, mbadi ghuhunga kukupumaghura," gha ghambire Ntwala.
 
 ##
-Ntwala gha ghambire, "Nakughayara eshi Maria ne gha kuvumwe kuyowana Shundaha gho kurandako." Maria gha dirire shemwa. "Ni… Ni… Nithiyererepo Chaze. Dishesha nakupumura. Mbadi na kupura karo munu," gha rombire.
+Ntwala gha ghambire, "Nakughayara eshi Maria ne gha kuvumwe kuyowana Shundaha gho kurandako." Maria gha dirire shemwa. "Ni... Ni... Nithiyererepo Chaze. Dishesha nakupumura. Mbadi na kupura karo munu," gha rombire.
 
 ##
 "Nakuthiyerera," gha ghambire Chaze no gha turire moko ghendi ghundhondhera Maria. "Name naMaria ne ṅanyi tuyende noye, gha ghambire Ntwala kwaChaze. "Maria ṅanyi gha karombe mathiyerero kwa nyoko nako."

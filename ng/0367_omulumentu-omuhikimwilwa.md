@@ -19,7 +19,7 @@ Ye oku uvite sha! Opwa li gumwe ngoka a li ta hiki okamwilwa okahokithi kokangal
 "Inandi uva nando onale okamwiilwa okawanawa ngaaka," osho a dhiladhila.
 
 ##
-Okwa pandakana mokati kaantu nokwa mono omulumentu ngoka a li ta hiki omwilwa. Aantu otaya tula iimaliwa mokandooha okashona ke li komeho gomulumentu, ihe … ope na sha sha puka.
+Okwa pandakana mokati kaantu nokwa mono omulumentu ngoka a li ta hiki omwilwa. Aantu otaya tula iimaliwa mokandooha okashona ke li komeho gomulumentu, ihe... ope na sha sha puka.
 
 ##
 Omuhikimwilwa nguno ita tala kaantu, ye ita tala nando okiimaliwa. Ke na nando osho ta tala. Ota pampadhala iimaliwa iikukutu mokandooha e te yi tula mondjato ye.

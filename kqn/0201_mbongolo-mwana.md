@@ -49,7 +49,7 @@ Juuba jimo lukeelo, uno mukote wamulume wabujile Mbongolo kumupaapa nekumutwala 
 Baile peulu pene pamakumbi, kabiji baponejile mutulo. Mbongolo walotele amba bainanji babeela kabiji babena kumwita. Kabiji byo abukile...
 
 ##
-… makumbi azhimañene pamo namukwabo, aye mukote.
+... makumbi azhimañene pamo namukwabo, aye mukote.
 
 ##
 Mbongolo ponkapo wasajile bya kuuba.

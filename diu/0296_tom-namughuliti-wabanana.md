@@ -13,7 +13,7 @@ Vantu kulivango lyakughulita kuna kughura nyango.
 Ene ngoli naumweshi ana kughuro banana da Tom. Kwahora kughura nyango kuvakamali.
 
 ##
-" Munkarapamwe yetu, vakamali vaghulitango nyango," mo vana kughamba vantu. Mukafumu munke uno?" Vana kupura vantu.
+"Munkarapamwe yetu, vakamali vaghulitango nyango," mo vana kughamba vantu. Mukafumu munke uno?" Vana kupura vantu.
 
 ##
 Ene ngoli Tom kapi ana kukutapa. Ana kuyiyira, Ghure nu banana dande! "Ghure nu banana dande dakupya daditovali"

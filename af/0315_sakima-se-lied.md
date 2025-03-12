@@ -16,7 +16,7 @@ Sakima se ouers het by die ryk man se huis gewerk. Hulle het vroegoggend van die
 Sakima het gehou van sing. Eendag het sy ma hom gevra, "Waar leer jy die liedjies, Sakima?"
 
 ##
-Sakima het geantwoord, " Hulle kom net, Mamma. Ek hoor hulle in my kop en dan sing ek."
+Sakima het geantwoord, "Hulle kom net, Mamma. Ek hoor hulle in my kop en dan sing ek."
 
 ##
 Sakima het daarvan gehou om vir sy sussie te sing, veral as sy honger was. Sy sussie sou luister hoe hy sy geliefkoosde lied sing. Sy sou wieg op die maat van die strelende musiek.

@@ -49,7 +49,7 @@ Bumwi buzuba, mudaala wakalomba Mbongolo kuti imubbale akumutola kumulundu.
 Nibakasika atala akati kamakumbi, mudaala ambongolo bakoona. Mbongolo yakalota kuti banyina baciswa mpoona bakali kumwiita kuyanda lugwasyo. Naakabuka...
 
 ##
-… wakajana makumbi azimaana antoomwe amwenzyinyina, mudaala.
+... wakajana makumbi azimaana antoomwe amwenzyinyina, mudaala.
 
 ##
 Mbongolo yakacizyiba cakucita.

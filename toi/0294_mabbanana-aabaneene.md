@@ -10,7 +10,7 @@ Bumwi buzuba ndakabona cinzuma ca matete kunze aŋanda yabaneene. Nindakabuzya k
 Cakali kukkomaninsya kulanga baneene, mabbanana, matuvwu amabbanana acinzuma camatete cipati. Baneene bakandituma kuunka kuli baama. "Baneene, ndiyanda kubona mbomubamba mabbanana..." "Mwaneebo utandikatazyi mwana, kocita mbuli mboambilwa." Bakazumanana, mpoona Mbondakainka kandiya kuzuza.
 
 ##
-Nindakajokela, baneene bakalikkede anze kakunyina cinzuma amabbanana. "Baneene, ino cinzuma amabbanana oonse zyili kuli…?" Bwiinguzi mbundakapegwa mbwakuti, "Ali kubusena bwamaleele." Cakandityompya kapati!
+Nindakajokela, baneene bakalikkede anze kakunyina cinzuma amabbanana. "Baneene, ino cinzuma amabbanana oonse zyili kuli...?" Bwiinguzi mbundakapegwa mbwakuti, "Ali kubusena bwamaleele." Cakandityompya kapati!
 
 ##
 Nikwakainda mazuba obilo, baneene bakandituma kuti ndibabwezele nkoli yakweenzya kuzyuli kwabo. Nindakanjila kuzyuli, ndakatambulwa akununkila kwa mabbanana abizwa. Ndakabona cinzuma camaleele kacisisidwe kabotu mungubo yakaindi. Ndakainyamuna akununkizya kanunko kaya kabotelezya maningi.

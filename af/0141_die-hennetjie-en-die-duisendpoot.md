@@ -19,13 +19,13 @@ Hennetjie was woedend dat sy verloor het. Sy was 'n slegte verloorder. Duisendpo
 Hennetjie was so kwaad dat sy besluit het om haar bek groot oop te maak en Duisendpoot in te sluk.
 
 ##
-Terwyl Hennetjie rustig huis toe loop, loop hy vir Mamma Duisendpoot raak. Mamma Duisendpoot vra bekommerd: " Het jy my kind gesien?" Hennetjie het nie 'n antwoord gehad nie. Mamma Duisendpoot was baie bekommerd.
+Terwyl Hennetjie rustig huis toe loop, loop hy vir Mamma Duisendpoot raak. Mamma Duisendpoot vra bekommerd: "Het jy my kind gesien?" Hennetjie het nie 'n antwoord gehad nie. Mamma Duisendpoot was baie bekommerd.
 
 ##
 Net toe Hennetjie begin loop hoor Mamma Duisendpoot 'n klein stemmetjie. "Help my Mamma!" skree die stem. Mamma Duisendpoot kyk soekend rond en luister versigtig. Die stem het vanuit Hennetjie se maag gekom.
 
 ##
-Mamma Duisendpoot skree: " Gebruik jou unieke kragte, my kind!" Duisendpote kan 'n slegte reuk en aaklige smaak afgee. Hennetjie begin siek voel.
+Mamma Duisendpoot skree: "Gebruik jou unieke kragte, my kind!" Duisendpote kan 'n slegte reuk en aaklige smaak afgee. Hennetjie begin siek voel.
 
 ##
 Hennetjie breek ‘n wind op. Sy het gesluk en gee ‘n spoeg. Toe nies sy en begin hoes en hoes. Duisendpoot proe verskriklik sleg.

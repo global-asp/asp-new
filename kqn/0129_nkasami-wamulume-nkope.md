@@ -19,7 +19,7 @@ Mpyanga Munzubo.
 Ngovwa Masanyi.
 
 ##
-Ene mambo oñingijila nangovu... … bino nkasami wamulume aye saka akayatu?
+Ene mambo oñingijila nangovu... ...bino nkasami wamulume aye saka akayatu?
 
 ##
 * License: [CC-BY-NC]

@@ -67,7 +67,7 @@ Ntwala okwa lombwela oukadona aveshe va kale omutumba va ninga ongonga. "Omukulu
 "Maria oku na okuyandja ombili," Namasiku osho a ti. "Chaze naye ne mu denge," Joy osho a ti. "Ahowe, Okulidenga oshinima sha puka," Ntwala osho a ti.
 
 ##
-" Ohandi didladila Maria a faule okuyowa mOsoondaxa tai shikula," Ntwala osho a ti. Maria okwa kwena mokule, nomahodi aye okwa li taa kunguluka. "O… O… Ombili Chaze. Ombili eshi nde ku denga. Itandi denge vali nande omunhu," osho a yandja ombili.
+" Ohandi didladila Maria a faule okuyowa mOsoondaxa tai shikula," Ntwala osho a ti. Maria okwa kwena mokule, nomahodi aye okwa li taa kunguluka. "O... O... Ombili Chaze. Ombili eshi nde ku denga. Itandi denge vali nande omunhu," osho a yandja ombili.
 
 ##
 "Onde ku dimina po," Chaze osho a ti, ye ta dingatele Maria nokwooko kwaye. "Ohatu ka yeni keumbo leni fye naMaria," Ntwala ta lombwele Chaze. "Maria ota ka yandja yo ombili kumeme woye."

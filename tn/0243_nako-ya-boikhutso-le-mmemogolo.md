@@ -16,7 +16,7 @@ Morago nyana, bana ba ne ba lapile mme ba robala.
 Rre o ne a tsosa Odongo le Apiyo nako ya fa ba goroga mo motseng. Ba fitlhetse Nyar- Kanyanda, mmemogolo wa bone, a ikhutsitse mo phateng ka fa tlase ga setlhare. Nyar- Kanyada ka se Luo, 'go reela mosetsana wa batho ba Kanyada'. E ne e le mme yo montle yo o kwenneng.
 
 ##
-Nyar- Kanyada o ne a ba amogela moteng ga ntlo mme a bina a dikologa phaposi ya borobalo a opela ka boitumelo. Ditlogolo tsa gagwe di ne di itumetse go mo naya dimpho tse ba di rekileng gotswa mo toropong,''Bula mpho ya me pele,'' go bua Odongo.''Nnya, mpho ya me pele!''go bua Apiyo.
+Nyar- Kanyada o ne a ba amogela moteng ga ntlo mme a bina a dikologa phaposi ya borobalo a opela ka boitumelo. Ditlogolo tsa gagwe di ne di itumetse go mo naya dimpho tse ba di rekileng gotswa mo toropong, "Bula mpho ya me pele," go bua Odongo. "Nnya, mpho ya me pele!" go bua Apiyo.
 
 ##
 Morago ga a sena go bula dimpho, Nyar-Kanyada o ile a segofatsa ditlogolo tsa gagwe ka mokgwa wa setso.
@@ -52,7 +52,7 @@ Kwa bofelong jwa letsatsi bane ba nwa tee ya chai mmogo. Ba thusa mmemogolo go b
 Mme mo nakong e khutshwane nako ya boikhutso e ne e fedile mme bana ba ne ba tshwanetse go boela kwa toropong. Nyar-Kanyada o ne a naya Odongo hutshe le Apiyo jase. O ne a ba phuthela dijo tsa loeto.
 
 ##
-E rile fa rrabone a tla go ba tsaya, ba ne ba sa batle go tsamaya. Bana ba ne ba rapela Nyar- Kanyada gore a tsamaye le bone kwa toropong. O ne a nyenya mme a re,''Ke tsofetse thata gore nka nna mo toropong. Ke tla lo leta gore lo tle kwa motseng wame gape.''
+E rile fa rrabone a tla go ba tsaya, ba ne ba sa batle go tsamaya. Bana ba ne ba rapela Nyar- Kanyada gore a tsamaye le bone kwa toropong. O ne a nyenya mme a re, "Ke tsofetse thata gore nka nna mo toropong. Ke tla lo leta gore lo tle kwa motseng wame gape."
 
 ##
 Odongo le Apiyo ka bobedi ba mo tlamparela thata mme ba re a sale sentle.
