@@ -1,19 +1,19 @@
-# Awiri
+# Awili
 
 ##
-Timanja tiwiri togwira.
+Timanja tiwili togwila.
 
 ##
-Timiyendo Tiwiri tochaira.
+Timiyendo Tiwili tochaila.
 
 ##
-Timaso tiwiri toyang'anira.
+Timaso tiwili toyang'anila.
 
 ##
-Timatu tiwiri tomverera.
+Timatu tiwili tomvelela.
 
 ##
-Ndi manja awiri okondedwa okumbatira.
+Ndi manja awili okondedwa okumbatila.
 
 ##
 * License: [CC-BY-NC]

@@ -16,7 +16,7 @@ Ndimatsuka kayela.
 Ndimaceka maungu.
 
 ##
-Ndimaduladula ndio za sipinachi.
+Ndimaduladula ndiwo za sipinachi.
 
 ##
 Amai amaduladula anyenzi.

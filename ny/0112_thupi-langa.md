@@ -10,10 +10,10 @@ Ndingajumphe nalo.
 Ndingavine nalo.
 
 ##
-Ndingasambire nalo.
+Ndingasambile nalo.
 
 ##
-Ndingasewere nalo.
+Ndingasewele nalo.
 
 ##
 Ndingamenye nalo.

@@ -1,7 +1,7 @@
 # Tsitsi
 
 ##
-Thuli alo ndi tsitsi lalifupi.
+Thuli ali ndi tsitsi lalifupi.
 
 ##
 Anna ali ndi tsitsi lalitali.
@@ -19,10 +19,10 @@ Baba ali ndi ndevu.
 Zanele wapesula tsitsi lake.
 
 ##
-Thabo wagera tsitsi lake.
+Thabo wagela tsitsi lake.
 
 ##
-Themba wagera tsitsi lake.
+Themba wagela tsitsi lake.
 
 ##
 * License: [CC-BY-NC]

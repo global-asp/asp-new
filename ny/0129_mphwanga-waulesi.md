@@ -4,22 +4,22 @@
 Ndimadzuka ndi kusonkha moto.
 
 ##
-Ndimawiritsa madzi.
+Ndimawilitsa madzi.
 
 ##
 Ndimadula nkhuni.
 
 ##
-Ndimabvundula m'moto.
+Ndimabvundula m'poto.
 
 ##
-Ndimapsyera munyumba.
+Ndimapsyela munyumba.
 
 ##
 Ndimatsuka mbale.
 
 ##
-Chifukwa nciani ndimagwira ncthito mwaphamvu ine ndekha... Pamene mphwanga atanganidwa ndi kusewera cabe?
+Chifukwa nciani ndimagwila ncthito mwaphamvu ine ndekha... Pamene mphwanga atangwanidwa ndi kusewela cabe?
 
 ##
 * License: [CC-BY-NC]

@@ -1,28 +1,28 @@
-# Ndikonda kuwerenga!
+# Ndikonda kuwelenga!
 
 ##
-Ndikonda kuwerenga.
+Ndikonda kuwelenga.
 
 ##
-Kodi ndizawerengera ndani?
+Kodi ndizawelengela ndani?
 
 ##
 Mulongo wanga agona.
 
 ##
-Kodi ndizawerengera ndani?
+Kodi ndizawelengela ndani?
 
 ##
 Amai ndi agogo ndi otangwanika.
 
 ##
-Kodi ndizawerengera ndani?
+Kodi ndizawelengela ndani?
 
 ##
 Atate ndi asukulu ndi otangwanika.
 
 ##
-Kodi ndizawerengera ndani? Ndingaziwerengere ndekha!
+Kodi ndizawelengela ndani? Ndingaziwelengele ndekha!
 
 ##
 * License: [CC-BY]

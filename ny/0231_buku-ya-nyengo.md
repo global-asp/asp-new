@@ -4,7 +4,7 @@
 Ndikouma.
 
 ##
-Dzuwa ndirotentha.
+Dzuwa ndilotentha.
 
 ##
 Kuli Mphepho yokuntha.
@@ -13,16 +13,16 @@ Kuli Mphepho yokuntha.
 Kuli mitambo.
 
 ##
-Ndikodzidzira.
+Ndikodzidzila.
 
 ##
-Mvula irokwa.
+Mvula ilokwa.
 
 ##
 Kuli mphezi.
 
 ##
-Ndiri kuona utawaleza.
+Ndili kuona utawaleza.
 
 ##
 * License: [CC-BY-NC]

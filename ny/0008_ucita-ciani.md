@@ -19,7 +19,7 @@ Aitana.
 Ndiyankha.
 
 ##
-Amvetsera.
+Amvetsela.
 
 ##
 Ucita ciani?

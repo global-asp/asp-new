@@ -1,7 +1,7 @@
 # Zovala za kusukulu
 
 ##
-Iyi delesi ndiralitali.
+Iyi delesi ndilalitali.
 
 ##
 Iyi Juzi ndiyaikulu.
@@ -22,7 +22,7 @@ Masokisi ndi afupi.
 Koma nsapato izi ndizatsopano.
 
 ##
-...zikwanira bwino-bwino.
+... zikwanila bwino.
 
 ##
 * License: [CC-BY-NC]

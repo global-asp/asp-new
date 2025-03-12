@@ -7,7 +7,7 @@ Tingi amakhala ndi agogo ake akazi.
 Amakonda kuweta ng'ombezo.
 
 ##
-Tsiku lina asirikali anabwera.
+Tsiku lina asilikali anabwela.
 
 ##
 Anatenga ng'ombezo kupita nazo.
@@ -19,19 +19,19 @@ Tingi ndi agogo ake adathawa ndi kubisala.
 Adabisala kuthengo mpaka usiku.
 
 ##
-Kenako asirikaliwo anabwerera.
+Kenako asilikaliwo anabwelela.
 
 ##
 Agogo adabisa Tingi pansi pamasamba.
 
 ##
-M'modzi wa asirikali adaika phazi lake pa iye, koma iye adakhala cete.
+M'modzi wa asilikali adaika phazi lake pa iye, koma iye adakhala cete.
 
 ##
 Kutakhala bwino, Tingi ndi agogo ake adatuluka.
 
 ##
-Anabwerera kunyumba mwakacete-cete.
+Anabwelela kunyumba mwakacete-cete.
 
 ##
 * License: [CC-BY]

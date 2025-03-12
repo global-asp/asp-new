@@ -13,7 +13,7 @@ Kodi ali pamwamba pa kabati?
 Kodi ali kumbuyo kwa mpando?
 
 ##
-Kodi ali pafupi ndi motaira zinyalala?
+Kodi ali pafupi ndi motaila zinyalala?
 
 ##
 Kodi ali mkati mwa nswanda?

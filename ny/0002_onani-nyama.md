@@ -4,22 +4,22 @@
 Onani nyama.
 
 ##
-Ng'ombe inena kuti "Moo."
+Ng'ombe inena "Moo."
 
 ##
-Mbuzi inena kuti "Meh, meh."
+Mbuzi inena "Meh, meh."
 
 ##
-Hosi inena kuti "Nei."
+Hosi inena "Nei."
 
 ##
-Nkhumba inena kuti "Gruuuu."
+Nkhumba inena "Gluuuu."
 
 ##
-Nkhuku inena kuti "Kokoliko."
+Nkhuku inena "Kokoliko."
 
 ##
-Galu anena kuti "Hu, hu, hu."
+Galu anena "Hu, hu, hu."
 
 ##
 Mlimi anena "Shhh!"

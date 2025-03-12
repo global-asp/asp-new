@@ -1,22 +1,22 @@
 # Anansi ndi Nzelu
 
 ##
-Matsiku amakedzana, anthu sanali kudziwa ciriconse. Sanadziwe kubzala mbeu, mwina kusoka zovala, mwina kupanga zitsulo zansimbi. Nyame mulungu wakumwamba anali ndi nzelu pa zonse zamdziko lapansi. Nzeluzi anazisungira bwino mu mbiya.
+Matsiku amakedzana, anthu sanali kudziwa ciliconse. Sanadziwe kubzala mbeu, mwina kusoka zovala, mwina kupanga zitsulo zansimbi. Nyame mulungu wakumwamba anali ndi nzelu pa zonse zamdziko lapansi. Nzeluzi anazisungila bwino mu mbiya.
 
 ##
-Tsiku lina, Nyame anaganiza kupatsa Anansi mbiya ya nzelu. Nthawi iriyonse Anansi akayangana mumbiyapoto, anaphunziramo cinthu cina catsopano. Cinali cokondweretsa kwambiri!
+Tsiku lina, Nyame anaganiza kupatsa Anansi mbiya ya nzelu. Nthawi iliyonse Anansi akayangana mumbiya, anaphunzilamo cinthu cina catsopano. Cinali cokondweletsa kwambili!
 
 ##
-Anansi waumbombo anaganiza, "Ndizasungira bwino mbiya pamwamba pa mtengo wautali. Motero uzakhala wanga ndekha. !" Anatenga nthambo yaitali, nakumangirira mbiya ndikuimangirira pamimba pake. Anayamba kukwera mtengo. Koma cinali cobvuta kukwera cifukwa mbiyapoto inali kumugunda kumyendo nthawi yonse.
+Anansi waumbombo anaganiza, "Ndizaisunga bwino mbiya pamwamba pa mtengo wautali. Motelo izakhala yanga ndekha!" Anatenga nthambo yaitali, yakumangilila mbiya ndikuimangilila pamimba pake. Anayamba kukwela mtengo. Koma cinali cobvuta kukwela cifukwa mbiya inali kumugunda kumyendo nthawi yonse.
 
 ##
-Pamene zonsezi zinali kucitika, mwana mwamuna mung'ono wa Anansi anali imirire kuonerera pansi pacimtengo. Iye anati, "Kodi sicizakhala capafupi kukwera mtengo ngati mwamangirira mbiya kumusana?" Anansi anayesa kumangirira mbiya yodzala ndi nzelu kumusana ndipo iye anakwera mtengo mosabvutika.
+Pamene zonsezi zinali kucitika, mwana mwamuna mung'ono wa Anansi anali imilile kuonelela pansi pacimtengo. Iye anati, "Kodi sicizakhala capafupi kukwela mtengo ngati mwamangilila mbiya kumusana?" Anansi anayesa kumangilila mbiya yodzala ndi nzelu kumusana ndipo iye anakwela mtengo mosabvutika.
 
 ##
-Posacedwa konse anafike pamwamba pa mtengo. Koma iye anaima naganiza, "Ine ndiyenera kukhala ndi nzelu zonse, koma apa mwana wanga ndiye anali ndi nzelu kupambanira ine!" Anansi anakalipa kwambiri paizi motero anataya mbiya ya nzelu pansi kucoka mucimtengo.
+Posacedwa konse anafike pamwamba pa mtengo. Koma iye anaima naganiza, "Ine ndiyenela kukhala ndi nzelu zonse, koma apa mwana wanga ndiye anali ndi nzelu kupambanila ine!" Anansi anakalipa kwambili paizi motelo anataya mbiya ya nzelu pansi kucoka mucimtengo.
 
 ##
-Mbiya inaphwanyika mtizidutswa itafika pansi. Pamenepo nzelu zinafaritsidwa kwa munthu aliyense. Ndiye mwamene anthu anaphunzirira kulima, kusoka zovala, kupanga zitsulo za nsimba ndi zinthu zina zimene anthu adziwa kucita.
+Mbiya inaphwanyika mtizidutswa itafika pansi. Pamenepo nzelu zinafalitsidwa kwa munthu aliyense. Ndiye mwamene anthu anaphunzilila kulima, kusoka zovala, kupanga zitsulo za nsimba ndi zinthu zina zimene anthu adziwa kucita.
 
 ##
 * License: [CC-BY]
