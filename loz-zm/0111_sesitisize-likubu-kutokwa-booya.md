@@ -1,28 +1,28 @@
-# Kubu haisina milili
+# Sesitisize likubu kutokwa booya
 
 ##
-Lizazi leling'wi, Shakame neizamaya kwa munanga wa nuka.
+Zazi leliñwi, Shakame neizamaya kwa munanga wa nuka.
 
 ##
-Kubu niyona neiliteni, neiya kwa kuzamaya nikuca bucwani bo butala bo bunde.
+Kubu niyona neiliteni, mi neiya kwa kuzamaya-zamaya ni kuyo fula bucwani bobunde bobutala.
 
 ##
-Kubu neisikabona kuli Shakame neiliteni mi aihata fa lihutu kakusaziba. Shakame akala kuomanya Kubu, "Wena Kubu! Auboni kuli unihatile fa lihutu?"
+Kubu neisikabona kuli Shakame neiliteñi mi aihata fa lihutu kakusaziba. Shakame yakala kuomanya Kubu, "Wena Kubu! Hauboni kuli unihatile fa lihutu, nji?"
 
 ##
-Kubu yakupa swalelo ku Shakame. "Uniswalele. Nenisikakubona! Nakupa uniswalele luli." Kono Shakame nasalati kuteeleza zeo mi ahuweleza Kubu," uezize kamabomu! Lizazi lelimu ukabona! Ukalifa koto!"
+Kubu yakupa swalelo ku Shakame. "Uniswalele. Nenisikakubona! Nakupa, uniswalele luli." Kono Shakame nasalati kuteeleza zeo mi azwelapili kuhuweleza ni kuomanisa Kubu, "Uezize kamabomu! Zazi leliñwi ukabona! Ukalifa!"
 
 ##
-Shakame yayobata mulilo nikubulela, "zamaya uyocisa Kubu aikazwa mwa mezi kuyofula bucwani, neinihatile!" Mulilo waalaba, "akuna butata wena, Shakame mulikanaka. Nikaeza kamo kupezi."
+Shakame yayobata mulilo ni kuubulela kuli, "Zamaya, uyocisa Kubu aikazwa mwa mezi kuyofula bucwani. Neinihatile!" Mulilo waalaba, "Hakuna butata, Shakame mulikani. Nikaeza kamo kupezi."
 
 ##
-Kasamulaho Kubu neifulela kwahule ni nuka. "Mawee!" Mulilo watuka hahulu. Malimi a mulilo akala kucisa milili ya Kubu.
+Kasamulaho, Kubu neifula bucwani kwahule ni nuka mi, "Mawee!" Mulilo wa lyakama kutuka hahulu. Malimi a mulilo akala kucisa booya bwa Kubu.
 
 ##
-Kubu yakala kulila mi yamatela mwa mezi. Milili yayona kaufela neicisizwe ki mulilo. Kubu yaekeza kulila, "Milili yaka icisizwe ki mulilo. Milili yaka kaufela iile. Milili yaka yeminde!"
+Kubu yakala kulila mi yamatela mwa mezi. Booya bwa yona kaufela nebucisizwe ki mulilo. Kubu yaekeza kulila, "Booya bwaka bucisizwe ki mulilo. Booya bwaka kaufela buile. Booya bwaka bobunde!"
 
 ##
-Shakame neitabile kubona milili ya Kubu inge icile. Mi nikacenule, kasabo ya mulilo, Kubu aiyangi kwahule ni mezi.
+Shakame neitabile kuli booya bwa Kubu nebucile. Mi ni kacenule, kakusaba mulilo, Kubu aiyangi kwahule ni mezi.
 
 ##
 * License: [CC-BY]

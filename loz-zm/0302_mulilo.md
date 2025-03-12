@@ -22,7 +22,7 @@ Bona, mulilo!
 Mulilo ki womunde.
 
 ##
-Hape unani mata.
+Hape unani maata.
 
 ##
 * License: [CC-BY]

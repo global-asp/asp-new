@@ -1,28 +1,28 @@
-# Amutalime lifolofolo
+# Amubone lifolofolo
 
 ##
-Amutalime lifolofolo.
+Amubone lifolofolo.
 
 ##
-Komu ibulelanga kuli, "moo."
+Komu ili, "mooo."
 
 ##
-Puli ibulelanga kuli, "mee, mee."
+Puli ili, "mee, mee."
 
 ##
-Mbongolo ibulelanga kuli, "neeee."
+Mbongolo ili, "neeee."
 
 ##
-Kulube ibulelanga kuli, "griiii".
+Kulube ili, "giiii."
 
 ##
-Kuhu ibulelanga kuli, "kukulukuuu".
+Kuhu ili, "kukulukuuu."
 
 ##
-Nja ibulelanga kuli, "hu hu"
+Nja ili, "hu hu."
 
 ##
-Mulimi ubulelanga kuli, "shiiiii".
+Mulimi uli, "shiiiii!"
 
 ##
 * License: [CC-BY-NC]

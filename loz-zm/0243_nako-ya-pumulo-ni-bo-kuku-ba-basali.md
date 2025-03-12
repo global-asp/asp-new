@@ -1,64 +1,64 @@
-# Kwapumulo ni bo kuku
+# Nako ya pumulo ni bo kuku ba basali
 
 ##
-Odongo ni Apiyo nebapila hamoho ni bo ndataa bona mwa tolopo. Kabaka la kuziba kuli nebaswanela kuyopumula ni kukwabona, balibelela nako yapumulo kuli ifite. Bo kukwaa bona nebapila mwamunzi oli kwatuko a lisa lelituna mone kuyambiwa litapi.
+Odongo ni Apiyo nebapila hamoho ni bo ndataabona kwa tolopo. Nebalata hahulu nako ya pumulo. Neisi feela kuli likolo nelikwala, kono kabakala kuli nebayo potelanga bo kukwaabona. Bo kukwaabona nebapila mwamunzi wo kwatuko a lisa lelituna mone kuyambiwanga litapi.
 
 ##
-Odongo ni Apiyo nebatabile aifita nako yakupumula kakuli nebaswanela kuya kubo kukwaa bona hape. Lizazi lisikafita kale, baitukiseza musipili omutelele ka kulonga libyana zabona mwamikotana. Bapalelwa kulobala kapa kunopa buloko busihu bo mi baambola kaza musipili wabona wa kwa pumulo.
+Odongo ni Apiyo nebatabile kakuli neseili nako ya kuya kuyo potela bo kukwaabona babasali hape. Busihu bwa kuzuha lizazi la kufunduka musipili tuna wo, baitukiseza ni kulonga libyana zabona mwa mikotana. Bapalelwa kulobala mi baambola busihu kaufela kaza musipili wabona wa kuya kwa pumulo.
 
 ##
-Kakusasani lizazi lelitama bakala musipili wabona ka kuitusisa mota yabo ndatabona. Bafita mwa malundu, mwahalaa lifolofolo ni mwa masimu mokucezwi licalo za tii. Nebasweli kubala limota zenelibafitelela nikushelana nibona mwa mukwakwa ni kuopela lipina inge baliba kubo kukwaa bona.
+Lizazi lelitatama, ili nako ya kakusasani, bakala musipili wabona ni moota yabo ndataabona. Bafita mwa malundu, mwahalaa lifolofolo ni mwa masimu amatuna mokucezwi licalo za tii. Nebasweli kubala limota ni kuopela lipina.
 
 ##
-Asekufitile nakonyana, banana bakatala mi balobala.
+Hasekufitile nakonyana, banana ba, bakatala mi balobala.
 
 ##
-Bo ndataa bona babazusa bo Udongo ni Apiyo asebafitile mwahae yabo kukwaa bona. Nebafumani bo kukwaa bona bo Nyar-Kanyada inge baipumulisa fa museme mwatasa kota. Libizo le la Nyar-Kanyada mwamushobo wa siLuo litalusa kuli, 'mwana wa musali wabatu bakwa Kanyada'. Neli mucembele yanasa ikutwa nikutiya hape nibunde.
+Bo ndatae Odongo ni Apiyo babazusa hase bafitile mwahae yabo kukwaabona. Nebafumani bo kukwaabona, bo Nyar-Kanyada inge baipumulisa fa museme mwatasaa kota. Libizo le la Nyar-Kanyada mwa mushobo wa si Luo litalusa kuli, "mwana wa musali wa batu bakwa Kanyada". Neeli yanatihile mi yo munde. 
 
 ##
-Nyar-Kanyanda atambula baenyi bahae nikukala kulumelisana ni kubina inge apotoloha mwa ndu ni kuopela katabo. Baikulu bahae Nyar-Kanyada bataba hahulu nikumutambeka limpo zahae zezwelela kwa tolopo inze banyakalile. "Kakukala amukwaulule mpo yezwa kuna," abulela Odongo. "Batili, amukale yaka pili," abulela Apiyo.
+Nyar-Kanyada abaamuhela hande baenyi bahae ni kubina inge apotoloha-potoloha mwa ndu ni kuopela tupina katabo. Baikulu bahae Nyar-Kanyada nebatabile hahulu mi bamutambeka limpo zahae zene bamulwalezi zenezwelela kwa tolopo. "Kakukala hamukwaulule mpo yezwa kuna," abulela Odongo. "Baatili, hamukalele yaka pili," abulela Apiyo.
 
 ##
-Bo kukwaa bona asebafelize kukwaulula limpo zabona, bafuyola baikulyabo ka sizo.
+Hase bafelize kukwaulula limpo zabona, bo kukwaabona ba bafuyola ka siizo.
 
 ##
-Abafeza zeo Odongo ni Apiyo bazwela fande nikukala kumatisa lipulumuki ni linyunywani.
+Habafelize zeo, Odongo ni Apiyo bazwela fande nikukala kumatisa lipulumuki ni linyunywani.
 
 ##
-Bapahama kwa likota hape nikuhasanya mezi mwa lisa.
+Bapahama kwa likota ni kutapwita mwa mezi a mwa liisa.
 
 ##
-Aselilikezi lizazi bakutela kwa hae kuli bayoca mulalelo. Basikafeza kale kuca bakala kuozela!
+Hase lilikezi lizazi, bakutela kwa hae kuli bayoca mulalelo. Basikafeza kale kuca bakala kuozela!
 
 ##
-Lizazi lelitama, bo ndataa bona basiya banana kubo kukwaa bona bo Nyar-Kanyada.
+Lizazi lelitatama, bo ndataabona bafunduka kukutela kwa tolopo kusiya banana kubo kukwaabona, bo Nyar-Kanyada.
 
 ##
-Odongo ni Apiyo batusa bo kukwaa bona kwamisebezi yamwandu. Babakela mezi nikulwalela likota. Neba nopanga mai alikuhu nikuyanga muloho wamwa simu.
+Odongo ni Apiyo batusa bo kukwaabona kwa misebezi ya mwa lapa. Ba bakela mezi ni kulwalela likota. Neba nopanga mai ali kuhu ni kuyanganga miloho mwa simu.
 
 ##
-Nyar-Kanyada aluta baikulu bahae mwakusokela buhobe bwakucisa ni mulo. Nimwakutatehela buloto bwakucisa nilitapi za kubesa.
+Nyar-Kanyada aluta baikulyae kusoka buhobe bwakucisa ni mulo. Nimwakutatehela laisi ya kucisa ni litapi zakubesa.
 
 ##
-Lizazi leling'wi, Odongo aisa likomo zabo kukwaa hae kwa kufula. Zakena mwasimu ya muuna yabapani nibo kukwaa bona. Mulimi yo anyemela Odongo. Amusabisa kuli likomu ze ukalikwalela mwamulaka wahae kabakala kuli licile licalo zahae. Kuzwa lizazi leo, Odongo akala kumamelanga likomu aya kwakulisa.
+Lizazi leliñwi, Odongo haisa likomo zabo kukwaahae kwa kufula. Zakena mwa simu yene bapaani ni yabo kukwaahae. Mulimi yoo anyemela Odongo. Hamusabisa kuli nakakwalela likomu zabo kukwaahae mwa mulaka wahae kabakala kuli licile licalo zahae. Kuzwa lizazi leo, Odongo akala kumamelanga likomu hanayanga kwakulisa.
 
 ##
-Lizazi leling'wi banana baya kwa musika hamoho ni Nyar-Kanyada. Bo kukwaa bona nebanani sintolo monebalekiseza muloho, swikili ni mulola. Apiyo natabela kubulelela batu liteko zalika zamwasintolo. Odongo yena nalongelanga batu benabaleka lika.
+Lizazi leliñwi hape, banana baya kwa musika hamoho ni bo Nyar-Kanyada. Nebanani sintolo-nyana monebalekisezanga miloho, swikili ni mulola. Apiyo natabelanga hahulu kubulelelanga batu liteko zalika za mwa sintolo. Odongo yena nalongelanga lika batu benabaleka.
 
 ##
-Asebakotokile, lizazi inge lilikezi, banwa tii hamoho. Batusa bo kukwabona kubala masheleng'i enebafumani mwalizazi leo lakulekisa.
+Hase bakotokile, manzibwana, nebanwanga tii hamoho. Hape nebatusanga bo kukwaabona kubala masheleñi afumanwi mwalizazi leo.
 
 ##
-Kono kanakonyana mazazi apumulo afeela mi nebanani nikukutela kwa tolopo. Bo Nyar-Kanyada bafa mpo ya komoki ku Odongo, Apiyo yena bamufa sweta. Kukwaa bona abalongela niza kucela mwa nzila.
+Kono kanakonyana, mazazi a pumulo afeela mi banana nebanani kukutela kwa tolopo. Bo Nyar-Kanyada bafa Odongo mpo ya kuwani mi Apiyo yena bamufa sweta. Babalongela lico za kucela mwa musipili.
 
 ##
-Bo ndataa bona abatobanga, banana nebasalati kukutela kwa tolopo. Bakupa bo kukwaa bona kuli bafunduke nibona kuya kwa tolopo. Bamenya ni kuli, "Nihulile hahulu kupila mwabukuwa hanikoni. Nikana ni milibelela kufitela mukatopota hape mwapumulo yetaha."
+Bo ndataabona hane batobaanga, banana nebasalati kukutela kwa tolopo. Bakupa bo kukwaabona kuli baye ni bona kwa tolopo. Bamenya ni kubulela kuli, "Nihulile hahulu, hanikoni kupila mwa tolopo, nika milibelela kufitela mukatonipotela hape."
 
 ##
-Odongo ni Apiyo bakumbatela bo kukwaa bona niku batubeta nikubalaeza.
+Odongo ni Apiyo bai kumbata nibo kukwaabona ni kubalaeza.
 
 ##
-Anebafitile kwasilolo, Odongo ni Apiyo bakandekela balikani babona za bupilo bwa kwahae. Babang'wi banana banahana kuli bupilo bwamwa tolopo kibobunde kufita bwa mwahae. Babang'wi banahana kuli bupilo bwamwa hae bwafita bwa mwa tolopo. Kono zetabisa kikuli kaufela bona balumela kuli Odongo ni Apiyo nebanani bo kukwabona babamakaza.
+Hane bafitile kwa sikolo, Odongo ni Apiyo bakandekela balikani babona za bupilo bwa kwa hae. Banana babañwi nebaikutwa kuli bupilo bwa mwa tolopo kibobunde kufita bwa kwa hae. Babañwi nebaikutwa kuli bupilo bwa mwa hae bwafita bwa mwa tolopo. Kono zenetabisa kaufela neeli kuli, mañi ni mañi kaufela nalumela kuli Odongo ni Apiyo nebanani bo kukwabona ba bamakaza.
 
 ##
 * License: CC BY

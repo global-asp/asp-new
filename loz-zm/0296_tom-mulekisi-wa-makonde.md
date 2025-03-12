@@ -7,28 +7,28 @@ Tom ushimbanga mukeke wa makonde abuzwize.
 Tom uyanga kwa musika kuyolekisa makonde.
 
 ##
-Batu kwa musika baleka litolwana.
+Batu kwa musika balekanga litolwana.
 
 ##
-Kono akuna yaleka makonde a Tom. Balata kuleka litolwana kwa basali.
+Kono hakuna yalekanga makonde a Tom. Balata kuleka litolwana kwa basali.
 
 ##
-"Mwa sibaka saluna, ki basali feela baba lekisanga litolwana." batu babulela. "Ki muuna ya cwani yo?" batu babuza.
+"Mwa silalanda saluna, ki basali feela baba lekisanga litolwana," batu babulela. "Ki muuna ya cwañi yo?" batu babuza.
 
 ##
-Kono Tom azwafi. Wa huweleza, "amuleke makonde aka! amuleke makonde aka abuzwize mi amunati!"
+Kono Tom azwafi. Wa huweleza, "Hamuleke makonde aka! Hamuleke makonde aka abuzwize mi amunati!"
 
 ##
-Musali yomumu ashimba sing'ata sa makonde mwa mukeke. Atalimisisa makonde katokomelo.
+Musali yomuñwi ananula sikocela sa makonde mwa mukeke. Hatalimisisa makonde katokomelo.
 
 ##
-Musali yo aleka makonde.
+Musali yoo aleka makonde.
 
 ##
-Batu babang'ata bataha fa sintolo. Baleka makonde a Tom ni kuaca.
+Batu babañata bataha fa sintolo. Baleka makonde a Tom ni kuaca.
 
 ##
-Onafa fa mukeke kele kufela. Tom wabala masheleng'i a fumani.
+Kanako nyana, fa mukeke kufela. Tom wabala masheleñi a fumani.
 
 ##
 Cwale Tom waleka mulola, swikili, mi sinkwa. Lika ze alibeya mwa mukeke wahae.

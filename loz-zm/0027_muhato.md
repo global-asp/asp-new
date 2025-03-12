@@ -1,52 +1,52 @@
 # Muhato
 
 ##
-Munzi wa luna neunani matata amang'atang'ata. Nelupanganga mukoloko ulimumu womutelele wakuka mezi kwa pompi.
+Munzi wa luna neunani matata amañata hahulu. Nelupanganga mukoloko ulimuñwi womutelele wakuka mezi kwa pompi.
 
 ##
-Nelulibelenga lico ze filwe ki babamu.
+Nelulibelelanga lico ze filwe kuzwelela kubabañwi.
 
 ##
-Nelukiyanga minyako ya mandu aluna kamaubebe kabaka la masholi.
+Nelukiyanga mandu yaluna kabubebe bebe bakeñisa masholi.
 
 ##
-Bana babang'ata baitulela sikolo.
+Bana babañata baitulezi sikolo.
 
 ##
-Basizani babanyinyani nebabeleka musebezi wa mwa malapa mwa minzi yemimu.
+Basizani babanyinyani nebabelekanga misebezi ya mwa malapa kuba minzi yemiñwi.
 
 ##
-Bashimani babanyinyani neba yembana mwahae babamu nebabelekanga mwa masimu abatu.
+Bashimani babanyinyani neba yembana mwahae, babañwi nebabelekanga mwa masimu abatu.
 
 ##
-Moya aneufukanga, mapepa asinatuso nalulanga kwa likota ni fa malapa.
+Moya aneufukanga, mapepa asinatuso nakolakatelanga kwa likota ni fa makwakwa a malapa.
 
 ##
-Batu neba sehiwa ki mabotela a pwacehile anayumbilwe kusina tokomelo.
+Batu neba sehakiwanga ki mabotela a pwacakehile anayumbilwe kusina tokomelo.
 
 ##
-Cwale zazi leling'wi, pompi yaoma mi lipupe zaluna nelili mukungulu.
+Cwale zazi leliñwi, pompi yaoma mi lingongolo zaluna nelili mukungulu.
 
 ##
 Bo ndate baya lapa ni lapa kukupa batu kuli batahe kwa mukopano.
 
 ##
-Batu bakopana mwa tasi a kota yetuna mi bateleza.
+Batu bakopana mwa tasi a kota yetuna inge bateleza.
 
 ##
-Bo ndate bayema mi bali, "luswanehela kubeleka hamoho kufeza matata aluna.
+Bondate bayema mi bali, "Luswanehela kubeleka hamoho kufeza matata aluna."
 
 ##
-Juma wa lilimo ze keta lizoho ka ze talu, yanainzi fa sishingwa ahuwa, "nakona kutusa kwa kukenisa".
+Juma wa lilimo zeketalizoho ni zetalu, yanainzi fa sishingwa ahuwa ali, "Nakona kutusa kwa kukenisa."
 
 ##
-Musali alimumu ali, "basali bakona kukopana nina kwa kucala lico.
+Alimuñwi musali ali, "Basali bakona kukopana nina kucala lico."
 
 ##
-Muuna yomumu ayema mi ali, "banna bakayepa lisima."
+Alimuñwi muuna ayema mi ali, "Baana bakayepa lisima."
 
 ##
-Seluhuwa ka linzwi lilin'gwi kaufela luli; "luswanela kucinca bupilo bwaluna." Kuzwa zazi leo, nelubelekanga hamoho kufeza matata aluna.
+Lwahuwa kaufela luna ka linzwi liliñwi luli; "Luswanela kucinca bupilo bwaluna." Kuzwa zazi leo, nelubelekanga hamoho kufeza matata aluna.
 
 ##
 * License: [CC-BY]

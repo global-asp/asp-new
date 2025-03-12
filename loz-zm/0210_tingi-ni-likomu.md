@@ -1,19 +1,19 @@
 # Tingi ni likomu
 
 ##
-Tingi napila nibo kuku ahae babasali.
+Tingi naapila nibo kukwaahae babasali.
 
 ##
-Nalisa likomu ni bona.
+Nalisanga likomu ni bona.
 
 ##
-Lizazi lelimu masole bataha.
+Lizazi leliñwi masole bataha.
 
 ##
 Babaamuha likomo ni kulishimba.
 
 ##
-Tingi ni bo kuku ahae babasali ba mata ni kuiyopata.
+Tingi ni bo kukwaahae babasali ba mata ni kuiyopata.
 
 ##
 Baipata mwa mushitu kufitela busihu.
@@ -22,16 +22,16 @@ Baipata mwa mushitu kufitela busihu.
 Cwale masole bakuta hape.
 
 ##
-Bo kuku babasali bapata Tingi mwatasi amatali.
+Bo kukwaahae Tingi babasali bamupata mwatasi amatali.
 
 ##
-Alimumu wa masole amuhata ka lihutu lahae la bulyo kono yena akuza.
+Alimuñwi wa masole habeya lihutu lahae fahalimu ahae, kono hakutumana.
 
 ##
-Asekubile hande, Tingi ni bo kukwahae babasali ba zwa mwateni.
+Hasekubile hande, Tingi ni bo kukwaahae babasali ba zwa mwateñi.
 
 ##
-Bananahalela kwa ndu kakukuza kokutuna.
+Bananalela kwa ndu kusina kupanga lilata.
 
 ##
 * License: [CC-BY]

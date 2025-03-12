@@ -1,28 +1,28 @@
-# Andiswa mulahi yomutuna
+# Andiswa caziba wa mbola ya mahutu
 
 ##
-Andiswa nabuha bashimani inge balaha mbola. Nanani takazo yaku bapala nibona. Akupa muetelelli wa bona kuli abapale ni bona.
+Andiswa nabuha bashimani inge balaha mbola yamahutu. Nanani takazo ya kubapala ni bona. Hakupa muluti kuli haitute ni bona.
 
 ##
-Bo mueteleli babona baiswala mwa teka. "Fa Sikolo se, ki bashimani feela baba lumelilizwe kubapala mbola ya mahutu." Babulela.
+Muluti wa mbola haiswala mwa manoka. "Fa sikolo se, ki bashimani feela baba lumelelizwe kubapala mbola ya mahutu," habulela.
 
 ##
-Bashimani seba mubulelela kuyo bapala mbola ya mazoho yabasali. Sebamubulelela kuli mbola ya mazoho ki ya basali mi mbola ya mahutu kiya baana. Andiswa nanyemile.
+Bashimani ba mubulelela kuli hayo bapala mbola ya mazoho. Bamubulelela bali, mbola ya mazoho kiya basizani mi ya mahutu kiya bashimani. Andiswa nanyemile.
 
 ##
-Lizazi lelitatama, Sikolo nesinani mbola yetuna ya mahutu. Mweteleli wa mbola ya mahutu naikalezwi kabakala kuli mubapali yomutuna nakulile mi nasakoni kubapala.
+Lizazi lelitatama, sikolo sa bona nesinani kangisano yetuna ya mbola ya mahutu. Muluti wa mbola ya mahutu naikalezwi kabakala kuli mubapali wahae yomutuna nakulile mi nasakoni kubapala.
 
 ##
-Andiswa amatela ku mueteleli wa mbola ya mahutu niku kupa kuli amulumeleze kubapala. Mueteleli wa mbola ya mahutu nasazibi sakueza. Kasamulaho, amulumeleza Andiswa kuli akone kukopana ni babapali babamu.
+Andiswa hamatela ku muluti wa mbola ya mahutu ni kuyo mukupa kuli hamulumeleze kubapala. Muluti nasazibi sakueza. Kasamulaho, hamulumeleza kuli hakone kubapala ni babapali babañwi.
 
 ##
-Mbola neitiile. Hakuna yana nwisize nebe nako haseifitile fa hali.
+Mbola neitiile luli. Hakuna niyana nwisize nihaiba nako haneifitile fahali.
 
 ##
-Mwanako ya semba sabubeli sa papali, mushimani alimumu anepela mbola ku Andiswa. Amatela fakaufi ni linwisezo kakuakufa. Alaha mbola katata mi anwisa.
+Mwa nako ya kalulo yabubeli, mushimani yomuñwi halahela mbola ku Andiswa. Andiswa hamatela kapili-pili fabukaufi ni linwisezo la mbola. Hailaha mbola katata mi hainwisa.
 
 ##
-Batu nebatabezi hahulu. Kuzwa zazi leo, basizani neba lumelelizwe kulaha mbola ya mahutu.
+Sicaba kaufela sa tabela ni kunyakalala hahulu. Kuzwa lona lizazi leo, basizani bakala kulumelezwa kulaha mbola ya mahutu.
 
 ##
 * License: [CC-BY-NC]

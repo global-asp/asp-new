@@ -1,40 +1,40 @@
-# Kuhu Ni Likondondo
+# Kuhu ni Likondondo
 
 ##
-Kuhu ni Likondondo neli balikani kono nebalata kukanganisana. Zazi lelimu balumelelana kulaha mbola yamahutu kuli babone kuli caziba kimang'i.
+Kuhu ni Likondondo neeli balikani. Kono nebalata kukanganisananga nako kaufela. Zazi leliñwi, balumelelana kubapala mbola yamahutu kuli babone kuli caziba kimañi.
 
 ##
-Baya kwa libapalelo lambola ya mahutu ni kuyokala papali yabona. Kuhu neinani bubebe kono Likondondo nelinani bubebe bobu fitisisa. Kuhu ya laha mbola kwa hule kono Likondondo lalaha mbola kakufitelela kuhu. Kuhu yakala kuishonda.
+Baya kwa libapalelo lambola ya mahutu ni kuyokala papali yabona. Kuhu neinani bubebe kono Likondondo nelinani bubebe bobufitisisa. Kuhu ya lahela mbola kwahule kono Likondondo lalahela mbola kwahule luli mane kufitelela kuhu. Kuhu yakala kuishonda.
 
 ##
-Balumelelana kulaha mbola yafa pata yamuswali wa mbola. Kakukala, Likondondo aba muswali. Kuhu yanwisa feela mbola iling'wi. Mi yafita nako ya Kuhu kuli ibukeleze kunwisa kwa yona.
+Balumelelana kulaha mbola yakunwisa ili fapataa muswali wa mbola mwa linwisezo. Kakukala, Likondondo laba muswali wa mbola. Kuhu yanwisa feela mbola iliñwi. Mi yafita nako ya kuli Kuhu ibukeleze mwa linwisezo la mbola.
 
 ##
-Likondondo la laha mbola ni kunwisa. Likondondo lanyunya mbola ni kunwisa. Likondondo nelilengile mbola ka toho ni kunwisa. Likondondo nelinwisize limbola zeketa lizoho.
+Likondondo la laha mbola ni kunwisa. Likondondo lanyunya mbola ni kunwisa. Likondondo nelilengile mbola ka toho ni kunwisa. Likondondo nelinwisize limbola zeketalizoho.
 
 ##
-Kuhu neifilikani hahulu kakunwisiwa. Neli muluzi ya maswe luli. Likondondo lakala kuseha kabakala litongoko za kuhu.
+Kuhu neifilikanile hahulu kakunwisiwa. Neeli muluzi ya maswe luli. Likondondo lakala kuseha kabakala litongoko za kuhu.
 
 ##
-Kuhu yafilikana hahulu mi yakwaulula mulomo wayona nikumiza likondondo.
+Kuhu yafilikana hahulu mi yakwaulula mulomo wayona nikumiza Likondondo.
 
 ##
-Kuhu aneikuta kwandu yakopana ni mahe Likondondo. Bo mahe Likondondo babuza, "kuli uboni mwanake?" Kuhu yakuza. Mahe Likondondo abilaela.
+Kuhu aneikuta kwandu yakopana ni mahe Likondondo. Bo mahe Likondondo babuza, "Kuli uboni mwanake?" Kuhu neisika bulela sesiñwi. Mahe Likondondo aikalelwa.
 
 ##
-Mahe Likondondo autwa linzwi lamakutela bukaufi inge likupa tuso kubomalona. Mahe Likondondo aitemauna kuli autwisise. Linzwi lautwahalela mwahala kuhu.
+Mahe Likondondo hautwa kanzwi kakainyani-nyani, kali, "Hamunituse ima!" Mahe Likondondo aitemauna kuli autwisise hande. Linzwi lautwahala kuzwelela mwahalaa Kuhu.
 
 ##
-Mahe Likondondo ahuwa, "belekisa maata ahao aipitezi mwanake!" Makondondo akona kununka maswe ni kusa tabusa. Mi kuhu yakala kusaikutwa hande.
+Mahe Likondondo ahuwa, "Belekisa maata ahao aipitezi mwanake!" Makondondo akona kupanga muunkoo maswe ni kusa tabusa. Mi Kuhu yakala kuikutwa kukula.
 
 ##
-Kuhu yaipukumuna, yamiza ni kukwa. Yaitishula ni kuhotola kabaka la munyembu wa Likondondo leneimizize.
+Kuhu yatokola. Yamiza ni kushelula. Yaitimula ni kuhotaula kabakala munyembu wa Likondondo leneimizize.
 
 ##
-Kuhu yahotola kufitela ikwa Likondondo lene imizizwe. Mahe Likondondo ni mwana hae ba hohobela kwa kota kuyoipata.
+Kuhu yahotaula kufitela ikwa Likondondo lene imizize. Mahe Likondondo ni mwana hae ba hohobela kwa kota kuyoipata.
 
 ##
-Kuzwa nako yeo, kuhu ni likondondo baba lila.
+Kuzwelela fona foo, likuhu ni likondondo baba lila.
 
 ##
 * License: CC BY

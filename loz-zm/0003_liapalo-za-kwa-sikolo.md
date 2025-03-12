@@ -1,10 +1,10 @@
-# Litino za kwa sikolo
+# Liapalo za kwa sikolo
 
 ##
-Ndelesi ye kiyetelele.
+Ndelesi ye ki yetelele.
 
 ##
-Siapalo sa silami se ki sesituna.
+Siapalo se sa silami ki sesituna.
 
 ##
 Mukotani wo ki womutuna.
@@ -16,7 +16,7 @@ Lukanda lo ki...
 Kuwani ye kiye nyinyani.
 
 ##
-Ma sokisi kia makuswani.
+Masokisi ki a makuswani.
 
 ##
 Kono makatulo a ki amanca.

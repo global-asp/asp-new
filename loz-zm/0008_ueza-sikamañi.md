@@ -1,4 +1,4 @@
-# Ueza sikamang'i?
+# Ueza sikamañi?
 
 ##
 Naopela.
@@ -22,7 +22,7 @@ Na alaba.
 Wa teeleza.
 
 ##
-Ueza sikamang'i?
+Ueza sikamañi?
 
 ##
 * License: [CC-BY]

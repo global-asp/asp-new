@@ -1,22 +1,22 @@
 # Anansi ni Butali
 
 ##
-Mwa nako yakale, batu nebasazibi lika. Nebasazibi ku cala licalo, ku luka libyana, kamba ku panga lika za lisipi. Mulimu Nyambe mwa lihalimu na nani butali kaufela mwa lifasi. Na bubulukile mwa poto ya lizupa.
+Kale, kale koo, batu nebasazibi lika. Nebasazibi kucala licalo, kuluka libyana, kapa kupanga lisebeliso za lisipi. Mulimu Nyambe kwa lihalimu na nani butali kaufela mwa lifasi. Na bubulukile hande mwa poto ya lizupa.
 
 ##
-Zazi lelin'wi, Nyambe nato keta kufa poto ya butali ku Anansi. Nako kaufela Anansi atalimela mwa poto ya lizupa, naituta sesin'wi. Nelinto yenetabisa!
+Zazi leliñwi, Nyambe aheza keto yakufa Anansi poto yeo ya butali. Nako kaufela Anansi anatalimelanga mwa poto yeo ya lizupa, naitutanga lika zenca. Nekutabisa luli!
 
 ##
-Anansi ni lunya lwahae anahana, "Nita beha poto ye fa halimu ya kota yetelele. Mi nitaipulukela yona ninosi!" Atatulula muhala womutelele, atata kwa poto ya lizupa mi saitama yona famba. Saka kupahama kota. Kono neli tata ahulu kupahama kota ni poto inge inata fa man'wele nako kaufela.
+Anansi ni lunya lwahae anahana, "Nika beya poto ye kwa halimu a kota yetelele. Mi nikaipulukela yona ninosi!" Atatulula muhala womutelele, autata kwa poto ya lizupa ni kuitama wona famba. Saakala kupahama kwa kota. Kono nekuli tata hahulu kupahama kwa kota ni poto inge imunataka fa mañwele nako kaufela.
 
 ##
-Nako ye kaufela, mwana wamushimani wa Anansi na yemi mwatasi ya kota anza abuha. Abulela, "Nesisikaba bunolo kambe nemu tamezi poto kwa mukokoto? Anansi alika kutamela poto ya lizupa yetezi butali kwa mukokoto wahae, mi neitoba bunolo ahulu.
+Nako kaufela, mwana wa Anansi wa mushimani, na yemanga mwatasi a kota inge abuha. Abulela ali, "Kana hakuna kuba bunolo kupahama inge mutamezi poto kwa mukokoto nji? Anansi alika kutamela poto ya lizupa yetezi butali kwa mukokoto wahae, mi kwaba bunolo hahulu.
 
 ##
-Kabubebebe, afita fa halimu ya lots. Kono atuwela ni kunahana, "Neniswanela kuba ni butali bo kaufela, kono mwanake na talifile kunifita!"Anansi na nyemile ahulu ka taba ye mi sa yumba poto ya lizupa fafasi kuzwelelela kwa kota.
+Kabubebe, afita kwa halimu a kota. Kono akutumana mi anahana, "Neniswanela kuba ni butali bobufitisisa, kono fa mwanake utalifile kunifita!" Anansi a nyemiswa hahulu ki taba ye, mi a poseza poto ya lizupa fafasi kuzwelelela kwa halimu a kota.
 
 ##
-Yapwaceha ya liyemba fafasi. Butali neli bwa mutu kaufela kuikabela. Mi kona batu monobazibezi ku lima, ku luka litino, kupanga lika za lisipi ni lika zen'wi ze baziba batu kueza.
+Yapwacakeha liyemba fafasi. Butali bwa abana kuya ku mutu kaufela. Mi kona monobazibezi batu kulima, kuluka libyana, kupanga lisebeliso za lisipi mane ni lika zeñwi zeo batu baziba kueza.
 
 ##
 * License: [CC-BY]

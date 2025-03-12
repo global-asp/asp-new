@@ -1,4 +1,4 @@
-# Buka yalinako
+# Buka yalinako za silimo
 
 ##
 Kuomile.
@@ -16,7 +16,7 @@ Kunani malu.
 Kwa bata.
 
 ##
-Yanela pula.
+Pula yanela.
 
 ##
 Kunani mishika.

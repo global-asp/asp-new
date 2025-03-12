@@ -1,34 +1,34 @@
 # Nasikuku ni Mbande
 
 ##
-Nako yemu, Nasikuku ni Mbande neli balikani. Nebapila mwa kozo ni linyunywani zemu kaufela. Nekusina yana kona ku fufa.
+Kanako yen'wi, Nasikuku ni Mbande neeli balikani. Nebapila mwa kozo ni linyunywani zeñwi kaufela. Nekusina yene kona kufufa.
 
 ##
-Zazi lelimu, nekunani tala mwa naha. Mbande neinani kuya kwahule kuli iyofumana sico. Neikutile inge ikatezi hahulu. "Kuswanela kuba ni mukwa obunolo wa kuzamaya!" Mbande yabulela.
+Zazi leliñwi, nekunani lukupwe mwa naha. Mbande neinani kuya kwahule-hule kuli iyobata lico. Neikutile inge ikatezi hahulu. "Kuswanela kuba ni mukwa obunolo wa kuzamaya!" Mbande yabulela.
 
 ##
-Asekufitile busihu bwakulobala hande, Nasikuku aba ni muhupulo omunde. Akala kunopa mafufa a linyunywani za balikani kaufela. "Alualukeleni fa halimu a mafufa aluna," abulela. "Mwendi lukakona kuzamya kabunolo."
+Kasamulaho a busihu bwakulobala hande, Nasikuku yaba ni muhupulo womunde hahulu. Yakala kunopa-nopa mafufa anawile a linyunywani zeñwi kaufela. "Alualukeleni fa halimu a mafufa aluna," yabulela. "Mwendi lukakona kuzamaya kabunolo."
 
 ##
-Mbande neliyona feela inosi yenenani ndonga mwahae, konakuli nekalezi kuluka. Naitukezi mafufa amabeli amande mi ya fufa mwahalimu. Nasikuku akalima ndonga kono hanyinyani feela akatala kuluka. Asiya ndonga fa kabati ni kuya mwa liapehelo kuyo apehela bana bahae lico.
+Mbande neeli yona feela inosi yeneinani ndonga mwa hae, kona kuli yakalisa kuluka. Neitukezi mafufa amabeli amande hahulu mi ya kwanisa kufufa fahalimu a Nasikuku. Nasikuku yakalima ndonga kono hanyinyani feela yakatala kuluka. Yasiya ndonga fahalimu a kabati ni kuya mwa liapehelo kuyo apehela bana bayona lico.
 
 ##
-Kono linyunywani zemu neliboni Mbande haifufa. Sebakupa Nasikuku kubakalima kwa ndonga kuli baitukele mafufa nibona. Onafo sekuba ni linyunywani zene fufa mwa mbyumbyulu kaufela.
+Kono linyunywani zeñwi neliboni Mbande haifufa. Selikupa Nasikuku kulikalima ndonga kuli liitukele mafufa azona. Onafo, sekuba ni linyunywani zene fufa-fufa mwa mbyumbyulu kaufela.
 
 ##
-Nyunywani ya mafelelezo aneikutisa ndonga, Nasikuku nasiyo. Cwale bana bahae bashimba ndonga nikukala kubapala niyona. Hase bakatezi kubapala papali, basiya ndonga mwa mushabati.
+Nyunywani ya mafelelezo aneikutisa ndonga, Nasikuku nasiyo. Cwale bana bahae bashimba ndonga nikukala kubapala niyona. Hase bakatezi kubapala, basiya ndonga mwa mubu.
 
 ##
-Musihali o, Mbande akuta. Akupa kwa ndonga kulukisa mafufa ahae anasinyehezi mwa musipili. Nasikuku abata fa kabati. Abata mwa liapehelo mane ni mwa lapa. Kono ndonga neisa fumanehi.
+Musihali o, Mbande aikutile, yakupa kwa ndonga kuli ilukisa mafufa ayona hanasinyehezi mwa musipili. Nasikuku yabata fa kabati. Yabata mwa liapehelo mane ni mwa lapa. Kono ndonga neisika fumaneha.
 
 ##
-"Unife fela lizazi," Nasikuku akupa Mbande. "Mi ukakona ku lukisa mafufa ahao ni kufufa kuyoinga lico hape." "Lizazi fela lilimu," Mbande abulela. "Haiba hauna kuifumana ndonga, ukanifa kaciyociyo kalikamu fa tuchiyochiyo twahao kuli ibe tifo."
+"Unife feela lizazi liliñwi," Nasikuku yakupa Mbande. "Mi ukakona kulukisa mafufa ahao ni kufufa kuyonga lico hape." "Lizazi hape liliñwi," Mbande yabulela. "Haiba hauna kuifumana ndonga, ukanifa kaciyociyo kalikañwi fa tuchiyochiyo twahao kuli ibe yona tifo."
 
 ##
-Mbande haiyotaha lizazi lelitatama, ya fumana Nasikuku inge afata mwa mubu, kono nekusina ndonga. Cwale Mbande yafufa kabubebe fasasi niku swala kaciyociyo kalikamu. Sakashimba. "Kuyakwile kuzwa onafo, nako kaufela Mbande aibonahalanga, ifumananga Nasikuku inge afata mwa mubu kubata ndonga.
+Mbande haiyotaha lizazi lelitatama, ya fumana Nasikuku inge ifata mwa mubu, kono nekusina ndonga. Cwale Mbande yafufa kabubebe kutaha fafasi niku pamula kaciyociyo kalikañwi ni kuya nikona. Kuzwelela foo, nako kaufela Mbande isabonahala feela, ifumananga Nasikuku inge afata-fata mwa mubu kubata ndonga.
 
 ##
-Muluti wa Mbande usabonahala feela fafasi, Nasikuku ufanga mamela kwa tuciyociyo twahae. "Amuzwe mwa patelo mokusina sesing'wi," mi twa alaba: "Alulianganu, luka mata."
+Muluti wa Mbande usabonahala feela fafasi, Nasikuku ulemusa tuciyociyo twahae. "Hamuzwe mwa patelo mokusina sesiñwi," mi twa alaba: "Hauliyanganu. Lyuka mata."
 
 ##
 * License: [CC-BY]

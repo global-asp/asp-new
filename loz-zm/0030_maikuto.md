@@ -1,19 +1,19 @@
 # Maikuto
 
 ##
-Pilu yaka inani maikuto amang'ata.
+Pilu yaka inani maikuto amañata.
 
 ##
-Niikutwa tabo bo kuku abalu kandekela makande manzibwani.
+Niikutwanga tabo bo kuku abalukandekelanga makande manzibwani.
 
 ##
-Niikutwa bukuba ani bapala ni mulikanaka.
+Niikutwanga bukuba ani bapalanga ni mulikanaka.
 
 ##
-Niikutwanga bumaswe bo ndate ababulela kuli abana masheleng'i.
+Niikutwanga bumaswe bo ndate ababulela kuli abana masheleñi.
 
 ##
-Niikutwa kulatiwa bo ma abani kumbatela.
+Niikutwanga kulatiwa boma abani kumbatelanga.
 
 ##
 * License: [CC-BY-NC]

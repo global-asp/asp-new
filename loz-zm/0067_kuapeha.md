@@ -13,16 +13,16 @@ Na pumanga ma kaloti.
 Natapisanga manawa.
 
 ##
-Na pumanga mbata ya ndongo.
+Na pumanga mbatanati.
 
 ##
-Napumanga muloho wobizwa sipinaci.
+Napumanga sipinaci.
 
 ##
-Boma bapumanga nyanisi.
+Boma bapumanga nyanyisi.
 
 ##
-Nyanisi yani lilisanga haipumiwa.
+Nyanyisi yani lilisanga haipumiwa.
 
 ##
 * License: [CC-BY-NC]

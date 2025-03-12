@@ -4,16 +4,16 @@
 Nekunani kwena yene shwile hahulu tala.
 
 ##
-Naibatisisa zakuca hanyinyani hanyinyani ka kukuza. Mi cwale...
+Neibatisisa zakuca hanyinyani hainyani ka kukuza. Mi cwale...
 
 ##
-POO!!! Kwena seiswala!
+POOO!!! Kwena seiswala!
 
 ##
-Kuzwa fo aisa utwa tala, mi yatabela.
+Kuzwafo aisautwa tala, mi yatabela.
 
 ##
-Kufitela foikatoutwela tala hape.
+Kufitela foikautwela tala hape.
 
 ##
 * License: [CC-BY]

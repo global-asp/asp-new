@@ -4,25 +4,25 @@
 Nalata kubala.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
 Munyenaka wamusizani ulobezi.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
-Bo ma ni bo kuku babasali bapatehile.
+Bo ma ni bo kuku ba basali bapatehile.
 
 ##
-Nikabalela bomang'i?
+Nikabalela bomañi?
 
 ##
-Bo ndate ni bo kuku babaana bapateile.
+Bo ndate ni bo kuku ba baana bapatehile.
 
 ##
-Nikabalela bomang'i? Nakona kuipalela isalina.
+Nikabalela bomañi? Nakona kuipalela nilinosi.
 
 ##
 * License: [CC-BY]

@@ -1,28 +1,28 @@
 # Puli, Nja ni Komu
 
 ##
-Puli, Nja ni Komu neli balikani babatuna. Zazi leling'wi baanga musipili ka mota.
+Puli, Nja ni Komu neli balikani babatuna hahulu. Zazi leliñwi baya mwa musipili ka mota.
 
 ##
-Asebafitile kwa mafelelezo a musipili wabona, muzamaisi wa mota aba bulelela kulifela musipili. Komu se itifela.
+Asebafitile kwa mafelelezo a musipili wabona, muzamaisi wa mota abakupa kuli balifela musipili wabona. Komu se itifela.
 
 ##
-Nja ya lifa tifo ye fitelezi hanyinyani, kakuli neisina masheleng'i anaswanehela.
+Nja ya lifa tifo ye fitelezi hanyinyani, kakuli neisina masheleñi anaswanehela.
 
 ##
-Muzamaisi wa mota asabata kufa Nja masheleng'i ayona ana fitelezi, Puli yamata kusina kulifa sesing'wi.
+Muzamaisi wa mota anasabata kufa Nja masheleñi ayona ana fitelezi, Puli yamata kusina kulifa sesiñwi.
 
 ##
-Muzamaisi wa mota na nyemile hahulu. Sazamaisa mota kutokwa nikufa Nja mashelenyi ayona.
+Muzamaisi wa mota na nyemile hahulu. Sazamaisa mota kutokwa nikufa Nja masheleñi ayona.
 
 ##
-Kikabaka leo, neba kachenu nja imatelanga kwa mota kuyonangela mwahali ni kubatisisa muzamaisi ya sanani masheleng'i ayona.
+Kikabaka leo, neba kacenu le nja isamatelanga kwa mota ni kuyonangela mwahali kubatisisa muzamaisi ya sanani masheleñi ayona.
 
 ##
-Puli yamatanga aiutwa mulomo wa mota. Ya saba kuli ikatamiwa kabaka la kusalifa masheleng'i anzila.
+Puli yamatanga aiutwa mulomo wa mota. Ya saba kuli ikatamiwa kabakala kusalifa masheleñi a musipili wayona.
 
 ##
-Mi komu ainataba mota ni haifita. Komu inganga nako kutula mukwakwa kakuli iziba kuli neilifile tifo ya nzila yayona ye kwanile.
+Mi komu ainataba mota aifita. Komu yaitamaelanga ka buunya aitula mukwakwa kakuli yaziba kuli nailifile tifo ya musipili wayona hande.
 
 ##
 * License: [CC-BY]

@@ -4,10 +4,10 @@
 Thuli unani milili yemikuswani.
 
 ##
-Anna unani milili ye mitelele.
+Anna unani milili yemitelele.
 
 ##
-Cathy unani milili yemitelele kufitisisa.
+Cathy unani milili yemitelele kakufitisisa.
 
 ##
 Zama uikotile milili.

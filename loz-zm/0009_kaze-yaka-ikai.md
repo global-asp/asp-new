@@ -4,22 +4,22 @@
 Kaze yaka ikai?
 
 ##
-Inzi mwatasi a mumbeta?
+Inzi mwatasi a mumbeta, nji?
 
 ##
-Kuli ifa halimu a kabati?
+Ifa halimu a kabati, nji?
 
 ##
-Kuli ikwa mulaho wa sipula?
+Ikwa mulaho wa sipula, nji?
 
 ##
-Kuli ikwa tuko a singungulu?
+Ikwa tuko a singungulu, nji?
 
 ##
-Kuli imwa hali a sizuma?
+Imwa hali a sizuma, nji?
 
 ##
-Kuli ifande a ndu?
+Ifande a ndu, nji?
 
 ##
 Kiye fa!

@@ -1,37 +1,37 @@
 # Bana ba bulota
 
 ##
-Nekunani lubasi lone lupila ka tabo.
+Kale kale koo, nekunani lubasi lone lupila mwa tabo.
 
 ##
-Basamba kuba balwane. Nebatusanga bashemi babona kwandu ni kwa masimu.
+Nebasa lwanangi. Nebatusanga bashemi babona kwa ndu ni kwa masimu.
 
 ##
-Kono nebasa lumelezwi kuya fakaufi ni mulilo.
+Kono nebasa lumelezwi kusutelela fakaufi ni mulilo.
 
 ##
-Kakuli neba pangilwe fa bulota nebanani ku beleka misebezi yabona kaufela busihu.
+Nebanani kubelekanga misebezi yabona kaufela ka nako ya busihu kakuli nabapangilwe fa bulota.
 
 ##
-Kono yomumu kwa bashimani na nyolezwi kuya mwa lizazi.
+Kono yomuñwi kwa bashimani na nyolezwi kuya mwa lizazi.
 
 ##
-Zazi lelimu nyolelo neitoba yetuna hahulu. Balikani bahae bamufa mamela...
+Zazi leliñwi linyolwa lahae selitoba lelituna hahulu. Mizwale bahae bamufa mamela...
 
 ##
-Kono nesekuliyehilwe! Ashengunukela mwa lizazi lene lilenga.
+Kono nesekuliyehile! Hashengunukela mwa lizazi lenelicisa.
 
 ##
-Bana ba bulota nebaswabile hahulu kubona muhabo inge ashengunuka.
+Bana ba bulota nebaswabile hahulu kubona muhabo bona inge ashengunuka cwalo.
 
 ##
-Kono baba ni mulelo. Babupa nyunywani fa sikoto sa bulota bone bushengunukile.
+Kono baba ni mulelo. Babupa nyunywani fa sikoto sa bulota bone bushengunukile boo.
 
 ##
-Baisa munyenaabona wa nyunywani fa lilundu leli pahami.
+Baisa munyenaabona wa nyunywani fa lilundu leli pahami luli.
 
 ##
-Lizazi alipazula, afufa inge aopela mwa liseli la kakusasani.
+Lizazi haselipazuzi, afufa inge aopela mwa liseli la kakusasani.
 
 ##
 * License: [CC-BY]

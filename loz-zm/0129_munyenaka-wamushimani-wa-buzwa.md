@@ -1,4 +1,4 @@
-# Munyenaka wamushimani ya buzwa
+# Munyenaka wamushimani wa buzwa
 
 ##
 Nazuhanga niku tumbula mulilo.
@@ -7,19 +7,19 @@ Nazuhanga niku tumbula mulilo.
 Nabilisanga mezi.
 
 ##
-Na pumanga likota zakuapeisa.
+Napumanga likota zakutumbulisa mulilo.
 
 ##
 Na kundunganga mwa mupika.
 
 ##
-Na fiyelanga mwa ndu.
+Na fiyelanga fafasi.
 
 ##
 Natapisanga mikeke.
 
 ##
-King'i zeni sebelezanga katata... ... munyenaka yena inge apatehile kubapala?
+Kiñi zeni belekelanga katata... ... munyenaka yena inge apatehile kubapala?
 
 ##
 * License: [CC-BY-NC]
