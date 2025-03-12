@@ -1,52 +1,52 @@
-# Juuba jo nafumine ku muzhi kuya mu ngyangi
+# Juuba Jonafumine Kumuzhi Kuya Kutaunyi
 
 ##
-Pa kitesheni paimenanga masakya ku muzhi pavujile bantu ne ma sakya ayula nabipe ne bantu. Kabiji ne panshi pajinga ne bintu bikwabo byavula bya kulonga. Banyamata ba bijikelenga kubena kuya masakya.
+Kiteshenyi kicheeche kya mabbasi mumuzhi wetu pavujile bantu ne mabbasi ayujile nabipe ne bantu. Panshi napo pajinga bintu bikwabo byavula byakebewenga kulonga. Bansongwalume babijikilenga kumapunzha kwailenga mabbasi.
 
 ##
-"Kutaunyi! Kutaunyi! Babena kuya ku muzhika!" Naumvwine munyamata wabijika. Yo sakaya yo nakebelwenga ku kanjila.
+"Kutaunyi! Kutaunyi! Babena kuya kumuzhika!" Naumvwine nsongwalume wabijika. Yonkaya yoyajinga bbasi yonafwanyijile kukanjilamo.
 
 ##
-Uno sakya wakutauni washajile pacheche kuyula kabiji ne bantu bavula beshinjikilenga amba batwele. Bamo balongele bipe byabo munshi wa sakaya. Bakwabo nabo batujile bipe byabo mukachi pakulamina bipe.
+Bbasi yailenga kutaunyi kwashajiletu pacheeche kuyula kabiji ne bantu baavula beshinjikilenga amba batwele. Bamo balongele bipe byabo munshi ya bbasi. Bakwabo nabo batujile bipe byabo mukachi ponka pakutula bipe.
 
 ##
-Ba kang'enda baishilenga pa nyuma bakwachile ma tikechi abo kumaboko saka bakeba pa kwikala musakya wayula. Bainetu baji nabana bebekajile bulongo pa lweendo lwa lepa.
+Ba kañenda baishilenga panyuma bakwachile matiketi aabo kumaboko saka bakeba pa kwikala mubbasi wayula. Bainetu bajinga na baana babacheeche bebabikile bulongo pakwikala namambo akuuba amba lwendo lwalepele.
 
 ##
-Nechichimikele kwipi na windo. Muntu waikele kwipi ne amiwa wakwachijile bingi kyola kya pepala wa pulasitiki wa mazha matamba. Wavwajile nkwabilo yakala, ne jakete wapwa kabiji wamwekene kumvwa moyo.
+Nechichimikele kubwipi nawindo. Muntu waikele kubwipi neamiwa wakwachijile kyola kyapulasitiki kyamanzha-matamba. Wavwajile nkwabilo yakala, jakete wapwa kabiji wamwekene kumvwa moyo.
 
 ##
-Natajile panje ya sakya ne kulanguluka amba mbena kusha muzhi wami, mpunzha kona komejile. Nailenga ku taunyi mukatampe.
+Natajile pangye ya bbasi ne kulanguluka amba mbena kusha muzhi wami, mpunzha mona komejile. Nailenga kutaunyi mukatampe.
 
 ##
-Kulonga bipe kwapwile kabiji ne bakang'enda bonse baikele. Basulwishi nabo batwelele musakya nakupotesha bya busulu bwabo ku bakang'enda. Bonse babijikilenga mazhina abyonse byo ba poteshenga. Byaambo byabo bwaumvwanyikilenga nobe byambo bya kukaisha.
+Kulonga bipe kwapwile kabiji ne bakañenda bonse baikele. Bapotesha bintu nabo batwelelenga mubbasi nakupotesha byabusulu bwabo ku bakañenda. Bonse babijikilenga mazhina abyonse byo bapoteshenga. Byambo byabo bwaumvwanyikilenga nobe byambo byabisela.
 
 ##
-Bakangenda bacheche bapotele byakutoma, bakwabo nabo bapotele byakujisha ne kutendeka kunyeuna. Aba bujile maali nobe amuwa, batajilengatu.
+Bakañenda bacheeche bapotele byakutoma, bakwabo nabo bapotele byakujisha ne kutendeka kunyeuna. Aba bujile mali nobe amiwa, batajilengakotu na menso.
 
 ##
-Bino byakuba byonse byaimene pakumvwa kilulumo kyauta wasakya, kayukilo kakuba amba pano ketunyamuke. Banyamata bajile kubasulu kulupuka musakya.
+Bino byonse byaubiwenga byaimene pakumvwa kilulumo kyauta wa bbasi, kayukilo kakuba amba pano twinengezha kunyamuka. Bansongwalume babujile bapoteshenga kulupuka mubbasi.
 
 ##
-Basulu beshinjile mulwabo pakwamba balupuke musakya. bamo bapainenga ma kyengi kubakang'enda. Bamo nabo baesekelenga kupotesha kyapelako.
+Bapoteshenga beshinjikilenga mulwabo pakuuba amba balupuke mubbasi. Bamo bapainenga makyengi kubakañenda bapotelenga bintu. Bamo nabo baesekelenga kupotesha japelako.
 
 ##
-Sakya byo yafuminga pa kitesheni, natajile pangye ya windo. Nalungulikele inge nkabwelako jibiji ku muzhi.
+Bbasi byoyafuminenga pakitesheni, nasumbijile pangye yawindo. Nalangulukilepo inge kyakuuba amba nkabwelako jibiji kumuzhi.
 
 ##
-Byotwaendeleko paluno lwendo, mukachi kasakya mwaishile mwapyana kya kine kine. Nazhinzhibele mukumona kuuba amba ndaleko.
+Byotwaendeleko palepa, mukachi mwa bbasi mwaishile kukaba kya kine kine. Nazhinzhibele namba kampepo nsakulaala.
 
 ##
-Bino maana ami abwele kumuzhi. Bamama bakekala bulongo nyi? Tululu twami tukaleta maali nyi? Kolajami wamulume uka vulukanga kutekezha tubichi twami tucheche nyi?
+Bino milanguluko yami yabwelele kumuzhi. Nanchi ba maama bakekalatu bulongo nyi? Tululu twami tukaletanga mali nyi? Kolajami wamulume uka vulukanga kutekezha tubichi twami tucheeche nyi?
 
 ##
-Mujishinda, nalamine jizhina ja mpunzha kwaikalanga ba mwisho mu taunyi mukatampe. Nejitongwelenga ne mutulo.
+Mujishinda, nalamine jizhina jampunzha kwaikalanga ba mwisho mutaunyi mukatampe. Nejitongwelenga ne mutulo inge nalaala.
 
 ##
-Panyuma yama awala atanu ne ana, nabukile nakyongo kyobaimbilenga kusakya ne kwita bakang'enda babwelelenga kumuzhi kwetu. Natolele ka kyola kami ne kulupuka musakya.
+Panyuma yama awala atanu ne ana, nabukile nakyongo kyobaimbilenga ku bbasi ne kwita bakañenda babwelelenga kumuzhi kwetu. Natolele ka kyola kami ne kulupuka mubbasi.
 
 ##
-Sakya wabwelelenga wayujile bukiji. Katataka itendeke kubwela kumusela. Kintu kyanema kwi amiwa pano kekutendeka kukeba kuji nzubo yaba mwisho.
+Bbasi wabwelelenga wayujile bukiji. Kwakubula kutaya kimye ne yatendekele kubwela kumusela. Pakino kimye kintu kyanema kwi amiwa kyajinga kutendeka kukeba kwajinga nzubo yaba mwisho.
 
 ##
 * License: [CC-BY]

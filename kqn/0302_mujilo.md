@@ -1,28 +1,28 @@
 # Mujilo
 
 ##
-Tala, mujilo!
+Mona, mujilo!
 
 ##
-Mujilo upishya
+Mujilo usokañana.
 
 ##
-Mujilo uteka
+Mujilo uteeka kajo.
 
 ##
-Mujilo upa kukaba
+Mujilo upana kyuya.
 
 ##
-Mujilo upa kutoka
+Mujilo upana kyeya.
 
 ##
-Tala, mujilo!
+Mona, mujilo!
 
 ##
-Mujilo wawama
+Mujilo wawama.
 
 ##
-Tabiji ujinangovu
+Kabiji mujilo uji nangovu.
 
 ##
 * License: [CC-BY]

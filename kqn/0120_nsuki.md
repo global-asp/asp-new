@@ -1,28 +1,28 @@
 # Nsuki
 
 ##
-Thuli uji nansuki yaipipa.
+Tuuli uji nansuki yaipipa.
 
 ##
 Anna uji nansuki yalepa.
 
 ##
-Cathy uji nansuki yalepesha.
+Katalina uji nansuki yalepesha.
 
 ##
 Zama waichika nsuki yanji.
 
 ##
-Baba uji namyenvu.
+Baba uji namyevu.
 
 ##
 Zanele wasakula nsuki yanji.
 
 ##
-Thabo wachiba nsuki yanji.
+Taabo wachiba nsuki yanji.
 
 ##
-Themba wabeya nsuki yanji.
+Teemba wabeya nsuki yanji.
 
 ##
 * License: [CC-BY-NC]

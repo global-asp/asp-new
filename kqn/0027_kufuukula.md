@@ -1,52 +1,52 @@
 # Kufuukula
 
 ##
-Pa muzhi petu panjinga makatazho avula. Twa ikalanga mu munongo walepa paku tapula meema kufuma ku pompi umo wa mushima.
+Pamuzhi wetu panjinga makatazho aavula bingi. Twaimananga mumunongo walepa pakuuba amba tutapule mema kufuma kumupompi umotu.
 
 ##
-Twa pembejilenga byakuja kufuma kubantu bangi.
+Twapembelelanga byakuja bitupanga bantu.
 
 ##
-Twashinkilenga binzhilo byetu bukiji na mambo aba ngivi.
+Twashinkanga mazubo etu bukiji namambo akuchiina bangivi.
 
 ##
-Bana bavula balekele ma sukulu.
+Baana bavula balekele masukuulu.
 
 ##
-Bana babakazhi batwelele makito mumizhi ikyabo
+Banyike babakazhi baingijiilnga makito mumizhi ya bukaboyi.
 
 ##
-Bana babalume bapitang'enengatu mumizhi kabiji ne bakwabo baingijilenga muma jimi abantu bangi.
+Banyike babalume bapitañanangatu mumizhi bino bamo baingilanga mumajimi abantu.
 
 ##
-Ingekuji kimwela kyaiya, ndochi yayilenga kubichi neku bivimba.
+Inge mwela wapuupa, ndochi ya bipepala yanyamukanga nekwikala kubichi ne kuluvimba.
 
 ##
-Bantu bekozhezhenga kuma botolo ya lajikile yoba tailenga kitaye taye.
+Bantu bekozhezhenga kumabotolo alajikilenga obatailenga kitaye taye.
 
 ##
-Juba jimo, pompi wa ku mushima waumine ne mema muma botolo apwile.
+Juuba jimo, uno mupompi wameema waumine kabiji tunchinyi twetu twajingatu kwakubula meema.
 
 ##
-Batata bapitang'ene mumazubo nakubula bantu amba beye na kubung'ana pamo.
+Ba taata bapitañene kumazubo abantu nakwibabula amba batanwe kumbuñano ya muzhi.
 
 ##
-Bantu basambakene pamo munshi yakichi kikatampe na kunvwina.
+Bantu basambakenejile pamo munshi yakichi kikatampe kabiji nekuteleka.
 
 ##
-Batata baimene nakwamba," Twafwaina kunvwang'ana pakwamba tupwishe makatazyo yonse yotuji nawo muno mu muizhi."
+Ba taata baimene nekwamba amba," Twafwainwa kwingijila pa kuuba amba tupwishe ano makatazho."
 
 ##
-Juma mwana wa myaka itanu neisatu, waikajile pa musampi wakichi wabijikile," Nakonsha kwimukwasha kuwamya."
+Mwana wa myaka itanu na isatu aye Juma wabijikile amba," Nakonsha kwimukwasha kuwamisha."
 
 ##
-Mwanamukazhi umo waambile amba," ateba babakazhi tusakabyala byakuja".
+Inetu umo waambile amba," bainetu bafwainwa kunkwasha kujima byakuja."
 
 ##
-Wamulume waimene nekwamba amba ,"Babalume basakupoya mushima."
+Shetu umo waimene nekwamba amba, "ateba babalume tusa kupoya mushima."
 
 ##
-Bonse babijikile najiwi jimo,"Twalinga kukingya ngikajilo yetu." Kufumato ajojuba bonse baing'ijile pamo nakupwisha makatazho amumuzhi.
+Bonsetu twabijikile najiwi jimo amba, twafwainwa kupimpula bwikalo bwetu." Kufumatu pajoja juuba twaingijilenga pamo nekupwisha makatazho amumuzhi wetu.
 
 ##
 * License: [CC-BY]

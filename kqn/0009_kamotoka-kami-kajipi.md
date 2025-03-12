@@ -1,28 +1,28 @@
-# Pushi wami ujipi?
+# Kamotoka kami kajipi?
 
 ##
-Pushi wami ujipi?
+Kamotoka kami kajipi?
 
 ##
-Uji munshi ya mwanya nyi?
+Kaji munshi yamwanya nyi?
 
 ##
-Uji peulu ya kabachi nyi?
+Kaji peulu yakabachi nyi?
 
 ##
-Uji kunyuma yakipona nyi?
+Kaji kunyuma yakipona nyi?
 
 ##
-Uji pabwipi na mwakutaila ndochi nyi?
+Kaji pabwipi namwakutaila ndochi nyi?
 
 ##
-Uji mukachi yantumba nyi?
+Kaji mukachi yantumbe nyi?
 
 ##
-Uji pagye yanzubo nyi?
+Kaji pangye yanzubo nyi?
 
 ##
-Awe pape!
+Ake pape!
 
 ##
 * License: [CC-BY-NC]

@@ -1,40 +1,40 @@
 # Kukambula
 
 ##
-Juba jimo, bamama basendele bipangwa byavula.
+Juuba jimo, ba maama basendele bipangwa byavula.
 
 ##
-"Kimyeka kyotusakuja abye bipangwa?" Twaipwizha. "Tusakuja bufuku," bamama ba kumbula.
+"Kimyeka kyotwakonsha kujapo bipangwa?" Twaipwizhe. "Tusakuja bipangwa bufuku," ba maama bakumbwile.
 
 ##
-Nkasami Rahim uji nabwitemwe. Wajako kubyonse bipangwa. Kabiji waja byavula.
+Nkasami Rahim uji na lwiso. Ujapo pa bipangwa byonse. Kabiji uja byavula.
 
 ##
-"Talai byauba Rahim!" nkansami wamulume waita. "Rahim keuvwane kabiji witemwa," na amba.
+"Talai pabyaubile Rahim!" Nkasami wamulume wabijikile "Rahim wazhikwa kabiji witemwa," byobyobaambile.
 
 ##
-Bamama bamuzhingijila Rahim.
+Ba maama bazhingijile na Rahim.
 
 ##
-Ne atweba twamuzhingijila Rahim. Pano Rahim kechi walomba lulekelo lwamambo ne.
+Ne atweba twamuzhingijila Rahim. Bino Rahim kechi walombele lulekelo lwamambo ne.
 
 ##
-"Kechi musa kumukambula Rahim nenyi?" nkansa wamulume waipuzha.
+"Nanchi kechi musa kumukambula Rahim nenyi?" nkansa wamulume waipwizhe.
 
 ##
-"Rahim, katatakatu wilekele mambo," bamama bakambizha.
+"Rahim, katatakatu ukamone byakukumya," ba mama bamujimwineko.
 
 ##
-Rahim watendendeka kuvwa kubela.
+Rahim watendekele kumvwa kubela.
 
 ##
-"Munda mwami mubena kukola,"Rahim waamba najiwi jamunshi.
+Rahim wanongotwele amba, "Munda mwami mubena kukola,"
 
 ##
-Bamama bayukile bisakumweka. Bipangwa ke bimukambule Rahim!
+Ba maama bayukile amba abye bikamwekana. Bipangwa ke bimukambule Rahim!
 
 ##
-Pa kupita kimye, Rahim walombele lulekelo lwamambo." ke nkabwezhapo ne bwitemwe bwa bibye ne," wa laya. Kabiji bonse twamunvwina.
+Pa kupita kimye, Rahim walombele lulekelo lwamambo nekwamba amba, "Kechi nkabwezhapo kuuba lwiso jikwabo ne," wachipile. Kabiji bonse bamumvwijile.
 
 ##
 * License: [CC-BY]

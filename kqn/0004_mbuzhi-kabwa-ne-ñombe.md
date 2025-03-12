@@ -1,28 +1,28 @@
-# Mbuzhi, Kabwa ne Ng'ombe
+# Mbuzhi, Kabwa ne Ñombe
 
 ##
-Mbuzhi,Kabwa ne Ng'ombe bajinga pabulunda. Juba jimo baile palwendo mumotoka.
+Mbuzhi, Kabwa ne Ñombe besampile bumbai. Juuba jimo baile palwendo mukamotoka katakisi.
 
 ##
-Pobafikile kobailenga, ng'endeshi wa motoka wibanjile amba bapane mali alwendo lwabo. Ng'ombe wapaine mali anji.
+Byobafikile kobailenga, dalaivwa wibambijile amba bapane mali alwendo lwabo. Ñombe aye wapaine mali alwendo lwanji.
 
 ##
-Kabwa wapaine mali anji alwendo kabiji wabikilepo ne akwabo peulu, mambo kechi wajinga namali acheche ne.
+Kabwa naye wapaine mali anji alwendo kabiji wabikilepo ne akwabo peulu, mambo kechi wajinga namali acheechene.
 
 ##
-Mwendeshi saka akyange kupa kabwa mali abweleleko Mbuzhi wa nyemene kwaku bula kupana mali anji.
+Kimye dalaivwa kyoakebelenga kupa kabwa mali anji akyengi, Mbuzhi wanyemene kwakubula kupana mali alwendo.
 
 ##
-Mwendeshi wazhingijile bingi. Wa endeshele motoka nekuya kwakubula kupa Kabwa mali anji.
+Dalaivwa wazhingijile bingi. Waendeshele motoka nekuya kwakubula kumupa Kabwa kyengi anji.
 
 ##
-Byomumwena kabwa jonse unyemena kumotoka nakukeba mwendeshi waile namali anji.
+Nanchi kyomumwena kabwa kunyemena kumotoka ne kusumbila mumotoka. Kabwa ukeba kyengi yanji kwidalaivwa yoabujile kumupa.
 
 ##
-Mbuzhi unyema inge waunvwa kyongo kyamotoka. Uchina amba bakonsha kumukwata pakubula kupana mali.
+Mbuzhi unyema inge waumvwa kyongo kyamotoka. Uchiina kumukasa mambo kechi wapaine mali alwendo lwanji ne.
 
 ##
-Pano Ng'ombe aye kechi wakamwane inge motoka ibena kwiya. Ng'ombe wenda ne kipale paku kiluka mukwakwa mambo wayuka amba aye mali anji walipijile onse.
+Pano Ñombe aye kechi waakamwane inge motoka ibena kwiya. Ñombe wenda pachepache pakwabuka mukwakwa mambo wayuka amba wapaine mali anji alwendo onsetu.
 
 ##
 * License: [CC-BY]

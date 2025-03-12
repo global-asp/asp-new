@@ -1,43 +1,43 @@
-# Bya ambile nyenga wakwa Vusi
+# Byaambile Ñenya Yakwa Vusi
 
 ##
-Juuba jimo lukelo, bankambo yanji Vusi bamwichile, "Vusi, nasansapo iya utwale jino jike kwiba nsemi yobe. Bakeba kulenga keke mukatampe wapa masongola anyenga yobe."
+Juuba jimo lukeelo, ba nkambo yanji Vusi bamwichile ne kumubuula amba, "Vusi, napopwela twala jino jike ku bansemi yobe. Bakeba kwijingijisha kulenga keeke mukatampe wapa masongola anyenga yobe."
 
 ##
-Byoailenga kuba nsemi yanji, Vusi wasambakene banyike babiji baabalume saka batola bipangwa.Umo mwanyike waangachile jiike kufuma kwi Vusi ne kwiijasa ku kichi. Jiike jaalajiikile.
+Byoailenga ku bansemi yanji, Vusi wasambakene bansongwalume babiji saka batolaula bipangwa. Nsongwalume umo wamwangajile Vusi jiike ne kwijimaka kukichi. Ponkapo Jiike jaalajikile.
 
 ##
-"Wauba ka?" Vusi waajijiile."Ajo jiike jajiinga ja keke.Keke wajiinga wapa masongola a nyenga yami. Nyenga yami ukamba ambaka inge kechi kukela keke wapa masongola?"
+Vusi wajijile amba, "Kika kyowauba obewa Aja jike jajiinga jakulengela keeke. Keeke yebakusakanga kulenga wakufwainwa kwikala wapa masongola nyenga yami. Pano Nyenga yami ukamba ambaka inge kwabula kwikalako keeke wapa masongola?"
 
 ##
-Banyike baabalume baumwine kutama paku kosamika Vusi. "Kafwako byo twakonsha kuuba pakeke, pano senda kano kakichi kakwendelako ukape nyenga yobe," umo waambile. Vusi waipitaizhe lwendo lwanji.
+Bansongwalume baumvwine bibi pamukeyu yebaambijile Vusi. Kafwako byotwakonsha kuuba pa mambo akeeke ne, nanchi twibapatu ba nyenga yobe awe mukombo wakwendelako. Ponkapo Vusi watwajijile na lwendo lwanji.
 
 ##
-Byo ailenga , wataine bashetu babiji babena kushimika nzubo. "Twakonsha kwingijishako kyokyo kichi kyobe kyakosa?" umo waipwizhe. Pano bino kichi kechi kyakosele bingi mukwingijisha mukushimika, kabiji kya mokokele.
+Mujishinda, wataine bashetu babiji babena kushimika nzubo. Shetu umo waipwizhe amba, "Obewa mwanyike nanchi twakonsha kwingijishako kyokyo kichi kyobe kyakosa nyi?" Bino kichi kyachimukile mambo kechi kyajinga kyakosa ne.
 
 ##
-"Mwauba ka?" Vusi wajijiile. "Akyo kichi kyajinga kya bupe kyakwa nyenga yami. Batola bipangwa bampele kino kichi maambo balajile jiike ja keke. Uno keke wajinga wapa masongola a nyenga yami. Pano kafwako jiike, kafwako keke ne kyabupe kwafwako. Nyenga yami ukaamba ambaka?"
+"Mwauba ka?" Vusi wajijiile. "Akyo kichi kyajinga bupe bwakwa nyenga yami. Bajikutolaulanga bipangwa bobaji kumpa kino kichi namambo akuuba baji kulala jiike jakulengela keeke. Keeke yebaji kusakanga kulenga wajinga wapa masongola anyenga yami. Pano kafwako jiike, keeke kabiji nebupe. Nanchi nyenga yami ukamba ambaka?"
 
 ##
-Bashimikilenga nzubo baumvwine kutama pakuchimuna kichi. Umo waambile amba,"Kafwako byo twakonsha kuuba pa keke pano bino tambula aye nsono yakuvimbila ukape nyenga yobe." Kabiji Vusi wapitaizhe na lweendo lwanji.
+Bashimikilenga nzubo baumvwine kutama pakuchimuna mukombo. Umo wamulume waambile amba, "Kafwako byotwakonsha kuuba pa mambo keeke, bino tusa kukupa nsono yakuvimbila ukape nyenga yobe." Vusi watwajijile na lwendo lwanji.
 
 ##
-Mulwendo lwanji, Vusi wasambakene njimi ne ng'ombe wanji. Ng'ombe waambile amba, "Nsono kuwama,nakonsha kujaponyi?" Nsono yawamine biingi kabiji ne ng'ombe wajile yonse.
+Mulwendo lwanji, Vusi wasambakene Njimi ne Ñombe. Kumvwa Ñombe waambile amba, "Ayo nsono kuwama, mwakonsha kumpapo tucheeche nje nyi?" Ñombe wajile nsono yonsetu mambo yakijilemo kunenkuma.
 
 ##
-"Wauba ka?" Vusi wajijiile. "Ayo nsono yajinga kyabupe kya nyenga yami. Bamashika ba nzubo bo bampele ino nsono maambo bamokwele kichi kyafumine kubatola bipangwa. Batola bipangwa bampele kino kichi mambo balajile jiike ja keke wa nyenga yami. Keke wajinga wapa masongola a nyenga yami. Pano kafwako jiike, kafwako keke ne kyabupe kwafwako. Nyenga yami ukaamba ambaka?"
+"Mwauba ka?" Vusi wajijiile. "Ayo nsono yajinga bupe bwa nyenga yami. Bashimika manzubo bobampele ino nsono mambo bamokwele kichi kyafumine kubatolawilenga bipangwa. Batolawilenga bipangwa bampele kino kichi mambo balajile jiike ja keeke wa nyenga yami. Keeke wajinga wapa masongola a nyenga yami. Pano kafwako jiike, kafwako ne bupe. Pano nyenga yami ukamba ambaka?"
 
 ##
-Ng'ombe waumvwine kutama maambo witemenwe. Njimi waswile amba ng'ombe aye na Vusi ekale ke kyabupe kya nyenga yanji. Kabiji Vusi wapitaizhe na lweendo lwanji.
+Ñombe waumvwine kutama namambo amuchima wanji walwiso. Nanchi Njimi walangulukile kupa Vusi ñombe amba akape bupe nyenga yanji. Vusi watwajijile na lwendo lwanji.
 
 ##
-Pano wanyemene ne kubwela kwinjimi pakimye kya kuja kajo ka mulajilo. Kabiji ne Vusi waelekele mu lweendo lwanji. Wakelelwe kufika ku masongola a nyenga yanji. Baichilwe kutanwako ku masongola bajilenga ne kuja.
+Bino Ñombe wanyemene ne kubwela kwanjiminga Njimi pakimye kya kuja kajo ka mabanga. Akino kyalengejile Vusi kulubilamo kabiji wakelelwe kufika ku masongola a nyenga yanji. Watainwa benyi bobaichile kumasongola babena kuja ne kajo.
 
 ##
-"Nsakuba byeepi?" Vusi wajijile. "Ng'ombe wakunyema wajinga kyabupe mukubwezhapo nsono yampele bashimika mazubo. Bamashika ba nzubo bo bampele ino nsono maambo bamokwele kichi kyafumine kubatola bipangwa. Batola bipangwa bampele kino kichi mambo balajile jiike ja keke wa nyenga yami. Keke wajinga wapa masongola a nyenga yami. Pano kafwako jiike, kafwako keke ne kyabupe kwafwako. Nyenga yami ukaamba ambaka?"
+"Nsakuba byepi?" Vusi wajijile. "Awa ñombe wakunyema yewajinga kyabupe mukubwezha pansono yampele bashimikilenga mazubo. Bamashimikilenga manzubo bampele ino nsono mambo bamokwele kichi kyafumine kubatolawilenga bipangwa. Batolawilenga bipangwa bampele kino kichi mambo balajile jiike jakulengela keeke wa nyenga yami. Keeke wajinga wapa masongola a nyenga yami. Pano kafwako jiike, kafwako keeke ne bupe kafwako."
 
 ##
-Nyenga wakwa Vusi walangulukile kabiji wa ambile amba, "Vusi nkasami, kena akamwa pabya bupe ne. Kena akamwa nangwa pa keke ine! Tuji kuno pamo, nasangalala. Pano vwala bivwalo byobe bya kipale, twayayi tusangalale pajino juuba! " Byobyo aubile Vusi.
+Nyenga wakwa Vusi walangulukilepo kakimye kabaya kabiji nekwamba amba, "Vusi nkasami, kena akamwa pabya bupe nangwa pa keeke ne! Kyawamatu kekya kuuba amba tuji pano kabiji twasangalala. Pano vwala bivwalo byobe byakipale, twayayi tusangalale pajino juuba!" Nanchi byobyo byaubile Vusi.
 
 ##
 * License: [CC-BY]

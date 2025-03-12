@@ -1,58 +1,58 @@
-# Lwiimbo lwa kwa Sakima
+# Lwimbo wakwa Sakima
 
 ##
-Sikima waikalanga na bansemi yaanji ne nyenga yaanji wamyaka ina. Baikalaanga mu ntaanda yaabanooshi.Nzubo yaabo yansono yaji kunsa kwapela bichi.
+Sakima waikalanga na bansemi yanji ne nyenga yanji wamyaka yakusemwa ina. Baikalanga mumpunzha ya munonshi. Nzubo yabo yansono yajinga kunsa kwapela bichi.
 
 ##
-Kimye Sikima waaji na myaka ya kusemwa isatu, wabeleele kabiji walekele ne kumona. Sakina wajinga mwana wamulume wapeshiwa mu mingilo.
+Kimye Sakima kyoajinga namyaka ya kusemwa isatu, wabeleele kabiji walekele ne kumona. Sakima wajinga nsongwalume wajinga na kyabupe.
 
 ##
-Sakina waubanga bintu byavula abyo banyike bakwabo bamyaka yanji yakusemwa byo babujile ku konsha kuuba. Nobe kimwesho, wakonshanga kwikala naba kulumpe ba mumuzhi ne kwisamba nabo pamitwe yaneema.
+Sakima waubanga bintu byavula byakankalwanga kuuba bakwabo banyike bamyaka yakusemwa yonka yoajinga nayo itanu nakimo. Nobe kyakumwenako, wakonshanga kwikala nabakulumpe bamumuzhi ne kwisamba nabo pamitwe yanema.
 
 ##
-Bansemi bakwa Sakima basebezanga kunzubo ya munoonshi. Bafumanga pa nzubo lukelo-kelo ne kubwela mabanga ene. Sakima washalanga ne nyenga yanji mwanyike.
+Bansemi yanji Sakima basebezanga kunzubo ya munonshi. Bafumanga pa nzubo lukeelo-keelo kabiji babwelangatu mabanga ene. Sakima washalanga ne nyenga yanji wamwanyike.
 
 ##
-Sakima watemenwe kwimba nyimbo. Juuba jimo bainanji bamwipwizhe amba, "Nanchi ufumya kwepi nyimbo , Sakima?"
+Sakima watemenwe kwimba nyimbo. Juuba jimo bainanji bamwipwizhe amba, "Nanchi nyimbo yowimba wiifunjila kwepi?"
 
 ##
-Sakima wakumbwile amba, "Iyaatu, maama. Neyumvwa mumutwe apa mino naimba."
+Sakima wakumbwile amba, "Iyatu ine maama. Patanshi neyumvwa mumutwe apa bino kañimbe."
 
 ##
-Sakima watemenwe kwimbila nyenga yanji mwanyike, kikatakata inge waumvwa nzala. Nyenga yanji watelekanga saka bamwimbila nyimbo yanji yeatemwisha. Wazhanga ku lwimbo wa kumulelezha.
+Sakima watemenwe kwimbila nyenga yanji wamwanyike, kikatakata inge waumvwa nzala. Nyenga yanji watelekanga saka bamwimbila lwimbo wanji yeatemwisha. Waimbangako lwimbo wa kumulelezha.
 
 ##
-"Imba jikwabo ne jikwabo, Sakima," nyenga yanji wa mulombanga. Sakima waswanga ne kwimba jikwabo ne jikwabo.
+Nyenga yanji wamupopwelanga amba," bwezhapo ne jikwabo ne jikwabo. Sakima waswanga ne kwimba jikwabo.
 
 ##
-Juuba jimo mabanga bansemi yanji byo babwelele ku nzubo, bazhindamine biingi. Sakima wayukile amba pajiko lukatazho.
+Juuba jimo mabanga, bansemi yanji byobabwelele kunzubo, bazhindamine bingi. Sakima wayukile amba pajinga lukatazho.
 
 ##
-"Kika kya katazha maama, taata?" Sakima waipwizhe. Sakima ba mubujile amba mwaana wa munoonshi waeleka. Munoonshi uji biingi na bulanda.
+"Maama, taata, kika kyakatazha?" Sakima waipwizhe. Sakima ba mubujile amba mwana wa munonshi waeleka. Munonshi wajinga bingi na bulanda ne bunke.
 
 ##
-"Nakoonsha kumwimbila. Wakoonsha kwikala wasangalala jikwabo," Sakima wabujile bansemi yaanji. Mino bansemi yaanji bamulengulwiile. "Wanoonka biingi. Obewa wimwayiketu mputa. Walanguluka amba lwiimbo obe wakoonsha kumu kwashanyi?"
+Sakima waambile amba, "Nakonsha kumwimbila. Kampepo wakonsha kwikala kusangalala jikwabo," Sakima wabujile bansemi yanji. Bino bansemi yanji bamukanyishile amba, "Awa munonshi bingi. Obewa wimwayiketu kabiji wimputa. Nanchi walanguluka amba lwimbo obe wakonsha kumukwashanyi?"
 
 ##
-Nangwa byonka byo, Sakima kechi wikilekelene. Nyenga yanji mwanyike wamu tundailikele. Wa ambile amba, "Nyimbo yakwa Sakima indelezha inge naumvwa nzala. Yakoonsha kulelezha neuno shetu munoonshi."
+Nangwa byonkabyo, Sakima kechi wikilekelene. Nyenga yanji mwanyike wamutundaikile. Waambile amba, "Nyimbo yakwa Sakima indelezha inge naumvwa nzala. Yakonsha kumutekeneshako munonshi."
 
 ##
-Juuba ja londejileepo, Sakima walombele nyengayanji mwanyike kumu twala ku nzubo wauno shetu munoonshi.
+Juuba jalondejileepo, Sakima walombele nyenga yanji mwanyike kumutwala kunzubo yauno shetu munonshi.
 
 ##
-Waimene muunshi ya windo umo mukatampe nekutendeka kwiimba lwiimbo yeatemenwe. Pachepache, mutwe wauno shetu munoonshi watendekele kumwekana pa windo ikatampe.
+Waimene munshi yawindo ikatampe kabiji watendekele kwimba lwimbo yeatemenwe. Pachepache, mutwe wauno shetu munonshi watendekele kuseela pa windo ikatampe.
 
 ##
-Bamingilo balekele byo baubilenga. batelekele ku lwiimbo lwakwa Sakima wawaama biingi. Pano shetu umo waambile amba, "Kafwako nangwa umo wakonsheshe kutekenesha ba bosi. Nanchi awe mwanyike mputa walanguluka amba wakoonsha kwiba tekeneshanyi?"
+Bamingilo balekele byo baubilenga. Batelekele kulwimbo lwakwa Sakima wawama bingi. Shetu umo waambile amba, "Kafwako nangwa umo wakonsheshe kutekenesha bantangi betu ne. Nanchi awe mwanyike mputa walanguluka amba wakonsha kwiba tekenesha nyi?"
 
 ##
-Sakima wapwishishe kwimba kabiji wa alukile amba ayenga. Kabiji uno shetu munoonshi walupukile lubilo ne kwamba amb, "Nasansapo, imba jikwabo."
+Sakima wapwishishe kwimba kabiji wa alukile amba ayenga. Bino uno shetu munonshi walupukile lubilo ne kumwambila Sakima amba, "Nasansapo, imbako ne jikwabo."
 
 ##
-Pakyonkakya kimye, bashetu babiji baishile saka basenda muntu pamakila. Bataine mwana wauno munoonshi bamupuma kabiji bamusha ne kunsa ya mukwakwa.
+Pakyonkakya kimye, bashetu babiji baishile saka basenda muntu pamakila. Bataine mwananji uno munonshi bamupuma kabiji bamusha ne kunsa ya mukwakwa.
 
 ##
-Uno shetu munoonshi wasangalele biingi pakumona mwanaji jikwabo. Wamulambwile Sakima pakumutekenesha. Watwajile mwananji ne Sakima ku kipatela pakubamba Sakima atambule lubuko lwa meeso.
+Uno shetu munonshi wasangalele bingi pakumona mwananji jikwabo. Wamulambwile Sakima pakumutekenesha na lwimbo. Watwajile mwananji ne Sakima kukipatela pakuuba amba Sakima atambule lubuko lwa menso.
 
 ##
 * License: [CC-BY]

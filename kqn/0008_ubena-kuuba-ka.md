@@ -1,25 +1,25 @@
-# Ubena kuba ka?
+# Ubena Kuuba ka?
 
 ##
-Mbena kwimba.
+Amiwa mbena kwimba.
 
 ##
-Ubena kushajikapo.
+Amiwa mbena kusokona.
 
 ##
-Mbena kutota.
+Amiwa mbena kupompwela.
 
 ##
-Ubena kwi yolola.
+Nsongwakazhi ubena kwiolola.
 
 ##
-Ubena kwita.
+Nsongwalume ubena kwita.
 
 ##
-Mbena ku kumbula.
+Amiwa mbena kukumbula.
 
 ##
-Ubena kunvwa.
+Amiwa mbena kuteleka.
 
 ##
 Ubena kuba ka?

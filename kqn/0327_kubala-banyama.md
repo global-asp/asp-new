@@ -1,28 +1,28 @@
-# Kubala banyama
+# Kubala Banyama
 
 ##
-Nzovu umo waya nakutoma mema.
+Nzovu umo ubena kuya nakutoma meema.
 
 ##
-Banjabuluba babiji baya nakutoma mema.
+Banjabuluba babiji babena kuya nakutoma meema.
 
 ##
-Bambowo basatu ne bang'onyi banaa baya nakutoma mema.
+Bambowo basatu ne bañonyi babena kuya nakutoma meema.
 
 ##
-Tukasha tanu ne bampenge batanu naumo benakuya kumema.
+Bakasha batanu ne bampenge batanu naumo benakuya kumeema.
 
 ##
-Bakingalika batanu nebabiji bena kunyemena kumema.
+Babingalika batanu nababiji babena kunyemena kumeema.
 
 ##
-Babombwe batanu ne basatu kubikapo ne masabi atanu ne ana abena kowa mumema.
+Babombwe batanu na basatu ne masabi atanu na ana abena kowa mumeema.
 
 ##
-Bokwe umo wabuluma. Ubena kukeba kutoma mema. Ng'anyi ubena kuchina bokwe?
+Bokwe umo wabuluma. Naye ubena kukeba kutoma meema. Ñanyi ubena kuchiina bokwe?
 
 ##
-Nzovu umo ubena kutoma mema ne bokwe.
+Nzovu umo ubena kutoma meema na bokwe.
 
 ##
 * License: [CC-BY]

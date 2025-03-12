@@ -1,28 +1,28 @@
-# Monayi abe banyama
+# Mona Banyama
 
 ##
-Monayi abe banyama.
+Mona banyama.
 
 ##
-N'gombe amba "Moo"
+Ñombe ujila amba, "Moo."
 
 ##
-Mbuzhi nayo amba "Meh, meh"
+Mbuzhi ujili amba, "Mee, mee."
 
 ##
-Mbongolo amba "Neeeee"
+Mbongolo wamba amba, "Neeeee."
 
 ##
-Nkumba amba "Ggggrrrrr"
+Nkumba wamba amba, "Ggggrrrrr."
 
 ##
-Nzolo amba "Koookoookooo"
+Nzolo wamba amba, "Koookoookooo."
 
 ##
-Kabwa amba "Booobooo"
+Kabwa baboza amba, "Booobooo."
 
 ##
-Njimi amba "Shhh!"
+Njimi wamba amba, "Shhh!"
 
 ##
 * License: [CC-BY-NC]

@@ -1,37 +1,37 @@
-# Tingi ne bang'ombe
+# Tingi ne Bañombe
 
 ##
-Tingi waikelenga ne bankambo yanji babakazhi.
+Tingi waikalanga na ba nkambo yanji babakazhi.
 
 ##
-Walaminenga bang'ombe pano ne bankambo yanji babakazhi.
+Balamanga bañombe pamo ne ba nkambo yanji babakazhi.
 
 ##
-Juba jimo bashilikale baishile.
+Juuba jimo bashilikale baishile.
 
 ##
-Batambwile ba ng'ombe.
+Bebatambwile bañombe bonsetu.
 
 ##
-Tingi ne bankambo yanji banyemene ne kufyama.
+Tingi ne ba nkambo yanji babakazhi banyemene ne kufyama.
 
 ##
-Bafyamine mungye kufika ne bufuku.
+Bafyamine mungye kufikatu ne bufuku.
 
 ##
 Bashilikale babwelele.
 
 ##
-Bankambo yanji Tingi bamufile muma bula.
+Ba nkambo yanji bamufile Tingi mumabula.
 
 ##
-Mushilikale umo wamunyanchile pano waikeletu nzoo.
+Mushilikale umo wamunyanchile pano bino aye waikeletu nzoo.
 
 ##
-Pakumona amba bashilikale baya , Tingi ne bankambo yanji balupukile.
+Pakumona amba bashilikale baya, Tingi ne bankambo yanji balupukile.
 
 ##
-Babombokeletu nzoo nekubwela kunzubo kwabo.
+Bakalabiletu kishinshi nekutwela munzubo.
 
 ##
 * License: [CC-BY]

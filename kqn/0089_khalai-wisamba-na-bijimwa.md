@@ -1,28 +1,28 @@
-# Khalai wamba na bijimwa
+# Khalai wisamba na bijimwa
 
 ##
-Awe Khalai.Uji namwaka itanu naisatu. Jizhina janji jalumbulula buwame mumulaka wanji, Lubukusu.
+Awe Khalai. Uji namwaka yakusemwa itanu naisatu. Mumulaka wanji wa Lubukusu, jizhina janji jalumbulula buwame.
 
 ##
-Khalai ubuka ne kwamba nama orange ku kichi."Nakupopwela obe kuchi kwama orange, koma bukiji witupeko ma orange apya avula.
+Khalai ubuuka ne kwisamba na bichi bya maolengi. "Nakupopwelapo obe kichi kya maolengi, komanga bukiji witupenga maolengi aavula aapya."
 
 ##
-Khalai wenda nama ulu pakuya kusukulu. Mujishinda wamba na nsono." Nakupopwela obe nsono koma wafititukila kabiji kukooma ne".
+Khalai wenda kuya kusukuulu. Mujishinda wisamba na nsono." Nemipopwela aneba nsono, komainga bulongo mubunzhamatamba kabiji kumangane."
 
 ##
-Khalai upita paji maluba amungye, "Nakupopwela sapukayi pakwamba nkemubike munsuki yami".
+Khalai upita paji maluba amungye, "Nemupopwelapo aneba maluba, twajijilai nakulala buluba pa kuuba amba nemubikenga munsuki yami."
 
 ##
-Ku sukulu, Khalai wamba nakichi kiji pakachi ka muzhi. "Nakupopwela obe kichi, lupula misampi pakwamba mba tutangilengamo mu kimfutele kyobe."
+Kusukuulu, Khalai wisamba nakichi kiji pakachi kalubanzha. "Nakupopwelapo obe kichi, sapukanga namisampi pa kuuba amba tutangilengamo munshi mukimfutele kyobe."
 
 ##
-Khalai wamba naluvimba lwa pasukulu ,"Nakupopwela koma wakosa uvimbile sukulu pakwambamba bantu batama babule kutwela."
+Khalai wamba naluvimba lwa pasukuulu, "Nakupopwelapo koma saka wakosa pa kuuba uvimbile sukuulu wetu nekukanya bantu batama babulenga kutwela mukachi."
 
 ##
-Khalai inge wabwela kufuma kusukulu, upempula kichi kwama orange." Ma orange yobe yapyanyi?" Khalai waipuzha.
+Khalai inge wabwela kufuma kusukuulu, upempula kichi kya maolengi." Maolengi obe apyanyi?" Khalai waipwizhe.
 
 ##
-"Ma orange akiji abishi," Khalai wijizhang'anya. 2Nkeya nakwimimona kesha," Khalai waamba." Kampe katana kwapya yami imo!"
+"Maolengi akiji abishi," Khalai wijizhañanya Kyawama nkeya kesha," Khalai waambile amba." Kampepo ukekalapo najiolengi japya jakumpa!"
 
 ##
 * License: [CC-BY]

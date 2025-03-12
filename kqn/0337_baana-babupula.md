@@ -1,37 +1,37 @@
-# Baana ba nsela
+# Baana Babupula
 
 ##
-Kumyaka yakala, kwajinga kisemi kimo kyajinga bingi na lusekelo.
+Kala kene, kwajinga kisemi kimo kyaikajilenga bingi na lusekelo.
 
 ##
-Abe bantu kechi balwanga ne. Bakwashishenga bansemi babo pa nzubo ne ku majimi.
+Abe bantu kechi balwanga ne. Bakwashishenga bansemi yabo pa nzubo ne kumajimi.
 
 ##
-Pano kechi bebaswishishe kuya pabwipi ne mujilo ne.
+Pano mino kechi bebaswishishe kuya pabwipi na mujilo ne.
 
 ##
-Baingijilenga nkito yabo bufuku mambo babumbilwe na nsela.
+Baingijilenga nkito yabo yonse kimye kya bufuku mambo babumbilwe na bupula.
 
 ##
-Pano umo mulumendo wakebeshe bingi kuya mu mute.
+Bino nsongwalume umo wakebeshenga bingi kuya mumute.
 
 ##
-Juba jimo, kukebesha kwanji kwa kijilemo. Bakolojanji babalume baesekele ku mukanya.
+Juuba jimo, lusako lwanji lwakoselako. Bakolojanji babalume baesekele kumukanya…
 
 ##
-Pano kimye kyapwile! Wayengulukile namute.
+Bino babanjile kumukanya! Wasungulukile namute.
 
 ##
-Bana bansela baunvwine biingi kutama.
+Bano baana babupula baumvwine bingi kutama pa kumona mulongo wabo wasunguluka.
 
 ##
-Batolele nsela ne kubumba ka ngo'nyi.
+Balangulukilepo maana akubumba abwa bupula bwasungulukile mukañonyi.
 
 ##
-Basendele nkasabo kango'nyi ne kumutwala ku mutumba.
+Basendele nkasabo kañonyi ne kumutwala kumutumba.
 
 ##
-Mute pakusama, aye watumbikile saaya na kwimba.
+Mute pakusama, aye watumbukile akwe saka enda nakwimba.
 
 ##
 * License: [CC-BY]

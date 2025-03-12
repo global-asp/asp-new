@@ -1,39 +1,37 @@
-# Wamulume walepesha
+# Muntu Walepa Bingi
 
 ##
-Lukasu lwanji lwajinga lwaipipa.
+Lukasu wajinga waipipasha.
 
 ##
-Kinzhilo kwanji kyajinga munshi bingi.
+Kinzhilo kyanji kyajinga kyaipipasha.
 
 ##
-Mwanya wanji wajinga wipi.
+Mwanya wanji wajinga waipipasha.
 
 ##
-Nkinga yanji yajinga yipi.
+Nkinga yanji yajinga yaipipisha.
 
 ##
-Awe wamulume wajinga walepa!
+Awe muntu walepele bingi!
 
 ##
-Wapangile kwaku kwachilako lukasu kwalepa.
+Walengele mupinyi walukasu walepa bingi.
 
 ##
-Wapangile kinzhilo kyalepa bingi.
+Walengele mafulemu akinzhilo alepa bingi.
 
 ##
-Wapangile mwanya walepa bingi.
+Kabiji walengele mwanya walepa bingi.
 
 ##
 Wapotele nkinga yalepa bingi.
 
 ##
-Waikele pakipuna kyalepa bingi.
-
-Pakuja wajilenga nafoloko walepa.
+Waikele pakipona kyalepa bingi. Waingijishe foloko walepa bingi pa kuja.
 
 ##
-Wa shilenzubo yanji nekuya nakwikala mungye. Waikajile myaka yavula.
+Washile nzubo yanji kabiji wayile nakwikala mungye. Waikajilenga mungye myaka yavula.
 
 ##
 * License: [CC-BY]

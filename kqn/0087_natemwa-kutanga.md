@@ -1,28 +1,28 @@
-# Natemwa kutanga!
+# Natemwa Kutanga!
 
 ##
 Natemwa kutanga.
 
 ##
-Nsa kutagila bang'anyi?
+Ñanyi yenakonsha kutangila?
 
 ##
-Nkasami wamukazhi walala.
+Nkasami wamukazhi walaala.
 
 ##
-Nsa kutangila bang'anyi?
+Ñanyi yenakonsha kutangila?
 
 ##
-Ba mama ne bankabo babakazhi baji nankito.
+Ba maama ne ba nkambo babakazhi babena kwingila nkito.
 
 ##
-Nsa kutangila bang'anyi?
+Ñanyi yenakonsha kutangila?
 
 ##
-Ba tata ne bankambo babalume baji nankito.
+Ba taata ne ba nkambo babalume babena kwingila nkito.
 
 ##
-Nsa kutangila bang'anyi? Nsa kwitangila amimwene!
+Ñanyi yenakonsha kutangila? Nakonsha kwitangila amiwa mwine!
 
 ##
 * License: [CC-BY]

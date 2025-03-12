@@ -1,28 +1,28 @@
-# Kine kintu byovwe kyobya bujila kwikala na booya
+# Kyabujila Byovwe Kwikala Nabooya
 
 ##
-Juba jimo, Kalulu waendelenga kubwipi na mukola.
+Juuba jimo, Kalulu waendelenga kubwipi namukola.
 
 ##
-Kyovwe naye wajinga konka, waile mukwenda nakuja nsono.
+Kyovwe naye wajinga konka, kabiji wenda uja nsono yanenkuma bulongo.
 
 ##
-Kyovwe kechi wamwenemba kalulu uji mpoka kabiji wamunyanchile kukulu. Kalulu watendekele kupachila kyovwe," Kechiwanoma amba wanyanta pakulu nyi?"
+Kyovwe kechi wamumwene kalulu ne kabiji wamunyanchile kukuulu. Kalulu watendekele kumupachila kyovwe amba," Obewa Kyovwe! Kechi wamoma amba wanyanta pakuulu nenyi?"
 
 ##
-Kyovwe walombele lulekelo lwamamba kwi kalulu," Napopwela Ndekeleko mambo. Kechi nakukumona ne. Pano kalulu kechi waunvwine ne, kabiji wamunenene kyovwe amba," Wakubilatu nshiji! Jubajimo, ukamona byo nkakuba! "
+Kyovwe walombele lulekelo lwamambo kwi kalulu, "Napopwela ndekeleko mambo. Kechi najikukumona ne. Bino kalulu kechi waunvwine ne, kabiji watwajijile nakupachila kyovwe amba, "Wakubilamotu nshiji! Juuba jimo ukamona byonkakuba! Ukalapila juuba jimo! "
 
 ##
-Kalulu waile kwi mujilo nekumwambila amba," yanga ukamusoke Kyovwe inge afume mumema kuya nakuja nsono. Wakunyanta!" Mujilo waasukile amba," Kafwako lukatazhone nsakuya nakuba byo waamba".
+Kalulu waile kwi Mujilo nekumubuula amba," Ganga ukansokeleko Kyovwe namujilo inge wafuma mumeema waiya nakuja nsono. Wajikunyanta!" Mujilo wakumbwile amba," Kafwako lukatazhone nsakuya nakuba byonkabyo."
 
 ##
-Pakupita kimye, kyovwe wajilenga nsono kwalepa na mukola. Kumonatu, "fuuuuuuu!" Mujilo watendeka. Mujilo watendekele kusoka booya bwakwa Kyovwe.
+Pakupita kimye, kyovwe wajilenga nsono kwalepa na mukola. Mujilo waubatu uushi. Kyovwe wabazhimukiletu mujilo kealulume. Mujilo watendekele kusoka booya bwakwa Kyovwe.
 
 ##
-Kyovwe watendekele kujila ne kunyemena ku mema. Booya bwanji bonse bwapile na mujilo. Kyovwe wajijilenga amba, "Booya bwami, booya mwami bwapya na mujilo! Booya bwami bonse bwaya! Booya bwami bwawama!"
+Kyovwe watendekele kujila ne kunyemena ku meema. Booya bwanji bonse bwapile namujilo. Kyovwe watwajijile kujila amba, "Booya bwami bwapya namujilo! Booya bwami bonse bwaya! Booya bwami bwawama!"
 
 ##
-Kalulu wasangalele pakumona amba booya bwa kyovwe bonse bwapya. Kufikatu ne jalelo, kyovwe namambo akuchina mujilo, kechi uya kwalepa na mema ne.
+Kalulu wasangalele pakumona amba booya bwakwa kyovwe bonse bwapya. Kufikatu ne jaleelo, kyovwe namambo akuchiina mujilo, kechi uya kwalepa na meema ne.
 
 ##
 * License: [CC-BY]

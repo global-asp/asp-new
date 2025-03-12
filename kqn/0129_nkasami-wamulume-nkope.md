@@ -1,25 +1,25 @@
-# Nkasami wamulume nkope
+# Nkasami Wamulume Nkope
 
 ##
-Mbuka naku banza mujilo.
+Mbuka nakubanza mujilo.
 
 ##
-Nakabisha ne mema.
+Nteeka Meema Aselauka.
 
 ##
-Na tetaula nenkunyi.
+Ntentaula Nkunyi.
 
 ##
-Na kumbaula nemu mpoto.
+Nkumbaula mu mpoto.
 
 ##
-Na pyanga nepanshi.
+Mpyanga Munzubo.
 
 ##
-Na ovwa nemasanyi.
+Ngovwa Masanyi.
 
 ##
-Kika kyongingijila bibye nyi... bino nkasami aye sakayatu?
+Ene mambo oñingijila nangovu... … bino nkasami wamulume aye saka akayatu?
 
 ##
 * License: [CC-BY-NC]

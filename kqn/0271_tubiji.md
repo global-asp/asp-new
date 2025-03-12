@@ -1,19 +1,19 @@
 # Tubiji
 
 ##
-Maboko acheche abiji akukwachilako.
+Maboko Abiji Acheeche Ekwate.
 
 ##
-Maboko acheche abiji akupanchilako.
+Maulu abiji acheeche apante.
 
 ##
-Maboko acheche abiji akumwenako.
+Menso abiji acheeche amone.
 
 ##
-Maboko acheche abiji akunvwinako.
+Matwi abiji acheeche omvwe.
 
 ##
-Ne maboko abiji abotemwe aku kumbachilakoo!
+Maboko abiji etemwe EKUMBATE!
 
 ##
 * License: [CC-BY-NC]

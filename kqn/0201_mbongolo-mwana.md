@@ -1,64 +1,64 @@
-# Mwaana Mbongolo
+# Mbongolo Mwana
 
 ##
-Mwaana mucheche wamukazhi yewaji mutanshi kumona kingelekzha kya kintu paleepa.
+Mwana wamucheeche wamukazhi yewajinga mutanshi kumona kintu kyabula kuyukanyikwa paleepa.
 
 ##
-Kino kintu byokya fwenynye kwipi, wamwene amba ke inetu uji na jimi.
+Bino akino kintu byokyafwenyenye pabwipi, wamwene amba nanchi wajinga inetu wajinga najimi jakoma.
 
 ##
-Mu bumvu ne muku bula moyo, mwanyike wamucheche wamukazhi wafwenyenye kwipi nauno inetu. "Tusakumulama atweba," baloongo ba wamukazhi bafukwile. "Tusakumulama aye mwine ne mwananji bulongo."
+Mwanyike nangwa waumvwine bumvu, bino wajinga nangovu kabiji waile kubwipi nakwajinga inetu bajinga najimi. Balongo bauno mwanyike wamukazhi ba ambile amba, "Tusa kumulamanga uno inetu ne mwananji bulongo."
 
 ##
-Mwana waji pepi nakusemwa. "Shinjika!" "Letayi mwemba!" "Meema!" "Shinjika!"
+Mwananji wakijinga ukyangye kusemwa. "Shinjika!" "Letai mwemba!" "Meema!" "Shinjika!"
 
 ##
-Pano byo ba mwene mwaana, boonse batumbukile ne kubwela munyuma naku kumya. "Mbongolo!"
+Bino panyuma yakumona mwana, bonsetu batolokele, babwelele panyuma kabiji bakuminye. "Mbongolo nyi?!"
 
 ##
-Bonse batekele kwipachika. "Twakwamba amba tusa kumula inanji ne mwaana bulongo, byobyo tusa kuuba byonkabyo," umo wa ambile. "pano basa kwituletela mashamo!" bakwaabo nabo ba ambile.
+Bonse batendekele kwipachika. Bantu bamo baambile amba, "Twajikumvwañana amba tusa kumula inanji ne mwananji bulongo, kabiji byobyo tusa kulondela." Kumvwa bakwabo amba, "Kampepo bakonsha kwituletela mashamo!"
 
 ##
-Kabiji ne byonka byo, uno inetu witaine buunke jikwaabo. Walangulukile byo afwainwa kuuba ne uno mwaana wapusanako. kabiji walangulukile byo akonsheshe kwiuba aye mwiine.
+Namambo aino milanguluko ya bantu, uno inetu witaine bunke jikwabo. Kechi wayukile bya kuuba nayewa mwana wabujile kulumbuluka ne. Kikwabo kekya kuuba amba kechi wayukile bya kuuba ne.
 
 ##
-Kyapeleleko, waswiletu amba uno ke mwananji kabiji ye inanji.
+Kyapeleleko, wamuswiletu mwana amba kabiji yeinanji.
 
 ##
-Nanchi inge uno mwaana waikele kipimo kimo, inge biintu bya puseneko. pano uno mboongolo wamwaana wakomenengatu poso kabule ne kufika munyuma ya bainanji. Nangwa eseke byepi, kechi wakonsheshe kwikala nobe muuntu. Bainanji javula bakokele neku bwezhewa panyuma mu mupashi. Jimo jimo bamupanga miingilo ya kwingila banyama.
+Nanchi inge auno mwana waikeletu pakipimo kimo kwakubula kukoma, inge kyawamineko. Pano uno mbongolo wamwana wakomenengatu pakatu nyuma ya ba inanji yakeepa kabiji keakankalwe kufikamo munyuma. Nanchi nangwa waesekelenga kumwesha byubilo bya bumuntu byepi, bino kechi wakonsheshe kwikala nobe muntu ne. Onkao mambo, ba inanji jaavujishatu baikalangatu bakooka kabiji nakijikila. Kimo kimye ba inanji baubanga mingilo yafwainwa kwingila banyama.
 
 ##
-Kuvulangana ne bukaji byakomenenga mukachi kauno mboongolo. Kechi wakonsheshe kuuba kikye nangwa kyokya ne. Kechi waji kikye nangwa kyokya ne. Juuba jimo wazhingijile biingi kabiji wa panchile kibaaka bainaji bapona ne paanshi.
+Kuvulañana ne bukaji byakomenenga mu uno Mbongolo. Kechi wakonsheshe kuuba kintu kiji kyonse ne. Kabiji kechi wakonsheshenga kwikala ne. Kabiji watendekele kwikala bingi nabukaji. Juuba jimo wazhingijile bingi kabiji wapanchile bainanji nakibaaka bapona ne panshi.
 
 ##
-Mboongolo waumvwine bumvu. Kabiji watendekele kunyema kuya kwalepa lubilo.
+Mbongolo waumvwine bumvu. Kabiji watendekele kunyema kuya kwalepa.
 
 ##
-Kimye kyo alekele kunyema, bwaijile kabiji mboongolo waelekele. "Hee haa?" Wanongotwele ku mfishi. "Hee haa?" kilulumo kyamu bwelejile. Wajinga buunke. Wichimpile kabiji waponene ne mutulo.
+Nanchi kimye kyoanyemene bwajinga bufuku kabiji uno Mbongolo walubijilemo. "Hee haa?" Winongotwelejile mwine mumfishi. "Hee haa?" waumvwine kilulumo kyajiwi janji. Wajinga bunke. Wivungile-vungile kabiji waponejile mutulo twalukatazho.
 
 ##
-Mboongolo wabukile ne kutana mwaana mulume mukote ubeena kumutala. Watajile mu meeso auno mukote ne kwikala na luketekelo.
+Mbongolo byoabukile wataine shetu mukote ubena kumutala. Watajile mumenso auno shetu mukote kabiji kyamuletelejileko luketekelo.
 
 ##
-Mboongolo waile nakwikala nauno mukote wamulume. Wamunjishe mashinda aavula apusana akwikelamo. Mboongolo watelekanga ne kufunda pamo neuno shetu mukote. Bekwashanga ne kuseka pamo.
+Mbongolo waikelenga nauno mukote wamulume kabiji wamufunjishileko bintu byavula pa byo afwainwa kwikala mubwikalo. Mbongolo waumvwijilenga kabiji ne kufunda. Uno shetu mukote neaye waubilenga kintu-kimo. Bekwashanga ne kuseka pamo.
 
 ##
-Juuba jimo lukelo, uno mukote wamulume wabujile mboongolo kumusendako ne kumu twala peulu ya mutumba.
+Juuba jimo lukeelo, uno mukote wamulume wabujile Mbongolo kumupaapa nekumutwala peulu ya mutumba.
 
 ##
-Peulu peene pamakumbi, baponejile mutulo. Mboongolo walotele amba bainanji babeela kabiji babeena kumwita. Kabiji byo abukile.........
+Baile peulu pene pamakumbi, kabiji baponejile mutulo. Mbongolo walotele amba bainanji babeela kabiji babena kumwita. Kabiji byo abukile...
 
 ##
-Makumbi azhimang'ene pamo namukwabo, kakote wamulume.
+… makumbi azhimañene pamo namukwabo, aye mukote.
 
 ##
-Mboongolo pano wayukile bya kuuba.
+Mbongolo ponkapo wasajile bya kuuba.
 
 ##
-Mboongolo wataine bainanji buunke saka ajila mwaananji waeleka. Betajile kimye kya baya. Be pakachilemo kyakosa biingi.
+Mbongolo wataine ba inanji bunke saka bajila mwanabo waelekele. Basambakene ne kwitala kimye kyabaya. Ponkapo Mbongolo ne ba inanji bepakachijilemo kyakosa bingi.
 
 ##
-Mboongolo mwaana ne inanji bakomena pamo ne kutana mashinda akwikelamo. Pachepache boonse beba zhokoloka ne bisemi bikwabo bya tatula kwikiswisha.
+Mbongolo ne ba inanji bakomejile pamo ne kutana mashinda akwikajilamo. Bisemi bikwabo byatendekele pachepache kwiya nakushimika ne kwikala konka kobekalajila.
 
 ##
 * License: [CC-BY]

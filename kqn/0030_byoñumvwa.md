@@ -1,19 +1,19 @@
-# Bya kunvwa
+# Byoñumvwa
 
 ##
-Muchima wami unvwa byavula.
+Muchima wami umvwa byapusana-pusana.
 
 ##
-Nsangalala inge bakambo kebetubule tushimi mabanga.
+Ñumvwa kusangalala inge ba nkambo kebetubule tushimi mabanga.
 
 ##
-Nguvwa bunvu inge nakaya nabakwetu.
+Ñumvwa byapusanako inge mbena kukaya nabakwetu.
 
 ##
-Inge batata bambamba bafwayo mali nguvwa bibi.
+Ñumvwa kutama inge ba taata baamba amba bafwao mali.
 
 ##
-Nguvwa butemwe ngebamama bankubachila.
+Inge ba maama bankumbata, ñumvwa amba bantemwa.
 
 ##
 * License: [CC-BY-NC]

@@ -1,28 +1,28 @@
-# Andiswa shenyenye wampila yakumaulu
+# Andiswa Shenyenye Wampila ya Kumaulu
 
 ##
-Andiswa watambilenga bana babalume saka bateya mpila yaku maulu. Wakumbilwe naye kuteya mupila. Waipwizhe bantang'i bamupila waku maulu inge bakonsheshe kumuswisha kuteya naye.
+Andiswa watambilenga bansongwalume saka bateya mpila ya kumaulu. Walangulukilenga inge kyakonsheka kutwelamo nekuteya nabo mpila. Walombele luusa amba inge kyakonsheshe kumuswisha kuteya nabo.
 
 ##
-Bantangi bakwachile maboko mumu sana." Pano pasukulu bana babalume boba swishiwatu kuteya mpila yakumaulu," baambile.
+Ntangi wakwachile maboko mumusana. Wamwambijile amba, "Pauno sukuulu baswishatu kuteya mpila ke banyike babalume kwapwa."
 
 ##
-Bana babalume bamubujile amba ayenga nakuteya mpila yakumaboko. Bamu bujile amba mpila yakumaboko yabana bakazhi kabiji mpila kakumaulu yabana balume. Andiswa wazhingijile.
+Banyike babalume bamubujile kuya nakuteya mpila yakumaboko. Bamubujile amba mpila yakumaboko yoya banyike babakazhi kabiji mpila ya kumaulu ya banyike babalume kwapwa. Andiswa wazhingijile bingi.
 
 ##
-Juba jalondejilepo, sukulu yajinga nakukaya kwampila yakumaulu ikatampe. Ntangi wamu mpila yakumaulo waakamiwe bingi mambo wayukile bingi kuteya mpila yakumaulu wabelele.
+Juuba jalondejilepo, sukuulu yajinga nampila ikatampe. Bantangi batangijilanga kipanyi kyampila baumvwine bingi moyo mambo nkaizhi wabo mwine wabelele kabiji kechi wakonsheshe kuteyane.
 
 ##
-Andiswa wanyemejile ku bantangi bampila yakumaulu nekwiba popwela amba bamutwezhemo. Abo kechi bayukile byakuba ne. Byo bamuswishishe kutwelamo.
+Andiswa wanyemejile kubantangi batangijilenga kipanyi kya mpila ya kumaulu nekwibapopwela amba bamutwezhemo. Nanchi baswishishe amba Andiswa atwelemo ne kuteya na kipanyi.
 
 ##
-Mpila yakosele. Kafwako batwezhezhepo ne kufika nepakachi kakimye.
+Mpila yakosele. Kafwako batwezhezhepo golone kufikatu nepakachi kakimye kyobebapele kuteya mpila.
 
 ##
-Pa kubwelamo jikwabo mulumendo umo wapanchile bola kuya kwi Andiswa. Wanyemene lubilo nekuya nakutwezha.
+Pa kimye kyobabwelelemo jabubiji nsongwalume wamupanchijile mpila Andiswa. Wanyemene lubilo lwine nekuya kukipanda. Andiswa wapanchile mpila ne kutwezha.
 
 ##
-Bantu bonse baunvwine bulongo. Kufuma tu pajubajo, bana bakaji bebaswishishe kuteya mpila yakumaulu pa sukulu.
+Bantu bonse baumvwine bulongo. Kufumatu pajonkaja juuba, bansongwakazhi bebaswishishenga kuteya mpila yakumaulu pasukuulu.
 
 ##
 * License: [CC-BY-NC]

@@ -1,52 +1,52 @@
 # Simbegwire
 
 ##
-Kimye baina Simbegwire bafwile, aye wajinga biingi na bulanda. Bashanji Simbegwire baesekele biingi na ngovu kumulama bulongo mwanabo. Pachepache batendekele kusangalala jikwabo kwakubula baina Simbegwire. Kimye kyonse lukelo baikalnga na kwisamba pa byo basa kuba mujoja juuba. Kimye kyonse mabanga batekaanga kajo ka mulajilo pamo. Panyuma yakovwa bijilo, bashanji Simbegwire bamu kwashangako kuba miingilo ya ku sukulu ya kubila ku nzubo.
+Simbegwire waumvwine bingi bulanda kimye kyafwile bainanji. Bino bashanji Simbegwire baesekele bingi nangovu kumulama bulongo mwanabo wamukazhi. Pachepache batendekele kusangalala jikwabo kwakubula bainanji Simbegwire. Kimye kyonse lukeelo baikalanga nakwisamba pa byobakoba juuba jikalondelapo. Kimye kyonse mabanga bateekanga kajo kamulajilo pamo. Panyuma yakovwa bijiilo, bashanji Simbegwire bamukwashangako kuuba mingilo ya kusukuulu.
 
 ##
-Juuba jimo bashanji Simbegwire babwelele ku nzubo kimye kyo babula kufikilapo kimye kyonse."ujipi mwanami?" ba ichiile.Simbegwire wanyemejile bashanji.Waimeene byo amwene amba bakwata kuboko kwa mwanamukazhi. "beena kukeba uyuke uno muntu wapusanako, mwanami.Uno ke Anita,"ba ambile na kumwemwesela.
+Juuba jimo bashanji Simbegwire kechi babwelele kunzubo bukiji nobe byonka byobaubanga kimye kyonse ne. "Baipwizhe amba, "Ujipi mwanami? Simbegwire wanyemejile kuba shanji. Simbegwire waimenetu zhoo byoamwene amba bashanji bakwachile kuboko kwa babakazhi. Ba shanji bamulumbulwijile amba, "mwanami mbena kukeba namba uyuke uno muntu wakilamo kunema. Uno muntu jizhina janji ye Anita," ba ambile nakumwemwesela.
 
 ##
-"Byepi Simbegwire, bashobe bambula byavula pe obewa," Anita waambile. Pano kechi wamwemwesejile nangwa ku kwata kuboko kwa mwanyike wa mukazhi. Bashanji Simbegwire batemenwe biingi ne kusangalala. Bashilangene pabyo abo basatu bakekalanga pamo nebyo bwikalo bwabo bukawama. "Mwanami, naketekela usa kumuswa Anita nobe inobe," baambile bashanji.
+"Byepi Simbegwire, bashobe bambula bintu byavula bingi pe obewa," Anita waambile. Bino Anita kechi wamwemwesejile nangwa kukwata kuboko kwakwa Simbegwire ne. Bashanji Simbegwire batemenwe ne kusangalala bingi. Besambile pabwikalo bwabo bwakulutwe bonse basatu. Ba shanji bamwambijile mwanabo amba, "Mwanami, naketekela usa kwibaswa ba Anita kwikala bainobe."
 
 ##
-Bwikalo bwa kwa Simbegwire bwa pimpwilwe. Kechi wajingapo na kimye kya kwikalapo nabashanji kimye kya lukelo. Anita wamupanga mingilo yavula yapa nzubo kyakuba amba wakankalwanga ne kuba mingilo yaku sukulu mabanga. Wayanga na kulala pa nyuma yakuja kajo ka mabanga nangwa ka mulaajilo.Kyamutekeneshangatu ke mweemba wa mushijile bainanji. Bashanji Simbegwire kechi bamwenga amba mwaanabo amba kechi wasangalala ne.
+Bwikalo bwa kwa Simbegwire bwa pimpwilwe. Kechi wajingapo na kimye kyakwikalapo nabashanji kimye kya lukeelo ne. Ba Anita bamupelenga mingilo yavula yapa nzubo kyakuuba keakankalwe ne kunemba mingilo ya kusukuulu mabanga namambo akukooka. Simbegwire wayangatu nakulaala panyuma yakuja kajo ka mabanga. Kyamutekeneshangatu kemwemba wanji wawama wamushijile bainanji. Bino ba shanji Simbegwire kechi bayukile amba mwanabo wajinga nabulandane.
 
 ##
-Pakupitapo ba ng'ondo bacheche, bashanji Simbegwire bebabujile amba bakafumapo pa nzubo ka kimye kacheche. "Nkayanga ku mingilo," baambile. "Mino nayuka mukelama bulongo." Simbegwire wa tamishe pa menso, bino bashanji kechi bamwene ne. Anita aye kechi waambile kintu. Naye kechi watemenwe ne.
+Pakupitapo bañondo bacheeche, bashanji Simbegwire babujile Simbegwire ne bainanji amba bakafumapo panzubo moba aavula. Bebalaile amba "nkayanga ku mingilo. Bino nayuka mukelamatu bulongo." Simbegwire wamwesheshe kilungi kyabulanda, bino bashanji kechi bamwene ne. Anita aye kechi waambilepo kintu kiji kyonse ne. Kabiji kechi wamwemwesheshe kiji kyonse nangwa kubula kusangalala ne.
 
 ##
-Bintu bya tamijileko kwi Sambigwire. inge kechi wapwisha mingilo yapa nzubo nangwa wijizhang'anya, anita wa mupumanga. Ne kimye kya kuja kajo kaku lajilapo, uno inetu wajanga kajo kavula kushilako Sambegwire bukuku. Kimye kyonse pakulala, Sambegwiri wajilanga ne ku kwachijila mweemba wa mushijile bainanji.
+Simbegwire bintu byayilengatu nakutaminako. Inge kechi wapwisha mingilo yapa nzubo nangwa wijizhañanyako, Anita watendekele kumupuma. Kimye kyakuja kajo kamabanga, Anita wajanga kajo kaavula kumushilako Simbegwire bukuuku. Kimye kyonse pakulaala, Simbegwire wajilanga aku saka akumbachila mwemba wamushijile bainanji.
 
 ##
-Juuba jimo lukelo Simbegwire kechi wabukile bukiji ne. "Obewa nkope!" Anita wabijikile. Wamukokele Simbegwire kufuma mu mwanya. Mweemba wanji wawama wakobele mu musumali ne kutabuka pabiji.
+Juuba jimo lukeelo, Simbegwire kechi wabukile bukiji ne. "Obewa nkope!" Anita wabijikile. Wamukokele Simbegwire kufuma mumwanya. Mwemba wanji wawama wakobele mumusumali kabiji watabukile ne kwabanapo pabiji.
 
 ##
-Simbegwire waumvwine biingi kutama. Wafukwile kunyema ne kufuma pa nzubo. Wasendele bipimvwa bya mwemmba wa bainanji,walongele kajo kabiji wafumine ne pa nzubo. Walondejilenga jishinda mwaile bashanji.
+Simbegwire waumvwine bingi kutama. Walangulukile kunyemapo pa nzubo. Wasendele bipimvwa byamwemba wamupele bainanji, walongele kajo kabiji wafuminepo pa nzubo. Walondejilengatu jishinda mwailenga bashanji.
 
 ##
-Byokyafikile mabanga, wa kanjijile ku kichi kya lepa kwipi na mukola ne kunengezha pa kulaala mu misampi. Byo alajilenga watendekele kwiimba. "Maama, maama, maama, mwansha mwabunke. Mwanshile kabiji ke mwabwela ne. Ba taata baleka ku ntemwa. Maama mukeya kimye ka? Mwansha buunke."
+Byokyafikile kimye kya mabanga, wakanjijile ku kichi kyalepa kwipi namukola ne kunengezha pakulaala mumisampi. Saka akyangye kulaala watendekele kwimba lwimbo amba. "Maama, maama, maama, mwansha mwabunke. Mwanshile kwakubula kubwela ne. Ba taata kechi bantemwa byobantemenwe ne. Maama nanchi mukabwela ñanyi kimye? Mwansha bunke."
 
 ##
-Juuba ja londejilepo, Simbegwire waimbile lwimbo jikwabo. Ba mainetu byo baishile kuchapa bivwalo ku kakola, baumvwine lwiimbo wa bulanda saka afuma ku kichi kyalepa. Balangulukile amba kampe mwela ubena ku lelaula mabula kabiji batwajijile ne mingilo yabo. Pano umo inetu watelekeshe biingi bulongo ku uno lwiimbo.
+Juuba jalondejilepo, Simbegwire waimbilenga yenka uno lwimbo jikwabo. Bainetu baishile nakuchapa bivwalo kukakola, baumvwine muntu saka emba lwimbo wa bulanda kufuma kukichi kyalepa. Balangulukile amba kampe mwelatu wasunkanyinyenga mabula kabiji batwajijile na mingilo yabo. Bino umo inetu watelekeshe bingi bulongo ku uno lwimbo.
 
 ##
-Uno inetu watajile bingi mu kichi. Byo amwene mwanyike wamukazhi ne bipimvwa byanji bya mweemba wajijile, "Simbegwire, mwana kolojami!" Bainetu bakwabo balekele kuchapa ne ku kwasha Simbegwire kufuma ku kichi.Banyenga ya bashanji bamupakete ne kumu tekenesha.
+Uno inetu watajishishe bingi kukichi. Wamwene mwanyike wamukazhi ne bipimvwa byanji bya mwemba saka abena kujila. Ponkapo wabijikile amba, "Simbegwire, mwana kolojami wamulume!" Bainetu bakwabo balekele kuchapa ne kukwasha Simbegwire kwikila kukichi. Ba shanji-nkazhi bamukumbachile kabiji baesekele kumutekenesha.
 
 ##
-Banyenga ya bashanji bamu sendele Simbegwire ku nzubo yabo. Ba mupele Simbegwire byakuja byapyana ne ku muvweta bulongo mu mweemba wa bainanji. Abwa bufuku Simbegwire wajijile byoaile na kulaala. Bino yajinga mipolo ya lusekelo. Wayukile amba ba nyeenga ya bashanji baka mulama.
+Ba shanji-nkazhi bamusendele Simbegwire kunzubo yabo. Ba mupeele Simbegwire byakuja byakaba ne kumuvweta bulongo mumwemba wa mupeele bainanji. Abwa bufuku Simbegwire wajijile bingi saka akyangye kuponena mutulo. Bino wajijilenga mipolo yalusekelo. Wayukile amba ba shanji-nkazhi bakamulama bulongo.
 
 ##
-Bashanji Simbegwire byo ba bwelele ku nzubo, bataine mu kibamba moalaalanga ufwamo. "Kiika kya mwekele, Anita?" Bashikizhe na muchima wa bulanda. Uno inetu walumbulwile amba Simbegwire wanyema. "Nakebelenga amba ampe mushingi," waambile. "Pano mino kampe nakizhizhemo." Bashanji Simbegwire balupukile mu nzubo ne kuya mwaya kakola. Batwajijile ne kuya ku muzhi waba nyenga yabo na kukeba kuyuka inge ba mwenepo Simbegwile.
+Ba shanji Simbegwire byo babwelele kunzubo, batainetu mu kibamba moalaalanga ufwamo. "Kika kyamwekele, Anita?" Bashikishe na muchima wa bulanda. Anita walumbulwile amba Simbegwire wanyemene. "Nakebelengatu namba a anemekenga," wakumbwile. "Kampepo nakizhizhemo bukaji." Ba shanji Simbegwire balupukile munzubo ne kuya mwaya kakola. Batwajijile kuya kumuzhi waba nyenga yabo nakukeba kuyuka inge ba mumwenepo Simbegwire.
 
 ##
-Simbegwire wa kailenga ne bavyala banji byo amwene bashanji paleepa. Waumvwine moyo amba kampe basakumu kajipila, onkao mambo wanyemejile mu nzubo ne kufyama. Bino bashanji kwiaye ne ku mwambila amba, "Simbegwire, witaina inobe wakishinka. Umo wakutemwa kabiji wa kuyuka byouji. Nasekela mwi obewa kabiji na kutemwa." Baswang'ene amba Simbegwire wikalanga neba nyenga ba bashanji.
+Simbegwire wakailenga nabavyala banji kimye kyoamwene bashanji paleepa. Waumvwine moyo amba kampe ba shanji basa kumukajipila. Onkao mambo, wanyemejile munzubo nakufyama. Bino ba shanji bayile koajinga ne kumwambila amba, "Simbegwire, kyawama watanapo bainobe bawama muchima. Bano bakutemwa kabiji bakuyuka byouji. Nji bingi nalusekelo neobewa kabiji nakutemwa." Baswañene amba Simbegwire ekalenga naba shanji-nkazhi monka moakebela.
 
 ##
-Bashanji ba mupempulanga mooba onse. Mwayanga mooba, baile na ku mupempula ne Anita. Anita wakwachile kuboko kwakwa Simbegwire. "Ndekeleko mambo, nalubankenye," Anita waambile. "Wafwainwa kunswisha ngeseke jikwabo nyi?" Simbegwire watajile bashanji bajina kilungi kya milaangwe. Simbegwire wanyamukile ne kupakata Anita.
+Ba shanji bayanga nakumupempula moba onse. Juuba jimo ba shanji baile nakumupempula saka bajine Anita. Anita wakwachile kuboko kwakwa Simbegwire. "Ndekeleko mambo, nalubankenye," Anita waambile. "Kana wakonsha kunswisha ngesekeko jikwabo nyi?" Simbegwire watajile ba shanji nakilungi kya bulanda. Simbegwire wanyamukile pachepache ne kukumbata Anita.
 
 ##
-Mulungu walondejilepo, Anita waichile Simbegwire ne bavyala banji ne bashanji nkazhi ku nzubo na kujila pamo. Anita wanengezhezhe konse kajo ko atemenwe kuja Simbegwire. Kabiji ne bonse bajile ne kwikuta. Banyike baile na ku kaya kabiji ne bakulumpe besambilenga. Simbegwire waumvwine bulongo ne kubula moyo. Kabiji wafukwile amba katataka aka bwele ku nzubo nakwikala na bashanji ne bainanji bakushinda
+Mulungu walondejilepo, Anita waichile Simbegwire, bavyala banji ne ba shanji-nkazhi kunzubo na kujiila byakuja pamo. Anita wanengezhezhe konse kajo ko atemenwe kuja Simbegwire kabiji bonse bajile nekwikuta. Banyike baile na kukaya bino bakulumpe besambilenga. Simbegwire waumvwine bulongo ne moyo wapwile. Nanchi wafukwilepo kubwela kunzubo nakwikala na ba shanji ne bainanji bakumushinda.
 
 ##
 * License: [CC-BY]

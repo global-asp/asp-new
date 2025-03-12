@@ -1,37 +1,37 @@
-# Kushinkanya kwa Maimba
+# Kushinkanya kwaka Maimba
 
 ##
-Jino kejishimikila jakwa Ngende, Maimba, ne nsongwalume witemwa utelwa amba Gingile. Juuba jimo Gingile waile na kwipaya ba nyama po aumvwine Ngede ubeena kwita. Mukanwa mwakwa Gingile mwatendekele kuuba mate pa kulanguluka pa buuki. Waimene ne kuteleka, nakutala posotu wamwene kang'onyi mu kichi peulu ya mutwe wanji. "Kitik-Kitik-Kitik," kang'onyi kaichile saka katumbuka kuya ku kichi kikwabo ne ki kwabo. "Kitik-Kitik-Kitik," kaichile, kaile saka ketatu na kukeba kumona amba Gingile ubeena kwika loondela.
+Jino kejishimikila jakwa Ngede aye Maimba, ne nsongwalume witemwa utelwa amba Gingile. Juuba jimo Gingile waile nakwipaya nyama kabiji waumvwine Ngede saka abena kwita. Mukanwa mwakwa Gingile mwatendekele kuyula mate pakulanguluka buuki. Waimene ne kuteleka bulongo, wakenketele pakatu wamona kañonyi mumisampi peulu ya mutwe wanji. "cheke-cheke-cheke," kañonyi kaichilenga akusaka katumbuka nakutuntuluka bichi. "Kitik-Kitik-Kitik," waichile, ne kumona amba Gingile walondejilenga.
 
 ##
-Panyuma yakichika kya awala umo, bafikile pa kichi kya mukuyu ki katampe. Kamaimba kakilaukile ku misampi ya pusanapusana. Kyapeleleko kaikele pa musampi umo ne kukobola mutwe nakutala Gingile nobe kumubula amba, "Abye pape!Iya pano!Kika kibeena kuku banzha?" Gingile kechi wamwene nyuki iji yonse kunshi ya kichi bino waketekejile Kamaimba.
+Panyuma yakichika kya awala umo, bafikile pa kichi kya mukuyu ki katampe. Ka Maimba kakilaukilenga kumisampi yapusana-pusana. Kyapeleleko kaikele pamusampi umo ne kukobola mutwe nakutala Gingile nobe ubena kumubula amba, "Akye pape! Pano iya! Kika kibena kukulengela kubanda bibye?" Gingile kechi wamwenenga nyuki kunshi ya kichi ne, bino nangwa byonkabyo wamuketekejile Maimba.
 
 ##
-Ponkapo Gingile watujile panshi ngonga yanji munshi ya kichi, wabungizhe nsala ne kubanza mujilo. Mujilo powateemene, wabikilepo lusala waleepa pakachi ka mujilo. Uno lusala wa yukanyikilwe naku lenga buushi bwavula aku saka ateema. Watendekele ku kanjila ku kichi, sa akwachila lusala kwapela nameeno anji akusa kifitumuna bwiishi
+Ponkapo Gingile watujile panshi jifumo janji munshi ya kichi. Wabungizhe nsala ne kubanza mujilo. Mujilo byowatemenenga bulongo, wabikilepo lusala waleepa pakachi ka mujilo. Uno lusala wa yukanyikilwe kukulenga bwishi bwavula pa kimye kyoatemenenga. Watendekele kukanjila kukichi, saka akwachila lusala kwapela nameeno anji aku saka bwishi bufutumuka.
 
 ##
-Katanda kano watendekele kumvwa kilulumo kya nyuki. Nyuki yatwelelenga ne kulupuka mukachi ka lupako amo mwajinga mooma. Gingile po afikile pa mooma, watwezhezhemo lusalaubena wafutukilenga bwiishi mukachi kalupako. Nyuki ya nyukukijile pangye na bukaji. Yaayile mambo nyuki kechi ikeba bwiishi ne- nangwa byonkabyo yashile yamu suma Gingile!
+Ponkapotu watendekele kumvwa kilulumo kya nyuki. Nyuki yatwelelenga ne kulupuka mukachi kalupako amo mwajinga myoma. Gingile byoafikile pa myoma, watwezhezhemo lusala wafutukilenga bwishi mukachi kalupako. Nyuki yalupukile pangye na bukaji. Nyuki yatumbukile nekuya kwaleepa mambo kechi ikeba bwishine- bino nangwa byonkabyo yashile yamusumauna Gingile saka ikyangye kuya!
 
 ##
-Nyuki poyafuminemo, Gingile watwezhezhe kuboko kwanji mu lupako. Watolele mapuma aneema abeena kuzuma buuki bwawama kabiji bwanengela. Watujile ano mapuma pa kyuula kyo abikile pa kipuzhi kyanji ne kutendeka kwikila panshi ya kichi.
+Nyuki byoyalupukilemo, Gingile watwezhezhe kuboko kwanji mu lupako. Watolele mapuma aneema abena kuzuma buuki bwawama kabiji bwanengela. Watujile ano mapuma pa kyula kyoasendejile pakipuzhi kyanji kabiji watendeka kwikila panshi kufuma kukichi.
 
 ##
-Ngede aye watajilenga byonse bya ubilenga Gingile. Aye wapembejilenga ku mushilako jipuma ja buuki pa ku musanchila pa kumwesha kwajinga buuki. Ngede watumbukilenga ku musampi ne musampi kwipi ne kwipi na panshi. Pa kupezhako, Gingile wafikile panshi ya kichi. Ngede waikele pa jibwe jajinga pa bwipi ne nsongwalume saka apembelela kilambu kyanji.
+Ngede aye watajilenga byonse bya ubilenga Gingile. Aye wapembejilenga kumushilako jipuma ja buuki ja kumusanchila pakumumwesha buuki. Ngede wasampilenga kumisampi kipikipi munshi. Kyapeleleko, Gingile wafikile munshi ya kichi. Ngede waikele pa jibwe jajinga pa bwipi nansongwalume saka apembelela kilambu kyanji.
 
 ##
-Bino Gingile wazhimishe mujilo wanji, watolele ne ngonga yanji watendekapo ne kuya ku muzhi kwakubula kutako maana ku ka ng'onyi. Ngende waichile na bukaji, "Vik-ta!Vik-ta!" Gingile waimene, ne kutala ka ng'onyi kabiji wasekele na jiwi ja peulu. "Ubeena kukeba buuki nyi, mbai wami? Ha! Pano bino ami nakwingila nkito yonse kabiji yami bakuja ku nyuki. Mambo ka ona konsha ku kupelako buuki bwawama bibye?" Watendekele ne kuya. Ngede wazhingijile! Kechi muntu byo afwainwa kuba mukwabo bibye ne! Walangulukile amba kimye kika mweka kya kushinkanya.
+Bino Gingile wazhimine mujilo wanji, watolele ne jifumo janji watendekeleko ne kuya kumuzhi kwakubula kutako muchima ku kañonyi. Ngede waichile na jiwi jabukaji, "Vik-ta! Vik-ta!" Gingile waimene, nekutala kañonyi kabiji wasekele na jiwi ja peulu. "Ubena kukeba buuki nyi, mbai wami? Amu! Pano bino ami nakwingila nkito yonse bunke bwami kabiji baji kunsuma kunyuki. Nanchi mambo ka onakonsha kukupelako buuki bwawama bibye?" Watendekele nekuya. Ngede wazhingijile bingi! Kechi muntu byo afwainwa kuuba mukwabo abye ne! Walangulukile amba kimye kikafika kyakushinkanya nanji.
 
 ##
-Juuba jimo pakupitapo milungu yavula, Gingile waumwine Ngede ke amwite jikwabo. Wavulukile buuki bwa wama kabiji walondejile ka ng'onyi jikwabo. Pakumutangijila Gingile mu mbanji ya jisaka, Ngede waikele mu kipupu kya miiba. "Ahh," Gingile walangulukile. "Jipuma ja buuki ja fwainwa kwikala mu kikye kichi." Bukiji bukiji wabanzhile mujilo ne kutendeka ku kanjila ku kichi na kalusala kanji ka bwiishi ku meeno. Ngede waikajile na kutala.
+Juuba jimo pakupitapo milungu yavula, Gingile waumwine Ngede ke amwite jikwabo. Wavulukile buuki bwawama kabiji walondejile kañonyi jikwabo. Panyuma yakumutangijila Gingile mujisaka, Ngede waikele mukipupu kya miiba. "Ahh," Gingile walangulukile. "Jipuma ja buuki jafwainwa kwikala mu kikye kichi." Bukiji-bukiji wabanzhile mujilo ne kutendeka kukanjila ku kichi nakalusala kanji ka bwishi ku meeno. Ngede waikajile nakumutala.
 
 ##
-Gingile wakanjijile ku kichi mino saka alanguluka kyo abujile kumvwa kilulumo kya nyuki. "Kampepo mapuma aji mukachi kene ka kichi, " walangulukile. Wakanjijile ku musampi mukwabo. Mukifulo kyakuba amba amone mapuma a buuki, aye wasambakene meenso na kisumpa! Kisumpa wazhingile paku mu busha patulo twawama biingi. Wakepeshe meenso,washinkwile ne mukanwa kanji na kumwesha bi meno byanji bya baya kabiji bya twa.
+Gingile wakanjijile ku kichi bino wakuminye mambo kechi waumvwinepo kilulumo kya nyuki ne. Walangulukile amba. Kampepo mapuma aji mukachi mwine mukichi." Wakanjijile kumusampi mukwabo. Mukifulo kyakumona mapuma a buuki, aye wasambakenye menso na kisumpa! Kisumpa wazhingile paku mu busha patulo toeyowelenga. Wakepeshe menso, washinkwile ne mukanwa kanji nakumwesha meeno anji ene abaya kabiji atwa.
 
 ##
-Kisumpa saka akyengye ku kwata Gingile, wanyemene kwikila mu kichi. Mukupelawizha wapushile musampi kabiji wake nyetekele panshi ne kwifyutula kapokoso. Wabotaukile lubilo. Jishuko janji kisumpa wakiji natulo kabiji kechi wakonsheshe kumu pangisha ne. Ngede,maimba washinkenye. Kabiji ne Gingile watolelemo maan.
+Kisumpa saka akyengye kukwata Gingile, wanyemejile munshi yakichi patanshi. Mukupelawizha kwikila wapusumukile kukichi kabiji wakenyetekele panshi ne kwifyotola kapokoso. Wakilaukile lubilo. Jishuko janji ke ja kuuba mambo kisumpa wakiji natulo mumenso. Ngede, aye Maimba washinkenye. Akino kyalengejile Gingile kutolamo lufunjisho.
 
 ##
-Nebuji leelo, baana bakwa Gingile inge baumvwa jishimikila ja kwa Ngede bapa biingi mushingi kano ka ng'onyi kacheche. Kimye kyonse kyo ba bankula buuki, bamona kubamba bashapo mapuma akwa maimba.
+Nebuji leelo, baana bakwa Gingile inge baumvwa jishimikila ja kwa Ngede bamupa bingi mushingi uno ñonyi mucheche. Kimye kyonse kyobabankula buuki, bamona kubamba bashapo mapuma abuuki akwa Maimba.
 
 ##
 * License: [CC-BY]

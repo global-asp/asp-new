@@ -1,40 +1,40 @@
-# Tom kapotesha wamakonde
+# Tom Musulu Wamakonde
 
 ##
-Tom wasenda kipe kya makonde apya.
+Tom usenda tule wamakonde apya.
 
 ##
-Tom waya kukisankanyi nakupotesha makonde.
+Tom uya kukisankanyi nakupotesha makonde.
 
 ##
-Bantu kuki sankanyi babena kupota makonde.
+Bantu babena kupota bipangwa mukisankanyi.
 
 ##
-Pano kechi babena kupota makonde a kwa Tom ne. Babena kupota bipangwa kubaba bakazhi.
+Bino kafwako wapotelenga makonde akwa Tom ne. Bantu bapotelengatu bipangwa kubainetu.
 
 ##
-"Muno mwetu, babakazhi boba poteshatu bipangwa," bantu baamba. "Wamulume wamu tunduka awe?" bantu waipuzha.
+"Muno munyaunda yetu, babakazhitu bobonkatu bapotesha bipangwa," byobyamba bantu. "Nanchi awe ke mwanamulume wamutunduka ka?" bantu waipuzha.
 
 ##
-Pano Tom aye kechi ubena kuleka ne, ke abijike! Makonde! iyayi mupote makonde atobala ne kupya!"
+Bino Tom aye kechi wikilekele kupoteshane. Waichilenga bantu amba, "Potai makonde! Potai makonde ami aapya bulongo kabiji atobala!"
 
 ##
-Wamukazhi umo watolapo makonde. Wiatajisha bulongo.
+Inetu umo watolelemo makonde mutule. Wiatajishishe makonde bulongo.
 
 ##
-Wamukazhi wapota ne makonde.
+Uno inetu upota makonde.
 
 ##
-Bantu bakwabo baiya ne pakitamba kyanji. Ba pota ne makonde akwa Tom ne kuja.
+Bantu baavula beeya pakitamba kyanji. Bapota makonde akwa Tom ne kuja.
 
 ##
-Kipe kyanji kyapwa nekupwa. Tom wabelenga ne mali anji.
+Makonde akwa Tom kechi abanda kupwa ne. Tom ubala mali oamwenamo.
 
 ##
-Tom wa bwela wapota ne sopo ne shuga ne shinkwa. Wa bika ne pakipe kyanji.
+Tom upotamo, sopo, shuka ne shinkwa. Tom usenda bintu byoapota mutule wanji.
 
 ##
-Tom wasenda ne kipe kyanji pamutwe waya ne kuya kunzubo.
+Tom usenda tule wanji pamutwe saka alekelelako ne kuya kunzubo.
 
 ##
 * License: [CC-BY]

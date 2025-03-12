@@ -1,28 +1,28 @@
-# Buuku ya butalale
+# Buuku Wankilo
 
 ##
-Kwauma
+Kwauma.
 
 ##
-Mute wasamisha
+Mute wasama.
 
 ##
-Kuji mwela
+Kuji mwela.
 
 ##
-Kuji makumbi
+Kuji kikumbi.
 
 ##
-Kwatalala
+Kwatalala.
 
 ##
-Kunakuloka
+ Mvula ibena kunoka.
 
 ##
-Inakululuma/ inakupata
+Mvula ibena kupaata.
 
 ##
-Namona kakongolo
+Namona kakongolo.
 
 ##
 * License: [CC-BY-NC]

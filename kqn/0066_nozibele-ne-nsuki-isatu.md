@@ -1,43 +1,43 @@
-# Nozibele ne bana nakazhi basatu
+# Nozibele ne Nsuki Isatu
 
 ##
-Kumwaka yamunyuma, bana bakazhi ba satu baile muku keba nkunyi.
+Kala kene, bansongwakazhi basatu baile nakuchaba nkunyi.
 
 ##
-Jajinga juba jakaba saana poba yile kumukola mukowa. Ba kaile nekusala mu mema.
+Jajinga juuba jatwile bingi kyuya. Bano bansongwakazhi bayile nakowa kumukola. Bakailenga nekwisampawila meema.
 
 ##
-Muku kaya balangulukilemba bwaila. Ba endeshele nekubwela kumuzhi.
+Mukukaya baishile kumona amba bwaila. Bapelawizhizheko kubwela kumuzhi.
 
 ##
-Mubwipi nakufika kunzubo, Nozibele wakwachile munshigo. Walubileko bulungo bwanji! "Nshijikinyaiko!" Keapopwele ba kwabo. Pano ba kwabo bamubulamba byaila.
+Byobafikilenga kubwipi na mazubo, Nozibele wakwachile munshigo. Walubileko malungo anji! "Nshijikinyaiko!" Wapopwejile bakwabo. Bino bakwabo bakaine amba bwaila.
 
 ##
-Nozibele wabwelele bunke kumukola. Wa taine bulungo bwanji naku bwela bukiji kunzubo. Walubijilemo mu mfishi.
+Nozibele wabwelele bunke kumukola. Wataine malungo anji kabiji watendekele ne kubwela kunzubo. Bino walubijilemo mambo pafichile.
 
 ##
-Palepa wamwene kweya kufumina muka kunka. Wa endeshele na kufika mubwipi.
+Nozibele wamwene palepa kyeya saka kifuma mukazubo. Wapelawizhileko nekufika kubwipi kabiji wakonkoshele nekukibelo.
 
 ##
-Kubazhimuka, kabwa washinkula kuchinzhilo na kwamba, "Wunakukeba ka?" "Naluba mbenakukebako kwakulala", Nozibele waambile. "Twela, ngene nakukusuma!" kabwa waambile. Nozibele watwela nekutwela.
+Wabazhimukiletu, kabwa washinkula kinzhilo nekumwipuzha amba, "Ubena kukeba ka?" "Nalubilamo kabiji mbena kukeba kwakulaala," Nozibele wamubujile. "Twela, ingene nsakukusuma!" kabwa waambile. Ponkapotu Nozibele watwelele mukachi.
 
 ##
-Kabwa waamba, "Ntekele!" "Pano nkwange kutekelapo kabwa ne," waambile. "Ntekele ngene sakuku suma." Nozibele watekela kabwa nebwakuja.
+Kabwa wabwelele waamba amba, "Nteekeleko kajo!" "Nkyangye kutekelapo kala kabwa," Nozibele wakumbwile. "Nteekeleko kajo ingene nsakukusuma!" Ponkapotu Nozibele wamuteekejile kabwa byakuja.
 
 ##
-Kabwa waambile, "Nganshikilayiko mwanya!" Nozibele waaswike, "Nkwange kwashikilapo kabwa mwanya ne." "Ngashikile ngene sakuku suma!" kabwa waambile. Nozibele waashike mwanya.
+Kabwa waambile jikwabo amba, "Nganshikileko mwanya!" Nozibele wakumbwile amba, "Nkyangye kwanshikilapo kala kabwa mwanya." "Ngashikile mwanya ingene nsakukusuma!" kabwa waambile. Nozibele waanshikile mwanya.
 
 ##
-Moba onse waipikilenga ne kupyanga ne kuwasha. Juba jiba kabwa wabujile Nozibele amba, "Lelo mbenakuya mukupempula bakwami. Pwanga munzubo, uteke bwakuja uwashe byonse ponkwange kubwela."
+Nanchi moba onse wateekelenga, kupyanga ne kumuchapila kabwa. Pano juuba jimo kabwa wabujile Nozibele amba, "Leelo mbena kuya nakupempula bakwetu. Nanchi obewa upyange munzubo, uteeke kajo kabiji ovwe ne bintu byami saka nkyangye kubwela."
 
 ##
-Kabwa byoayile, Nozibele wasendele nsuki yiasatu mumutwe wanji. Wabikile lusuki lumo munshi ya mwanya, lukwabo kunyuma ya kinzhilo. Wanyemene lubilo kunzubo.
+Aku Kabwa ufumapotu, Nozibele wayokwele nsuki isatu mumutwe wanji. Wabikile lusuki umo kunshi ya mwanya, mukwabo kunyuma ya kinzhilo, kabiji mukwabo wamubikile mukipaka. Ponkapo wanyemene lubilo lwakine kine kubwela kwabo.
 
 ##
-Kabwa poabwelele, wakebele Nozibele. "Nozibele ujipi!?" wapunjile. "Njimunshi wa mwanya," lusuki lwalutampi lwaaswike. "Nji kunyuma ya chinzhilo," lusuki lwamukibiji lwaaswike," nji pano lusuki lwamukisatu lwaaswike.
+Kabwa byoabwelele, wakebele Nozibele. "Nozibele ujipi!?" waipwizhe. "Njimuno munshi yamwanya," lusuki mutanshi wakumbwile. "Nji kunyuma ya kinzhilo," Lusuki wabubiji wakumbwile. Njimuno mukipaka lusuki wabusatu wakumbwile.
 
 ##
-Kabwa poayukile mba Nozibele wa mubepa. Wanyemene kufika nekumuzhi. Pano balongo banji bamupepelenga na bichi bikatampe. Kabwa wanyeme kufuma popo kebamumwenepo njikwabo ne.
+Kabwa ponkapo wayukile amba Nozibele wamubepa. Nanchi wanyemene ne kumulondela kufika nekumuzhi. Akwa kumuzhi balongo banji Nozibele bamupembelejilenga Kabwa na bichi bikatampe. Kabwa pa kumona bichi wanyemene kufuma popo kebamumwenepo jikwabo ne.
 
 ##
 * License: [CC-BY]

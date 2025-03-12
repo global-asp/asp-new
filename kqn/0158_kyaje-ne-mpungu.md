@@ -1,34 +1,34 @@
 # Kyaje ne Mpungu
 
 ##
-Mwaka yamunyuma, kyaje ne mpungu baji batemwe na muntu. Baikele bulongo nabonse bang'onyi bakwabo. Kafwako wa pululwikenga ne.
+Kala kene, kyaje ne mpungu besampile bumbai. Baikalanga bulongo na bakwabo bañonyi. Kafwako wakonsheshenga kutumbukane.
 
 ##
-Juba jimo, kwajinga nzala mumpunzhya. Mpungu wayile palepa saana mukukeba bwakuja. Wa bwelele wakoka saana. "Kwafayina kwikala jishinda japela jakwendelamo!" Mpungu waambile.
+Mwaka umo, mu kyalo mwajinga nzala. Mpungu wayile kwalepa bingi nakukeba byakuja. Nanchi wakokele bingi pa kimye kyoabwelelenga. Mpungu walanguiukile mba, "Kwakonsha kwikalapo jishinda jimo japeela kwendelamo!"
 
 ##
-Panyuma yakulala bulongo,Kyaje wajinga na mulangwe wawama. Wa tampile kutola mayona onse abakwabo ba ng'onyi. "Iyayi twiyatungile pewulu yamayona yetu", waambile. "Kampe kusakupela kwenda."
+Panyuma yakulaala bulongo bufuku, Kyaje walangulukilepo maana awawama. Watendekele kutolaula mayona onse abakwabo bañonyi. Kyaje waambile amba, "Iyai twiasonene peulu yamayona etu, kampepo kwenda kusa kwitupelelako."
 
 ##
-Mpungu wowajingatu na nguya mumuji, wa tapijilepo kusona. Wapangile bwapi bwayama nekutumbuka peulu kukila kyaje. Kyaje walombele guya pano wakokele kusona. Washile nguya nakuya mukutekela bana byakuja
+Mumuzhi yensetu, Mpungu yewajingatu nanguya kabiji yewatendekejilepo ne kusona. Wilengejile mwine byapi byawama kabiji watumbukile peulu pene. Kyaje walombeleko nguya bino waumvwine kukooka kusona. Nanchi wikilekele kusona watuula ne nguya pakabachi waya mukibamba mwakuteekela nakuteeka byakuja bya baana banji.
 
 ##
-bino ba ng'onyi bamwene mpungu sa abena kutumbuka. Nabo balombeleko nguya mambo begijisheko kusona bwapi. Ponkampo bang'onyi ba tumbukilengatu ponse ponase.
+Bino bañonyi bakwabo bamwene Mpungu saka abena kutumbuka kuya kwalepa. Ponkapo bañonyi bakwabo balombele nguya kwi Kyaje amba nabo bengijisheko kusonenako bwapi byabo. Ponkapo bañonyi baavula batumbukilengatu konse-konse.
 
 ##
-Bino ng'onyi washajijile poabwezhelenga nguya, Kyaje kewajingapo ne. Bana banji basendele nguya na kutampa kukaya nayo. Pobakokele kukaya, bashile nguya muma loba.
+Kimye ñonyi wapeleleko kusona poabwezhezhe nguya, Kyaje kechi wajingapo ne. Nanchi baana bakwa Kyaje batendekele kukaisha nguya. Byobakookele nakukaya bashile aya nguya mubusenga.
 
 ##
-Jonkajo juba mabanga, mpungu wabwelele. Walombele nguya wakebelenga kuwamwa mayona anji afumine fumine mukwenda. Kyaje watajile mu kabachi. Wa tajile mu kinzanza. Wa tajile palubanza. Pano nguya keweyitaine ne.
+Jonkaja juuba mabanga, Mpungu wabwelele. Walombele nguya amba asoneneko mayona akasulukile pa kimye kyoajinga palwendo. Kyaje watajile mu kabachi. Kabiji wakebele ne mukinzanza. Wakeba ne lubanza yense. Bino nguya kechi yamwekele ne.
 
 ##
-"Mpenekotu juba jimo," Kyaje wapopwele Mpungu. "Apabino uwamishe kwape nakutumbuka kuya nakukeba byakuja jikwabo." "Juba jimotu," Mpungu waambile. "Inge kewukatana nguya ne ukampa mwanobe umo.
+Kyaje wabujile Mpungu amba, "Mpepotu juuba jimo napopwela, apa bino ukawamishe byapi kabiji ukaye ne nakukeba byakuja jikwabo." "Juubatu jimo," Mpungu wamwambile Kyaje jikwabo amba, "Inge ukakankalwe kwiimona nguya, nanchi ukampapo mwanobe umo nkaje."
 
 ##
-Bino Mpungu poabwelele juba jikwabo, wa tayine Kyaje wena kuzokaula panshi, kewajinga na nguya ne. Mpungu wa tombweke panshi lubilo wasenda nemwananji umo. Kufuma popo Mpungu utana Kyaje ubena kuzokaula mumaloba kukeba nguya.
+Bino Mpungu byoabwelele juuba jalondejilepo, wataine Kyaje ubena kupalaya mubusenga kabiji kechi wiimwene nguya ne. Ponkapo Mpungu wasumukile munshi bukiji-bukiji kabiji wakwachilepo nemwana wakwa Kyaje umo. Mpungu wasendele mwana. Kufuma pakyonka kya kimye Mpungu, umona Kyaje saka abena kusalaya nakukeba nguya mubusenga.
 
 ##
-Nge kinvula kwa Mpungu kwapona pashi, Kyaje ubula bana banji. "Fumayi pabula bichi," ke twibileyane: "Tusakunyema."
+Nanchi Kyaje inge wamona mayona alakasha Mpungu panshi, ujimuna baana banji. "Kyaje ubuula baana banji kufumapo pampunzha pabula bichi." Baana banji bamumvwina: Kabiji baana banji bamba amba, "Kechi twibileya ne, tusakunyema."
 
 ##
 * License: [CC-BY]

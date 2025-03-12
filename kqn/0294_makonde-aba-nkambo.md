@@ -1,34 +1,34 @@
-# Makonde aba nkambo
+# Makonde aba Nkambo
 
 ##
-Majimi aba nkambo awamine, ajinga na mebele, luku ne makamba. Byawamine pa byonse ke makonde. Nangwa ba nkambo bajinga na bankana bavula, nayukile namba yami batemwesheshe. Bangitanga kimye kyonse ku nzubo yabo. Kabiji ba mbujileko ne bintu bikwaabo bya fyamika. Pano kwajinga kintu kimo kya fyamika kyo babujile kushilang'ena ne amiwa. Koba fukikanga makonde.
+Mashamba aba nkambo awamine bingi, mambo mwajinga mebele, luku ne makamba. Bino byawamishe pa byonse kemakonde. Nanchi nangwa ba nkambo bajinga na bankana baavula, nayukile namba yami batemwishishe kukila bonse. Bangitanga kunzubo yabo pa bimye byavula. Kabiji bambulangako ne bintu bikwabo byabufyamfya. Pano bino kwajinga kintu kimo kyabufyamfya kyobabujile kushilañena ne amiwa. Kuno kwajinga kufukika makonde.
 
 ##
-Juuba jimo, namwene musansa yebatula pamute pangye ya nzubo yaba nkambo. Byo nashikizhe pa musansa, mukumbu yeba mpele ke, "Musansa wami wa mijiki." Kwipi na musansa, kwajinga mabula avula amakonde ao ba nkambo oba alululanga pakimye ne pakimye. najinga na kizaku. "Mabula aka aee nkambo?" Naipwizhe. Mukumbu yena tambwile ke, "Mabula ami a mijiki."
+Juuba jimo, namwene musansa yebatula pamute pangye ya nzubo yaba nkambo. Byonebepwizhe pauno musansa, bankumbwiletu amba, "Awa kemusansa wami wa mijiki." Kwipi namusansa, kwajinga mabula aavula amakonde ao ba nkambo obaalaulanga pakimye ne pakimye. Kino kyandengejile kusaka kuyuka. Nebepwizhe namba, "Nkambo nanchi mabula aka?" Bankumbwiletu amba, "Mabula ami amajiki."
 
 ##
-Kyajinga kyawama kumona ba nkambo, makonde, mabula a makonde ne musansa. Ba nkambo ba ntumine ku ba maama. "Nkambo, kine lekayi mboneko byo muna kunengezha....." "Kukosama ne mwanyike, uba byo nakubula," baambile. Nanyamukile lubilo.
+Kyajinga kyalusekelo bingi kumona ba nkambo, makonde, mabula a makonde ne musansa. Ba nkambo ba ntumine ku ba maama nakwingila mingilo. Nebabujile namba, "Nkambo, ndekai ngikale pa kuuba monenga byomubena kunengezha..." "Kukosama koobe obewa mwanyike, ubaatu byonka byonakubula," bañambijile. Nanyamukile lubilo.
 
 ##
-Byonabwelele, Ba nkambo baikele pangye kwakubula musansa nangwa makonde. "Nkambo, musansa uji pi, makonde onse aji pi..." Pano mukumbu ye natambwile ke, "Aji mu mpuzha yami ya majiki." Kyajinga kya kuzhingijisha biingi.
+Byonabwelele, ba nkambo baikele pangye kwakubula musansa nangwa makonde. Nebepwizhe ba nkambo namba, "Nkambo, musansa uji pi, ne makonde onse aji pi..." Bino ba nkambo bankumbwile amba, "Aji mumpuzha yami ya majiki." Kyañumvwishishe bingi bibi.
 
 ##
-Pakupita mooba abiji, ba nkambo bantumine kuya na kwiba kebela mukombo ku kibamba kya kulalako. Byona shinkwiletu kibelo, nanunshishe bweema bwa makonde apya. Mukibamba kya mukachi mwajinga musansa waba nkambo wa majiki. Beifile bulongo ku mweemba wakala. Namunyamwile ne ku nunkula bwema bwawama.
+Pakupitapo moba abiji, ba nkambo bantumine kuya nakwibaletela mukombo kukibamba kyakulalamo. Byonashinkwiletu kibelo, nanunkwile bwema bwa makonde apya. Mukibamba kyamukachi mwajinga musansa waba nkambo wa majiki. Bekifile bulongo kumwemba wakala. Nekinyamwine ne kununkula bwema bwawama.
 
 ##
-Jiiwi ja ba nkambo jambazhimwine byoba ngichile. "Ubena kuuba ka? pelawizha, leta mukombo kuno." Na pelawizhe ne kutwala mukombo. "Ubena kumwemwesela ka?" Ba nkambo baipwizhe. Jipuzho jabo ja ndengejile amba kimwemwensela pa byonatana mu mpuzha yabo ya majiki.
+Jiiwi ja ba nkambo jambazhimwine byobangichile. "Ubena kuuba ka? Pelawizha, ndetele mukombo kuno." Napelawizhizhe kutwala mukombo. Ba nkambo bangipwizhe amba, "Ubena kumwemwesela ka?" Jipuzho jabo jandengejile kuvuluka amba nkimwemwesela pa byonamwene mumpuzha yabo yamajiki.
 
 ##
-Juuba jalondejilepo, ba nkambo byo baishile na ku pempula ba maama, naile ku nzubo yabo lubilo nakumona makonde jikwabo. Kwajinga kizanze kya makonde apya. Natoleko jimo ne kwijifya mu ndeleshi. Panyuma yaku tana musansa jikwabo, naile kunyuma ya nzubo ne kuja lubilo. Jajinga jikonde ja tobala kyakine kine jo nkyangye kujapo kala.
+Juuba jalondejilepo, ba nkambo byobaishile na kupempula ba maama, naile kunzubo yabo lubilo nakumona makonde jikwabo. Kwajinga kizanze kya makonde apya. Natolelemo jimo ne kwijifya mundeleshi. Panyuma yakutana musansa jikwabo, naile kunyuma ya nzubo ne kuja jikonde bukiji-bukiji. Jajinga jikonde jatobala kyakine kine jonkyangye kujapo kala.
 
 ##
-Juba ja londejilepo, ba nkambo byo bajinga mu majimi, nabombokele ne kuya na kutala pa makonde. Onse ajinga apya. Natolelemo makonde ana. Byonaendejilenga kumana na kuya ku kibelo, naumvwine ba nkambo ba kopola pangye. Nafile makonde mu ndeleshi ne kwiba pitaila.
+Juuba jalondejilepo, ba nkambo byobajinga mu mumashamba, nabombokele ne kuya nakutala pa makonde. Nataine amba onsetu makonde apile. Nakankelwe kwikanya kabiji natolelemo makonde ana. Byonaendejilenga kumana na kuya kukibelo, naumvwine ba nkambo bakopola pangye. Nalangulukile byakufya makonde mundeleshi ne kulupuka.
 
 ##
-Juuba jalondejilepo jajinga juuba ja kisankanyi. Ba nkambo babukile biingi lukelo. Batwalanga makonde ne makamba kupotesha ku kisankanyi. Kechi na pelawizhe kuya na kwiba pempula pajoja juuba ine. Kechi na konsheshe kwiba fyama kimye kyalepa ne.
+Juuba jalondejilepo jajinga juuba jakisankanyi. Ba nkambo babukile lukeelo-keelo. Batwalanga makonde apya ne makamba nakupotesha kukisankanyi. Aja juuba kechi napelawizhizhe kuya nakwibapempula ne. Bino kechi nakonsheshe kwiba fyama kimye kyalepa ne.
 
 ##
-Joonka ja juuba mabanga ba ngichile kwiba maama ne ba taata ne ba nkambo. Nayukile kine kintu. Abwa bufuku byo nalajile , nayukile amba kabwezhapo jibiji kwiba, kuba nkambo, nangwa bansemi yami kabiji nangwa kubantu bakwabotu.
+Pajonkaja juuba mabanga ba maama, ba taata ne ba nkambo bangichile. Nayukile kine kintu kyobangichijile. Abwa bufuku byonalaajile, nayukile namba kechi nkabwezhapo jibiji kwiba, kuba nkambo, ku banse nangwa kubantu bakwabotu ne.
 
 ##
 * License: [CC-BY]

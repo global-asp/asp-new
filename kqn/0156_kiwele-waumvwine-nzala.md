@@ -1,19 +1,19 @@
-# Kibokolo wanzala
+# Kiwele Waumvwine Nzala
 
 ##
-Kwajinga kibokolo wanzala.
+Kala kene kwajinga kiwele waumvwine nzala.
 
 ##
-Pachepache wakebelenga byakuja sa jindama. Bino....
+Waile pachepache saka azhindama nakukeba byakuja.
 
 ##
-Puku!!! kibokolo byo akwachile!
+Puku!!! Kiwele wakwachile!
 
 ##
-Kufumapopo waikwite nekusekelela.
+Kufuma ponkapo kechi waumvwinepo nzala jikwabo ne, kabiji wasangalele.
 
 ##
-Kufika nejuba jikwabo jakunvwa nzala.
+Kanatu waumvwa nzala jikwabo.
 
 ##
 * License: [CC-BY]

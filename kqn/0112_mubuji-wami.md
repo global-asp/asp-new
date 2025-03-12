@@ -1,28 +1,28 @@
-# Mubuji wami
+# Mubuji Wami
 
 ##
-Na kosha kunyema naye.
+Nakonsha kwingijisha mubiji kunyema.
 
 ##
-Nakosha kutolauka naye.
+Nakonsha kwingijisha mubiji kutolauka.
 
 ##
-Nakosha kuzha naye.
+Nakonsha kwingijisha mubiji kuzha.
 
 ##
-Nakosha kowa naye.
+Nakonsha kwingijisha mubiji kufwenka.
 
 ##
-Nakosha kukilauka naye .
+Nakonsha kwingijisha mubiji kukilauka.
 
 ##
-Nakosha kupata naye.
+Nakonsha kwingijisha mubiji kupanta.
 
 ##
-Nakosha kuzwenga naye.
+Nakonsha kwingijisha mubiji kupuluka.
 
 ##
-Bino konsha natumbuka nayene.
+Bino kechi nakonsha kwingijisha mubiji nakutumbukilako ne.
 
 ##
 * License: [CC-BY-NC]

@@ -1,64 +1,64 @@
-# Mooba aku kokoloka naba nkambo
+# Moba Akukokoloka na ba Nkambo Babakazhi
 
 ##
-Odongo ne Apiyo baikalanga mu taunyi ne bashabo. Batajiljianga ku mooba aku kokoloka. Kechi na maambo akuuba amba sukulu bashinka ine, ke na mambo aku pempula ba nkaambo yabo. Baikalanga ku muzhi wabantu bakwata masabi kwipi na kizhiba kikatampe.
+Odongo ne Apiyo baikalanga mutaunyi ne bashabo. Bakebelenga bingi kuya nakukokoloka. Kechi namambo akuuba amba bashinkile sukuulu ne, bino ke kuuba amba bakebelenga kuya nakupempula ba nkambo yabo babakazhi. Ba nkambo yabo babakazhi baikalanga mumuzhi mwafwanga masabi kubwipi nakizhiba kikatampe.
 
 ##
-Odongo ne Apiya batemenwe biingi mambo kyajinga kimye kyakuya na kupempula ba nkambo yabo jikwabo. Bufuku saka bakyangye kunyamuka, bapaikile byola byabo ne kwinengezha pa lwendo lwalepa lwakuya ku muzhi. Ba kankelwe kulala kabiji be sambilengatu bufuku bonse pa kimye kya ku kokoloka.
+Odongo ne Apiyo basangalele bingi mambo kyajinga kimye kyakuya nakupempula ba nkambo yabo babakazhi jikwabo. Bufuku bwa kuuba amba kesha bakayanga balongele byola byabo kabiji benengezhele kuya lwendo lwa kumuzhi kwaba nkambo yabo babakazhi. Nanchi abo bufuku kechi balajiile ne namambo akuuba besambilengatu pa mambo moba akukokoloka.
 
 ##
-Juuba ja londejilepo lukelokelo, banyamukile nakuya ku muzhi mu motooka yaba shabo. Bapichile munshi ya mitumba, banyama ba mungye ne jisaka ja bichi bya makabekabe. Ba bajilenga myootoka ne kwiimba nyiimbo.
+Juuba jalondejilepo lukeelo keelo, banyamukile kuya kumuzhi mu motoka yaba shabo. Bapichile mitumba, mu banyama bamungye nemu jisaka ja bichi byobalengelako masamba. Babajilenga myotoka ne kwimba nyimbo.
 
 ##
-Kapukipatapo ka kimye, baana bakokele ne ku ponena mutulo.
+Pakupitapo ka kimye, banyike bakokele ne kuponena mutulo.
 
 ##
-Bashabo babushishe Odongo ne Apiya pobafikile pa muzhi. Bataine ba nkambo yabo ba Nyar-anyada, naku kokoloka pa kilalo munshi ya kichi. Nyar-Kanyada mu mulaka wa Luo kyalumbulula amba 'mwana wamukazhi wabena Kanyada'. Wajinga wamukazhi wakosa kabiji wa lamba mya.
+Byobafile kumuzhi ba taata bebabushishe ba Odongo ne Apiyo. Ba ataine ba nkambo yabo babakazhi abo bajizina ja Nyar-Kanyada, saka baikala nakukokoloka pakilalo munshi ya kichi. Nyar-Kanyada mumulaka wa Luo kyalumbulula amba "mwana wamukazhi wabena Kanyada". Ba Nyar-Kanyada bajinga bainetu bakosa kabiji ba laamba.
 
 ##
-Nyar-Kanyanda wibatambulwijile ne kwiba twezha mu nzubo apa na kuzha mu nzubo saka azhinguluka nakwimba nyimbo ne lusekelo. Bankana babo basekejile bingi nekupana byabupe kwiba nkambo yabo kufuma ku taunyi. "Tendekelaipo kushinkula bupe bwami," Odongo wa ambile. "Ine, tendekelaipo bwami bupe!" Apiyo waambile.
+Ba Nyar-Kanyada batambulwijile bankana babo ne kwibatwezha munzubo kabiji bazhilenga nekwimba na lusekelo. Bankana babo basekejile bingi nekwibapa byabupe byobebasendejile kufuma kutaunyi. Odongo yewajinga mutanshi amba, "Tendekelaipo kushinkula bupe bwami," Apiyo naye amba, "Ine, tendekelaipo bupe bwami!"
 
 ##
-Panyuma yaku shinkula byabupe, Nyar-Kanyada wiba pesheshe bankana banji mwaila kisho.
+Panyuma ya kushinkula byabupe, ba Nyar-Kanyada bapesheshe bankana babo mukisho kyabo.
 
 ##
-Panyuma yabyonse, Odongo ne Apiya baile pangye. Batendekele kupangisha bipupulwa ne ba ng'onyi.
+Panyuma yakupwisha byonse, Odongo ne Apiyo balupukile pangye. Batendekele kupangisha bipupulwa ne bañonyi.
 
 ##
-Ba kajijilenga bichi ne kwisupila meema amu kizhiba.
+Bakanjijilenga kubichi ne kwisupila meema amukizhiba.
 
 ##
-Byo kyaubile ke mfishi, ba bwelele ku nzubo nakuja kajo kamulajilo. Saka bakyangye kupwisha kuja batendekele ku kunuka.
+Byopatendekele kufita, babwelele munzubo nakuja kajo kamulajilo. Bino saka bakyangye kupwisha kuja batendekele kukunuka!
 
 ##
-Juuba ja londejilepo, bashabo ba bwelele ne ku taunyi ne kwibasha ne ba Nyar-Kanyada.
+Juuba jalondejilepo, bashabo babwelele ne kutaunyi bino bashile baana babo na ba nkambo yabo abo ba Nyar-Kanyada.
 
 ##
-Odongo ne Apiyo ba kwashishenga ba nkambo yabo ne miingilo ya pa nzubo. Bayanga naku tapula meema ne kuchaba nkunyi. Batolaulanga make aba nzolo ne kwapa bishu mu majimi.
+Odongo ne Apiyo bakwashishenga ba nkambo yabo mingilo ya pa nzubo. Bachabilenga nkunyi nekutapula meema. Batolawilenga make abanzolo ne kwapa bishu mumashamba.
 
 ##
-Nyar-Kanyada wafunjishe bankana baji mwa kukmbila nshima yakuja na nyama. Wibafunjishe byakuteka mupunga wakuja na masabi ya kusoka.
+Ba Nyar-Kanyada bebafunjishilenga bankana babo mwakukumbila nshima yakuja na nyama. Bebafunjishile ne byakuteeka mupunga wakuja namasabi a kusoka.
 
 ##
-Juba jimo lukelo, Odongo watwanjile ba ng'mbe baba nkambo yanji nakuja nsono. Banyemejile mu majimi abena kikala nkulo. Bena majimi bazhingijile biingi na Odongo. Baambile na kuzhingila amba bafwainwa kutambula ba ng'ombe ne kwibalama mambo baja bijimwa byabo. Panyuma ya joja juuba, mwanyike wamwene kuuba amba ba ng'ombe kechi baletele lukatazho lukwabo ne.
+Juuba jimo lukeelo, Odongo watwajile bañombe baba nkambo yanji nakuja munyemvu. Bañombe bayile nakuja mufwamu yabobekala nabo kubwipi. Bena fwamu bazhingijile bingi na Odongo. Bamuchinyishile amba bakonsha ne kutambula ba ñombe namambo akuja bijimwa byabo. Panyuma yajoja juuba, mwanyike wamwene kuuba amba bañombe kechi bakonshe kuleta lukatazho lukwabo ne.
 
 ##
-Pa juuba jikwabo, banyike baile ku kisankanyi na Nyar-Kanyada. Wajinga na tebulo poba poteshelanga bishu, shuka ne sopo. Apiyo watemenwe kubula bantu mitengo yabintu. Odongo aye walonganga bintu byo bapota.
+Juuba jikwabo jalondejilepo, banyike baile kukisankanyi na ba Nyar-Kanyada. Bajinga natebulu pobapoteshelanga bishu, shuka ne sopo. Apiyo watemenwe kubuula bapota mitengo yabintu. Odongo aye walongelanga bapota bintu byobapota.
 
 ##
-Panyuma ya kupwa juuba batomanga makabekabe pamo. Bakwashanga ba nkambo yabo mkubala mali obapoteshapo.
+Panyuma yakupwa juuba batomanga makabekabe pamo. Bakwashangako ba nkambo yabo kubala mali obapoteshamo.
 
 ##
-Katanda kano kimye kya kukokoloka kya pwile. Banyike ba kebewe kubwela ku taunyi. Nyar-Kanyada wapele Odongo kisochi ne Apiyo sweta. Bapaikile kajo kapa lwendo.
+Kimye kyakukokoloka kyapwile kabiji banyike bakebewe kubwela kutaunyi. Nyar-Kanyada wapemule Odongo kisochi kabiji Apiyo wamupele sweta. Ba Nyar-Kanyada balongejile bankana babo kajo kakuja palwendo.
 
 ##
-Kimye kyaishile bashabo na kwibasenda, kechi bakebelenga kuya ne. Banyike balombele Nyar-Kanyada kuya nabo ku taunyi. Wamwemwesejile ne kwamba, "Nakota wakuya ku taunyi. Kemu pembelelanga kwiya ku muzhi jikwabo."
+Kimye kyaishile bashabo kwibasenda, kechi bakebelenga kuya ne. Banyike balombele Nyar-Kanyada kuya nabo kutaunyi. Nyar-Kanyada waambile amba, "Nakota kechi nakonsha kuya nakwikala mutaunyi ne. Kemupembelelanga kwiya kuno kumuzhi jikwabo."
 
 ##
-Odongo ne Apiyo bapakachilemo nkambo yabo nekwamba shalaipo.
+Odongo ne Apiyo bakumbachile ba nkambo yabo nekwibashajikapo.
 
 ##
-Kimye Odongo ne Apiyo ba bwelele ku sukulu, babujile bakwabo bya bwikalo bwa kumuzhi. Banyike bamo balangulukile amba bwikalo mu taunyi bwawama. Bakwabo balangulukile amba ku muzhi kwa wama. Kukila pa byonse, bonse baswile amba Odongo ne Apiya baji naba nkambo yabo bawama.
+Odongo ne Apiyo byobabwelele kusukuulu, babujile bakwabo pa bwikalo bwa kumuzhi. Banyike bamo balangulukile amba bwikalo bwa mutaunyi bwawama. Bakwabo abo amba kumuzhi kwawama. Kukila pa byonse, bonse bakwabo baswile amba Odongo ne Apiyo bajinga naba nkambo yabo bawama.
 
 ##
 * License: [CC-BY]

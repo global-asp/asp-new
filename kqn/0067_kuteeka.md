@@ -1,28 +1,28 @@
-# Kuteka
+# Kuteeka
 
 ##
-Nsonga ntamba yakizungu.
+Nsonga ntamba ya mapoteto.
 
 ##
-Na chibaula ne kabiki
+Nchibaula kabiki.
 
 ##
-Na chibaula ne kalota.
+Nsonga makalota.
 
 ##
-Naovwa ne nkunde.
+Ngovwa nkunde.
 
 ##
-Na chibaula ne myungu.
+Nchibaula myungu.
 
 ##
-Na chibaula ne bishu.
+Nchibaula bishu bya sipinachi.
 
 ##
-Ba mama abo bachibaula ne kanyenze..
+Ba maama abo bachibaula kanyenze.
 
 ##
-Mipolo ilupuka ingembena kuchibaula kanyenze.
+Kanyenzhe indengela mipolo kufuma mumenso pakwiichibaula.
 
 ##
 * License: [CC-BY-NC]

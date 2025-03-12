@@ -1,40 +1,40 @@
-# Nzolo ne Millipede
+# Nzolo ne Munyongolo
 
 ##
-Nzolo ne Millipede bajinga pa bulunda. Pano baikelengatu na kwikimfya. Juba jimo bafukwile kuteya mpila ya kumaulu pakwaba amba bamone wayukisha kuteya mpila.
+Nzolo ne Munyongolo besampile bumbai. Bino kimye kyonsetu bekyombeshanga. Juuba jimo baumvwañene kuteya mpila ya kumaulu pakuuba amba bamone wayukisha kuteya mpila.
 
 ##
-Baile ku kibanza kobapamina mpila ne kutendeka kuteya mpila. Nzolo wanyemenenga bukiji pano Millipende wakijilemo kunyema. Nzolo wapanchile mpila kuya kwalepa, pano Millipede wapanchile kuya kwalepesha. Nzolo watendekele ku zhingila.
+Baile kukibanza ne kutendeka kuteya mpila. Nzolo wanyemenenga bukiji, bino Munyongolo wakijilemo kunyemesha lubilo kukila nzolo. Nzolo wapanchile mpila kwalepa, bino Munyongolo aye wapanchile kwalepesha. Nzolo watendekele kuzhingila.
 
 ##
-Bafukwile kutendeka kupama mapenoti. Pakutendeka, Millipende wanjinga waku kwata mpila mu golo , Nzolo watwezhezhe kamo. Bino Nzolo naye kyafikile kimye kyanji kya kukwata mpila mu golo.
+Baumvwañene kutendeka kupanta mapenoti. Pakutendeka, Munyongolo wajinga kiipa mugolo. Nzolo watwezhezhetu kamo. Bino Nzolo naye kyafikile kimye kyanji kyakukwata mpila mugolo.
 
 ##
-Millipende wapanchile mpila ne kutwezha. Millipinde wapikile mpila ne kutwezha jikwabo. Millipede watwezhezhe tutanu.
+Munyongolo wapanchile mpila nekutwezha. Munyongolo wapikile mpila jikwabo ne kutwezha jikwabo. Munyongolo watwezhezhe ne jikwabo namutwe. Mukupezhako Munyongolo watwezhezhe mpila jitanu.
 
 ##
-Nzolo wazhingijile bingi pakutana amba bamu kimfya. Kyatamine bingi. Millipinde watendekele kuseka mukwabo mambo wazhingijile kutama.
+Nzolo wazhingijile bingi pakumona amba waluusa. Kyatamine bingi mambo walushile kutama. Munyongolo watendekele kuseka mukwabo pakuzhingila kutama.
 
 ##
-Nzolo wazhingijile kyakuba, washinkwile kanwa kanji ne kumina Millipede.
+Nzolo wazhingijile kyakine kine, kabiji washinkwile kanwa kanji ne kumumina Munyongolo.
 
 ##
-Nzolo po abwelelenga ku nzubo, wasambakene bainanji Millipede. Bainanji Millipede baipwizhe, "Wamumonako mwanami?" Nzolo kechi waambile biji byonse ne. Baianji Millipede ba akaminwe.
+Nzolo byoabwelelenga kunzubo, wasambakene bainanji Munyongolo. Bamwipwizhe amba, "Wamumonapo mwanami nyi?" Nzolo kechi wakumbwilepo biji byonse ne. Bainanji Munyongolo ba akaminwe.
 
 ##
-Bino bainanji Millipede baunvwine kajiwi kacheche. "Mama, nkwashaiko!" kajiwi kajijile. Bainanji Millipede batajile konse ne kunvwina bulongo. Jiwi jafumujile mukachi ka Nzolo.
+Ponkapo bainanji Munyongolo baumvwine kajiwi kacheeche. Munyongolo wajijilenga amba, "Maama, nkwashaiko!" Bainanji Munyongolo bakenkentele konse-konse bulongo. Baumvwine jiwi saka jifumina munda yakwa Nzolo.
 
 ##
-Bainanji Millipede ba bijikile, "Ingisha ngovu yobe yashinta mwanami!" Millipede walupwile bwema bwatama ne kunvwanyika kwatama. Nzolo watendekele kunvwa kubela.
+Bainanji Munyongolo babijikile amba, "Mwanami ingijisha ngovu yobe yapusanako!" Munyongolo watendekele kulupula bwema bwatama kabiji bwaumvwanyikenga ne. Nzolo watendekele kumvwa kubela.
 
 ##
-Nzolo watendekele ku byola. Bino wamina kabiji washipa. Bino wachamuna ne ku kopola. Wa kopwele. Millipede watamine.
+Nzolo watendekele nekubyola. Wamininenga ne kushipa mate. Kabiji wachamwine ne kukopola. Wakopwele nejikwabo. Munyongolo waumvwanyikile kutama.
 
 ##
-Nzolo wa kopwele kyakuba posotu wamukopola Millipede kufuma munda yanji. Millipede ne bainanji Millipede ba kalebe ne kukanjila ku kichi bafyama ne kufyama.
+Nzolo wakopwelengatu kyakubula kuleka ne pakatu wamulasamo Munyongolo munda yanji. Munyongolo ne bainanji bakalabile ne kukanjila kukichi nakufyama.
 
 ##
-Kufuma popo, banzolo ne bena Milliped kebalwanyi.
+Kufuma pakyonkakyo kimye, banzolo ne Minyongolo baikele kebalwanyi.
 
 ##
 * License: [CC-BY]

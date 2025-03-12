@@ -1,4 +1,4 @@
-# Bivwalo bya sukulu
+# Bivwalo bya Sukuulu
 
 ##
 Aye ndeleshi yalepa.
@@ -10,19 +10,19 @@ Aye sweta yabaya.
 Akye kyola kyabaya.
 
 ##
-Awe mushipi...
+Awe mushipi wa...
 
 ##
-Ake kasote kakepa.
+Ake kakisochi kakeepa.
 
 ##
-Aye masokoshi aipipa.
+Ae masokoshi aipipa.
 
 ##
-Pano aye masapato apya.
+Bino ao masapato akatataka.
 
 ##
-... alinga bulongo.
+... afikilamo bulongo.
 
 ##
 * License: [CC-BY-NC]

@@ -1,52 +1,52 @@
 # Magozwe
 
 ##
-Mu taunyi wa Nairobi, kwalepa na ku muzhi, kwajinga jibumba ja banyike ba balume babula malaalo. Baikalangatu byonkabyo. Juuba jimo lukelo,bano banyike paikile bisanswe pobalalanga mu mashika. Ba ambwile mujilo na ma peepala pakuba amba bomvweko kyuuya. Pakachi kabano banyike babalume pajinga Mungozwe. Yewanjinga mwanyike pabonse.
+Mutaunyi wa Nairobi, kwalepa namuzhi, kwajinga jibumba ja banyike babalume babujile pakwikala. Baikalangatu monka muila moba. Juuba jimo lukeelo, bano banyike bapaikile bisanswe byabo byobalaajilepo mumashika. Baambwile mujilo kwingijisha ndochi pakuuba amba bomvweko kyuuya. Pabano banyike pajinga ne nsongwalume wajizhina ja Magozwe. Uno nsongwalume yewanjinga mwanyike pa bonse.
 
 ##
-Bansemi bakwa Magozwe poba fwile, aye wajitu na myaka ya kusemwa itaanu. Wayile nakwikala ne ba mwisho yanji. Bano ba mwisho wanji kechi bateeleko maana ku uno mwaana ne. Kechi bamupanga kajo kafikilamo ne. Bamupanga nkito yakosa biingi.
+Magozwe wajingatu na myaka ya kusemwa itanu pa kimye kyafwile bainanji. Magozwe wayile nakwikala ne ba mwisho yanji. Bano ba mwisho wanji kechi bamulaminenga bulongo uno mwanyike ne. Ba mwisho wanji kechi bamupangapo kajo kafikilamo ne. Bamupanga kwingila nkito yakosa bingi.
 
 ##
-Inge Magozwe wijizhang'anya nangwa kwipuzha ba mwisho ba mupumanga. Kimye Mungozwe kyo ashikishe ba mwisho yanji inge wakonsha kuya ku sukulu, ba mwisho yanji bamupumine ne kwamba amba, "Maana ufwao akufunda biji byonse." Panyuma ya myaka isatu yakuno kulamwa bibi, Mungozwe wanyemene kufuma kuba mwisho yanji. Watendekele kwikala naba kwabo babula malaalo.
+Magozwe bamupumanga kuuba mwinsho wanji inge wijizhanya nangwa wibepuzhapo. Kimye kyonse inge Magozwe wabuula ba mwinsho wanji pabya sukuulu, abo bamupumanga ne kumwambila amba, "Obewa wikileya kuuba wafunda kyonse ne." Panyuma yakumuyanjisha ku ba mwinsho yanji pa mwaka isatu, Magozwe wanyemene. Magozwe watendekele kwikalatu mumukwakwa.
 
 ##
-Bwikalo bwakubula malaalo bwajinga bwa katazha kabiji banyike bavula baabalume babula malaalo bekala na lukatazho kutana kajo kapajuuba ne pajuuba. Bimye bimo beba kwatanga kabiji jikwabo beba pumanga. Inge babela, kafwako wakwi bakwasha. Jino jibumba ja ketekelanga mali acheche abatananga kufuma mukulomba, nemukupotesha ma peepala apulasitiki ne bintu bikwabo. Bwikalo bwa katezhe biingi na mambo akulwisha na mabumba akwabo akeba pakwikala mu taunyi.
+Bwikalo bwakwikala mumukwa bwashupile kabiji banyike baavula babalume batananga lukatazho pa kuuba amba batane byakuja. Bimye bimo beba kwatanga nangwa kwibapuma. Inge babela kechi kwaikalanga wakwi bakwashako ne. Abano bansongwalume bajanga mwingijisha mali acheeche obatananga kufuma mukulomba, nemukupotesha mapeepala kabiji ne mapulasitiki akwabo. Bwikalo bwa katezhe bingi namambo akuuba amba baikalanga nabulwi nabipanyi byabansongwalume bakwabo aba bakebanga kutangijila bipanyi byonse mutaunyi.
 
 ##
-Juuba jimo Mazongwe byoasalawilenga moba taya ndochi, wataine kabuuku katabauka ka mashimikila. Wika wamishishe ne kwika longa mu mufuko wanji. Kimye kyonse panyuma ya kutola uno buuku wa mulupulanga mumu fukuta ne kutala pa bikope. Kechi wayukile kutanga byambo ne.
+Juuba jimo, Magozwe asalawilenga mobataya ndochi, kabiji wataine kabuuku katabauka kamashimikila. Wikatolele kabuuku, wikakuntakunta kabiji ne kwikabika mujisaka janji. Wamishishe ne kwika longa mu mufuko wanji. Moba onse Magozwe watoolanga kano kabuuku ne kutala pa bikope mambo akuuba kechi wayukile kutanga byambo ne.
 
 ##
-Bikope bya mweshanga jishimikila ja mwanyike wakomene waikala ke endeshe ndeke. Magozwe walotanga kwendesha ndeke. Jimo walangulukunga amba ye mwanyike uji mu jishimikila.
+Abino bikope byamweshanga jishimikila ja mwanyike wakomene kwikala pailoti. Magozwe walotangatu kwikala pailoti wandeke. Kimo kimye wamonga nobe yeuji mujishimikila.
 
 ##
-Kwajinga bingi mashika kabiji Mungozwe waimene kuunsa ya mukwakwa na kulomba. Shetu waishile koaji. "Byepi, yami Thomas. Nsebeza pepi napano pampunzha powakonsha kutana kya kuja, " uno shetu wa ambile. Wamumwesheshe ku nzubo ya yelo iji na musemi wa bbulu. "Naketekela usa ku konsha kuyako ne kutambulako kajo?" waipwizhe. Mungozwe watajile uno shetu kabiji watajile ne kwaji nzubo. "Kampe," waambile ne kufumapo.
+Juuba jimo kwajinga mashika bingi bino Magozwe waimene kunsa ya mukwakwa na kulombaizha. Shetu umo waishile kubwipi ne kumubula amba, "Byepi, yami Thomas. Uno wamulume waambile jikwabo amba, Nsebezhela pabwipi nampunzha powakonsha kutana byakuja," Uno shetu watongwelenga nzubo yakibobo yajinga musemi wa bbulu. "Naketekela usa kukonsha kuyako nakutambulako kajo?" wamubujile. Magozwe wamutajile shetu nekwamba amba, "Kampe," kabiji wafumapo ne kufumapo.
 
 ##
-Pa ba ng'ondo balondejilpo, bano banyike babujile malaalo bapijilwe kumona Thomas. Watemenwe kwisamba na bantu kikatakata abo ba bujile malaalo. Thomas watelekanga kumashimikla ama bwikalo abantu. Wajinga wakishinka kabiji wa mushingi. Bamo banyike baabalume batendekele ku nzubo ya yelo ne bbulu nakujako kajo ka pachaile.
+Byo papichilepo bañondo, bano bansongwalume babujile pakwikala batendekele kupijilwa kumumona Thomas. Thomas watemenwe kwisamba na bantu kikatakata aba baikalanga pamukwakwa. Thomas watelekanga kumashimikla abwikalo bwa bantu. Magozwe wajinga nabukishinka, butekanyi kabiji ne mushingi. Bansangwalume bakwabo batendekele kuya kunzubo yakibobo ya musemi wabbulu nakujako kajo kapachaile.
 
 ##
-Mugozwe waikele kunsa ya mukwaakwa kasa atala mu buuku waanji wa bikope apo Thomas waishile nakwikala peepi naanji. "Jishimikila jiji paka?" Thomas waipwizhe. "Jiji pa mwanyike wamulume waendeshanga ndeke," Mungozwe wakumbile. "Ng'anyi jizhina?" Thomas washikishe. "Kechi nayuka ne, kechi nakonsha kutanga ne," Mungozwe waambile.
+Magozwe waikele kunsa ya mukwakwa saka atamba mubuuku wanji wa bikope kabiji Thomas waishile waikala peepi nanji. Thomas wamwipwizhe Magozwe amba, "Ñanyi jishimikila jijimo?" Magozwe wakumbwile amba, "Jino jishimikila jibena kwamba mwanyike wamulume waendeshanga ndeke," Thomas wamwipwizhe jikwabo amba, "Jizhina ja nsongwalume wajinga ñanyi?" Magozwe wakumbwile kishinshi amba, "Kechi nayuka,"
 
 ##
-Byo basambakene, Mungozwe wa mubujile Thomas jishimikala ja bwikalo bwanji. Jajinga jishimikila jaba mwisho yanji ne kyalengele kuba amba anyeme. Thomas kechi waambile byavula ne kabiji kechi wamu bujile Magozwe bya kuuba ne, mino watelekanga bingi bulongo. Jimo jimo besambanga aku saka baja ku nzubo ya musemi wa bbulu.
+Byobasambakene, Magozwe watendekele kushimikizha Thomas jishimikala jabwikalo bwanji. Wamushimizhenga jishimikila jaba mwisho yanji ne kyalengele kuuba amba anyeme pa nzubo. Thomas kechi waambile byavula ne kabiji kechi wamubujilepo Magozwe byoalangulukilenga kuuba ne, bino watelekelengatu bulongo. Kimo kimye besambanga aku saka baja kajo kunzubo yamusemi wabbulu.
 
 ##
-Kubwipi na juuba ja kusemwa jakwa Magozwe ja kufika myaka jikumi, Thomas wamupele buuku wa mashimikila mupya. Jajinga jishimikila ja mwanyike wa mulume wa ku muzhi ao wakomene waikala keupama mpila waile nkuwa. Thomas watangijile Magozwe jino jishimikila bimye byavula, kabiji juuba jimo waambile amba, "Nalunguluka namba kimye kyafika kyakuya ky sukulu ne kufunda kutanga. Walanguluka amba ka?" Thomas walumbulwile amba wayukapo mpunzha kwa konsha kwikala banyike saka baya ku sukulu.
+Kubwipi na juuba jakufikizha mwaka yakusemwa jikumi, Thomas wamupele Magozwe buuku wa mashimikila wakatataka. Jino jishimikila jajinga ja mwanyike wamulume wa kumuzhi waishile kwikala keshenyenye wampila. Thomas wamutangijilenga Magozwe jino jishimikila bimye byavula, kabiji juuba jimo wamwambile amba, "Nalanguluka namba kimye kyafika kyakuya kusukuulu pa kuuba amba ukafunde ne kuyuka kutanga. Walangulukapo byepi?" Thomas wamulumbulwijile Magozwe amba wayukapo mpunzha kwakonsha kwikala banyike saka baya kusukuulu.
 
 ##
-Magozwe walangulukile pa mpunzha ipya ne byakuya ku sukulu. Pano inge kyakuba amba ba mwisho yanji baambilenga bishinka kabiji wajinga wabula maana akufunda kiji kyonse? Pano inge ba mupuma kuno ku mpunzha ipya? Wajinga na moyo. "Kampe kyawama kuitwajijila kwikala kwa kubula malaalo," walangulukile.
+Magozwe walangulukilepo pampunzha yakatataka kabiji nepa kuya kusukuulu. Watendekele kulanguluka pa byamwambijile ba mwisho wanji. Walangulukilenga amba kampepo kileya kya kine kabiji kechi wakonsha kufundane? Walangulukile jikwabo amba pano inge bamupuma kuno kumpunzha yakatataka? Wajinga na moyo amba, "Kampepo kyawama kutwajijila kwikala kwa kubula pamukwakwa."
 
 ##
-Washilng'ene milangwe yanji ya moyo na Thomas. Pakupitapo kimye uno shetu wamutundaike amba bwikalo buka wama ku mpunzha ipya.
+Washilañene milangwe yanji yamoyo ne Thomas. Pakupitapo kimye uno shetu wamutundaike amba bwikalo bwakonsha kupimpulwa inge wayako kumpunzha yakatataka.
 
 ##
-Kabiji wavilukijile mu kibamba kimo kya nzubo yaji na musemi wa gilini. Baikelenga mukibamba kimo naba kwabo babiji. Bonse pano bajingamo banyike jikumi mu yooya nzubo.Pamo neba Cissy ne bena kwabo, bakabwa basatu, kameenshi ne mbuzhi mukote.
+Nanchi ponkapo Magozwe wavilukijile mu kibamba kimo kya nzubo yaji kyamusemi wa manzhamatamba. Magozwe waikelenga mukino kibamba naba kwabo bansongwalume babiji. Bonse pano bansongwalume bajinga jikumi muyoya nzubo. Muno munzubo mwajinga ba Cissy ne benakwabo, bakabwa basatu, kamenshi ne mbuzhi mukote.
 
 ##
-Magozwe watendekele sukulu kabiji kya katezhe. Wajinga na byavula bya ku keba ku yuka. Kimye kimo wakebanga kwikileka. Pano walangulukanga pa wa endeshanga ndeke ne wa pamanga mpila mu mashimikila. Nobe abo, kechi wikilekele ne.
+Magozwe watendekele sukuulu kabiji kyamukatezhe. Wajinga na byavula bya kukeba kuyuka. Kimye kimo wakebanga kwibileka. Pano walangulukanga pa waendeshanga ndeke ne wapamanga mpila mu mashimikila. Nobe ano mashimikila, kechi wikilekele ne.
 
 ##
-Magozwe waikele mu lubanza pa nzubo wa musemi wa gilini saka atanga buuku wa mashikila kufuma ku sukulu. Thomas waishile ne kwikala peepi ne aye. "Jishimikila jiji pa ka?" Thomas washikizhe. "Jiji pa mwanyike wa mulume waikele mufunjishi," Magozwe wakumbwile. "Ng'anyi jizhina mwanyike wamuleme?" Thomas waipwizhe. "Jizhina janji Magozwe," Magozwe waambile naku mwemwesela.
+Magozwe waikele mulubanza panzubo yamusemi wamanzhamatamba saka atanga buuku wa mashimikila kufuma kusukuulu. Thomas waishile ne kwikala peepi ne Magozwe. Thomas wamwipwizhe amba, "Nanchi jishimikila jibena kwamba paka?" Magozwe wakumbwile amba, "Jishimikila jibena kwamba pa mwanyike wamulume waikele mufunjishi," Thomas waipwizhe jikwabo amba nachi wajinga ñanyi jizhina awa nsongwalume?" Magozwe waambile nakumwemwesela amba," jizhina janji Magozwe.
 
 ##
 * License: [CC-BY]

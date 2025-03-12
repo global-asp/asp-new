@@ -1,40 +1,40 @@
-# Zama wakosa
+# Zama Wakosa
 
 ##
-Nkasami ke ulala bukiji ne. mbuka bukiji, mambo nakosa!
+Nkasami wamulume kechi ulaala bukiji ne. Mbuuka bukiji, mambo nakosa!
 
 ##
-Amiwa nsamisha mute.
+Amiwa yami nswisha mute kutwela mukachi.
 
 ##
-Ba maama bamba, "Wi ntanda yami ya lukelo"
+Ba maama bamba amba, "Yobe ntanda wami wakumakya."
 
 ##
-Ngowa njonse bunke. Kenkeba wankukwasha ne.
+Neovwa amiwa mwine, kechi nkebapo bukwasho ne.
 
 ##
-Mema atala kemambo ne, nangwa sopo wakuwashila bivwalo wa blue.
+Amiwa nakonsha kukwanyisha kowa meema amunyango nangwa aji nasopo wanunka kabiji wafituluka.
 
 ##
-Ba maama bamvulasha, kulubamo meeno ne.
+Ba maama bamvulula amba, kweseka kulubako meeno ne. Amiwa nebabula namba, "Kechi kikobiwapoakyo kwiamiwa ne!"
 
 ##
-Ngenapwisha kuwasha, ngimunanga bankambo bakazhi neba tata-kazhi.
+Inge napwisha kuchapa, ñimuna ba nkambo babalume ne ba taata-kazhi, kabiji mpesha ne juuba jabo jonse.
 
 ##
-Napwisha kwivwika,"Nakoma pano, Mama," naamba.
+Nebabuula ba maama namba, "nevwika amiwa mwine mambo nakoma,"
 
 ##
-Nakonsha kwimanga matota na kuvwala nsapato
+Nakonsha kwimanga mabatani kabiji nekuvwala nsapato.
 
 ##
-Nkeba nayukisha bakolojami na byamo byonse bya pa sukulu
+Kabiji mona kuuba amba namubuula nkasami wamulume masawakya onse akusukuulu.
 
 ##
-Mu class, ngingila byonse mumashinda yapusana-pusana
+Mukalasi, ñingila nangovu mumashinda apusana-pusana.
 
 ##
-Nguba byawama bintu moba onse.Mino kyonatemwisha, kukaya ne kukaya.
+Ñingila bintu byawama moba onse. Bino kintu kyonatemwisha, ke kukaya!
 
 ##
 * License: [CC-BY]
