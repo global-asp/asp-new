@@ -1,47 +1,47 @@
-# Ovyo yaya wapwevo wa vusi ahanjikile
+# Ovyo ahanjikile ndumbu ya Vusi
 
 ##
-chimenemene kaka ya vusi amusanyikile, "vusi, twala liwulu eli kuli visemi jove. vanakutonda kupanga mbolo ya yayove chachilika chenyi."
+Likumbi limwe chimenemene khaka ya Vusi amusanyikile, "Vusi, twala liulu eli kuli visemi jove. Navatonda kwochela ndumbwove kheki yayinene hawenga wenyi."
 
 ##
-Omu ayilenga mujila kuli visemi jenyi, Vusi awanyine vana vamalunga vavali kusakula muhako. mwana walunga wumwe ambachile liwulu kufuma kuli Vusi nakulyasa kumutondo. liwulu lyapazukile.
+Mujila yenyi hakuya kuli visemi jenyi, Vusi aliwanyine navana vamalunga vavali vapwile nakuhela mihako. Kanyike umwe anyangwile liulu kuli Vusi nakulyasa hamutondo. Lize liulu lyapazukile.
 
 ##
-" walingi yika?" Vusi alilile. "lize liwulu lyapwanga lya mbolo. mbolo yapwanga yachilika chayayami wapwevo. yayami mwahanjika ngwenyi ngachilihi nge kakweshi kupwa mboloko kuchilika chenyi chakusomboka?"
+Vusi alilile, "Unalingi ika? Lize liulu lyapwile lyakwochesa kheki. Kheki yahachilika chandumwami. Ndumbwami mwevwa ngachilihi nge kakwechi kupwa kheki yachilika chenyiko?"
 
 ##
-Malunga valikonekelele hakumupihisa Vusi. "katweshi kuhasa kukafwa na mboloko, wunonyi mukombo owu wumutwalile yayayove wapwevo," wumwe ahanjikile. Vusi atwalilileho nawungeji wenyi.
+Chize kulinyenga cha Vusi chavakwachile kumichima. Umwe wavo ahanjikile ngwenyi, "Nomu jino natuhashila kukafwa hali eyi kheki mwauhi, oloze waha mukombo ukahane ndumbwove." Vusi atwalilileho najila yenyi.
 
 ##
-Omu apwilenga muwungeji, awanyine malunga vavali vakutunga zuvo. "tuzachiseko owu mutondo wove wakukola?"wumwe ahulishile. wunonyi mutondo kawapwile wakukola chikumako nakutungisa, shikaho wahokokele.
+Mujila yenyi aliwanyine namalunga vavali vapwile nakutunga zuvo. Umwe ahulishile ngwenyi, "Ngachilihi, tuzachiseko ou mutondo wove wakukola?" Oloze uze mutondo kawapwile wakukola kutesa nakutungisako, shikaho wahokokele.
 
 ##
-"walingi yika?" Vusi alilile. "Wuze mutondo wapwanga wuhano wa yayami wapwevo. vakakusakula mihako vanguhananga mungweji momo vapazulanga liwulu lyapwanga lya mbolo ya chilika chakusomboka. wunonyi kwawuchi liwulu, kwawuchi mbolo kaha chekanawa kwawuchi chiteli chawana chakuhanako. yayami mwahanjika ngwenyi yika?"
+Vusi alilile ngwenyi, "Munalingi ika?" "Uze mutondo wana wakuhana ndumbwami. Vakakuhela mihako vanguhanangawo mwomwo vachikanga liulu lyakwochesa kheki. Kheki yapwanga yachilika chawenga wandumbwami. Jino liulu lyauchi, kheki yauchi, kaha wana nawa wauchi. Ndumwami mwalinga muka?"
 
 ##
-Vakakutunga valikonekelele hakuhokola mutondo. "katweshi kuhasa kukafwa na mboloko wunonyi tambula mukuta owu wutwalile yayove."wumwe ahanjikile. shikaho Vusi atwalilileho nawungeji wenyi.
+Vaze vakakutunga chavavetele kumichima hakuhokola uze mutondo. Umwe wavo ahanjikile ngwenyi, "Katwechi kuhasa kukafwa hali ize khekiko, oloze mukuta wamwila ou utwalile ndumbwove." Shikaho Vusi atwalilileho najila yenyi.
 
 ##
-Omu apwilenga mujila nakuya, Vusi awanyine njimi na ngombe. " mukuta wamwila wove wamwaza, ngutopeko?" Ngombe ahulishile. wunonyi mwila wenyi wapwile wamwaza shikaho ngombe alile wosena!
+Mujila yenyi, Vusi aliwanyine nanjimi nangombe. Ngombe ahulishile ngwenyi, "Mukuta wamwila wove wamwaza, achinguhane ngutafunyeko?" Oloze mwila wenyi wapwile uyema ngocho ngombe alile wosena!
 
 ##
-"walingi yika?" Vusi alilile. "wuze mwila wapwanga wuhano wayayami . vakakutunga vahananga momo vahokolanga kufuma kuli vakakusakula mihako. vakakusakula mihako vapazulanga liwulu shikaho vanguhananga mutondo nguhane yayami. mbolo yapwanga ya chilika chakumbata cha yayami wapwevo. wunonyi kwawuchi liwulu, kwawuchi mbolo, kaha cheka kwawuchi vyakuhanako. yayami mwahanjika yika?"
+Vusi alilile ngwenyi, "Unalingi ika? Uze mwila wana wayayami. Vakakutunga vanguhanangawo mwomwo vahokolanga mutondo wakufuma kuli vakakuhela mihako. Vakakuhela mihako vajihanga liulu shikaho vanguhananga mutondo nguhane yayami. Vakakuhela mihako vanguhananga uze mutondo mwomwo vapwashanga liulu lyakwochesa kheki yachilika chawenga wayayami. Jino liulu lyauchi, kheki yauchi, kaha wana wauchi. Yayami mwamba ngwenyi ika?"
 
 ##
-Ngombe alikonekelelele hawuminyi. njimi etavile ngombe ayenga nenyi kuchilika mangana apwenga wana kuchilika chakumbata cha yayenyi wapwevo. kaha Vusi amumbachile.
+Ngombe chamukwachile kumuchima hakuwana nge apwile wakuzuzuka. Njimi etavile ngombe ayenga na Vusi akapwe wana wayayenyi. Kaha Vusi atwalilileho.
 
 ##
-Wunonyi ngombe achinyinyine kuli njimi ha lola lwakulya shima yamusana. shikaho Vusi ajimbalile muwungeji wenyi. achelewele ku chilika cha yayenyi. vangeji vaputukile lyehi nakulya.
+Oloze ngombe ahilukile kuli njimi halwola lwakulya kuchingoloshi. Shikaho Vusi ajimbalile muungeji wenyi. Akotokelele kuheta kuwenga wayayenyi. Vangeji hivali lyehi nakulya.
 
 ##
-"Nangulinga yika?" Vusi alilile. "ngombe achinanga apwanga wana, hakuhilwisa mwila vakakutunga vanguhananga. vakakutunga vanguhananga mwila momo vahokolanga mutondo vanguhananga vakakusakula mihako. vakakusakula mihako vanguhananga mutondo momo vapazulanga liwulu vanguhananga lyapwanga lya mbolo. mbolo yapwanga ya chilika chakusomboka. wunonyi kwawuchi liwule, kwawuchi mbolo, kwawuchi vyakuhanako."
+Vusi alilile nakwamba ngwenyi, "Nangulinga ika? Ngombe nachinyi apwile wana wakushishisa mumukuta wamwila vanguhananga vakakutunga. Vakakutunga vanguhananga mwila mwomwo vahokolanga uze mutondo vanguhananga vakakuhela mihako. Vakakuhela mihako vanguhananga mutondo mwomwo vachikanga liulu lyakheki. Kheki yapwile yachifupa-wenga. Chindanda chapwile cha chilika chakusomboka. Jino liulu lyauchi, kheki yauchi, kaha nawana wauchi."
 
 ##
-yaya ya Vusi ashinganyekeleho chindende, shikaho ahanjikile, "Vusi songo yami, kangwalizakaminyineko hali wana, kangwalizakaminyineko hali mbolo! tuli kuze hamwe, ngwawahilila. shikaho vwala vyuma vyove vitoma mangana tuwahilile nakulivwisa kuwaha likumbi lino!" shikaho Vusi alingile ngachize.
+Yaya ya Vusi ashinganyekele chindende, kaha ahanjikile, "Vusi songo yami, kangwazakamine mawanako, kangwazakamine tuhu numba khekiko! Tuli hamwe kuno tuvosena, ngunawahilila. Shikaho vwala vyuma vyove vyamwaza mangana tuwahilile nakulivwisa halikumbi lino!" Kaha omu mukhiko alingile Vusi.
 
 ##
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

@@ -1,52 +1,52 @@
 # Magozwe
 
 ##
-Mumbaka ya Nairobi, kwakusuku na limbo lyakuzakamana, kwatwamine vanyike vamalunga vakuhona kwakutwama. Vatambukishile likumbi lyosena nge omu lyejile. Halikumbi limwe, vanyike vama lunga vapwilenga nakulongejeka visalo halutwe lwakusavala hamavu atuta. Kuchinyisa kututa, vamwinyikile kakahya Nama jilo. Hakachi ka vana vamalunga hapwilenga Magozwe. Apwilengaho kachinyike.
+Mumbaka ya Nairobi, kwakusuku nachyoyelo chamwenemwene chakwimbo, mwatwaminenga vanyike vamalunga vakuhona kwakutwama. Vyosena vyavawanyine halikumbi hilikumbi vyovyo. Likumbi limwe nachimene, vanyike vamwe vamalunga vapwile nakulongejeka visalo vyavo kufuma hakusavala mujisenge jakututa. Kuchinyisa chishika, vamunyikilenga kakahya kuzachisa mapepa. Hakachi kavana vamalunga ava hapwile Magozwe. Ikhiye apwileho Kanyike kuhambakana.
 
 ##
-Omu visemi ja Magozwe vafwile, apwilenga kaha myaka itanu. Ayile nakutwama na natwenyi. Owu lunga kazakaminyineko Hali mwana. Kahanyine Magozwe vyakulyako. Alingishile mwana walunga azate chikuma.
+Magozwe apwile namyaka yakusemuka itanu halwola afwile Ise. Ayile nakutwama nanathwenyi. Ou lunga kazakaminyine uze mwanako. Kahanyine Magozwe vyakulya vyakutamoko. Amuzachishilenga milimo yayivulu kaha yayikalu nawa.
 
 ##
-Nge Magozwe alitetele chipwe kuhulisa, natwenyi amuvetele. Omu magozwe ahulishile nge mwahasa kuya kushikola, natwenyi amuvetele nakuhanjika ngwenyi, “watwama wakuhulama nakulilongesa vili vyosena.” Omu mwahichile myaka yitatu yakumuyanjisa Magozwe achinyine kufuma kuli natwenyi. Aputukile kutwama mumikwakwa.
+Nge Magozwe mwayayavala chipwe kuhulisa, kaha nathwenyi hikumuveta. Omu Magozwe ahulishile nge mwahasa kuya kushikola, nathwenyi amuvetele nakuhanjika ngwenyi, "Wapwa wakuhulama nevi naulinangula vyauchi." Omu mwahichile myaka itatu yakumuyanjisa Magozwe achinyine kufuma kuli uze nathwenyi. Aputukile kutwama mumikwakwa.
 
 ##
-Twamiso yamimikwakwa yapwile yayikalu shikaho vanyike vamalunga vayanjile makumbi osena hakulinga vayenga nakumbata vyakulya. Lola lumwe vapwilenga nakuvakasa, Lola lukwavo vapwilenga nakuvaveta. Omu vapwilenga nakuviza, kakwapwilenga vakuvakafwako. Lizavu lyafwelelele hatujimbongo vambachilenga kufuma kukulomba, nakulanjisa mapepa navikwavo. Chiyoyelo chakolele momo yajindombo navakwavo vatondele kuyulu vihanda vikwavo vya mbaka.
+Twamiso yamumikwakwa yapwile yayikalu kaha vanyike vapinjilenga kumbi nge hikumbi kutonda vyakulya. Lwola lumwe vavakashilenga, lwola lukwavo vavavetelenga. Nge navaviza, kakwapwilenga wakuvakafwako. Ava vanyike vapendaminenga hatumbongo vawanyinenga mukulomba-lomba, nakulanjisa vindundu navikwavo. Chiyoyelo chakaluhwilileko hakuzunga jindombo namauka avakwavo valimwene kupwa venya mutamba wambaka vapwilemo.
 
 ##
-Likumbi limwe omu Magozwe atalilenga muze mwakuhakila majilo, awanyine mukanda wamyaka wamajilo. Awupukuchile majilo nakuwuhaka nunjeke. Lola losena ambachilenga mukanda nakutala ma sinapu. Katachikijile mwakutangilako.
+Likumbi limwe shimbu Magozwe apwile nakutala muvingungulu, awanyine mukanda wamijimbu wamyaka kaha nawa wamajilo. Autotomwene majilo nakuuhaka munjeke yenyi. Likumbi nge hilikumbi kufuma haze ambachilenga uze mukanda nakutala mivwimbimbi. Kathachikijile mwakutangila aze mazu apwilemoko.
 
 ##
-Ma sinapu alumbunwinenga mwana lunga akolelenga Kupwa muka kutukisa jindeke. Lola lumwe, ashinganyekelenga ngwenyi apwilenga wuze mwana lunga muze mumujimbu.
+Mivwimbimbi yambulwile mwanalunga akolele nakupwa mukakutukisa jindeke. Magozwe alotelenga kupwa nyamutekenya wandeke. Lwola lukwavo, alishinganyekelenga kupwa uze mwanalunga muze mumujimbu.
 
 ##
-Kwatuchile Chishika shikaho Magozwe emanyine mumukwakwa nakulomba. Lunga endele kuli yikiye. “Yoya, lijina lyami yami Tomasi. Ngwechi kuzachilanga kwakamwihi nakuno, ku ngalila wunahase kumbata chakulyako,” Lunga ahanjikile. Asontele kuzuvo yakala amakonde akuhya na kasongwa kakuwutuluka. “Ngwatachikiza ngwami muya kuze nakumbata vyakulya?” Ahulishile. Magozwe atalile hali wuze lunga, nahazuvo. “Pamwe,” ahanjikile, nakufumaho.
+Kwapwile chishika kaha Magozwe emanyine mumukwakwa nakulomba-lomba. Kwapwile Lunga ejile kuli ikhiye. Uze lunga ahanjikile ngwenyi, "Yoya! Lijina lyami yami Thomas. Ngwazachila kwakamwihi nakuno, kungalila unahase kuwana vyakulya." Enyikile kuzuvo yaulombo wausungwa namusongwa ulauluka. Amulwezele ngwenyi, "Ngunafwelela ngwami unahase kuya kuze nakuwana vyakulya?" Magozwe atalile hali uze lunga nahaze hapwile ize zuvo kaha ahanjikile ngwenyi, "Phamo," nakufumaho.
 
 ##
-Omu tukweji vavavulu vakavangijileho, vaze vana vamalunga vejilile kumona Thomas. Azangile kuhanjika navatu, chikuma kuVatu vatwaminenga . Thomas evwililenga kumijimbu yamyono yavatu. Apwilenga wakulihana chikuma na kuwunda, kapwilenga wamanyako chipwe wakasawutuko. Vanyike vamalunga vamwe vaputukile kuya nakumbatanga vyakulya kwakuze kuzuvo Lola lwa musana.
+Hatukweji vavavulu vakavileho, vaze vanyike vejililile kumona Thomas kuze vapwile. Azangilenga kuhanjika navathu, chikumanyi vathu vayoyelenga mumikwakwa. Thomas evwililenga kumijimbu yachiyoyelo chavathu. Apwilenga wakulihana chikuma kaha wakuunda, kapwilenga wamanyako chipwe kasautu. Vanyike vamwe vaputukile kuya nakumbata vyakulya kuze kuzuvo nalwola lwamusana.
 
 ##
-Magozwe atwamine halukoto nakutala mivwimbimbi mumukanda omu tomasi atwamine kwakamwihi nayikiye. “Mujimbu wunakuhanjika Hali yika?” Tomasi Ahulishile. “Wunakuhanjika Hali mwana lunga ejile Kupwa muka kutukisa jindeke,” Magozwe ahilwishile. “Lijina lya mwana lunga yikiye hiya?” Tomasi Ahulishile. “Kangwatachikijileko, kangwahasa kutangako?” Magozwe ahanjikile mukuwunda.
+Magozwe atwamine halukoto nakutala mumukanda wenyi wamivwimbimbi omu Thomas ejile nakutwama kwakamwihi nayikhiye. Amuhulishile ngwenyi, "Mujimbu uli haka?" Magozwe akumbulwile ngwenyi, "Uli nakuhanjika hali mwanalunga napu mutekenya wajindeke." Thomas Ahulishile ngwenyi, "Lijina lyenyi hiya?" Magozwe ahanjikile mukuunda ngwenyi, "Kangwathachikijileko, kangwahasa kutangako?"
 
 ##
-Omu vali wanyine, Magozwe aputukile kulweka Tomasi mujimbu wenyi. Wapwilenga mujimbu wa natwenyi na nomu achinyine. Tomasi kahanjikile chikuma ako, kalwekele Magozwe vyakulingako, oloze evwishishile chikuma Lola lose. Lola lumwe vapwilenga nakuhanjika omu vapwilenga nakulya hazuvo.
+Omu valiwanyine, Magozwe aputukile kulweza Thomas mujimbu wenyi. Wapwilenga mujimbu wanathwenyi nomu achinyine. Thomas kahanjikile vyavivuluko kaha kalwezele Magozwe vyakulingako, oloze evwililenga kanawa. Lwola lumwe vahanjikilenga shimbu vapwilenga nakulya kuze kuzuvo yaulombo ulauluka.
 
 ##
-Mumyaka yakusemuka Ya Magozwe yapwile makumi, Tomasi amuhanyine mukanda wukwavo wamijimbu. Wapwilenga mujimbu wa mwana wa lunga wa kwimbo akolelenga Kupwa mukakwasa ngunja wakwivakana. Tomasi atangilile wuze mujimbu Magozwe kapapa kakavulu, likumbi limwe ahanjikile, “ngwashinganyeka hilola wunahase kuya kushikola nakulilongesa mwakutangila. Washinganyeka ngove yika?” Tomasi alumbunwine ngwenyi ejivile ngalila oku vana vanahase kutwama, nakuya kushikola.
+Hamyaka likumi yakusemuka ya Magozwe, Thomas amuhanyine mukanda wauhya wamijimbu. Wapwilenga mujimbu wamwanalunga wamwimbo akolele nakupwa mukakwasa ngunja wakwivwakana. Thomas atangilile Magozwe uze mujimbu maphapa kakavulu kuheta nahalikumbi ambile ngwenyi, "Ngunashinganyeka hilwola watela kuya kushikola nakulilongesa kutanga. Unashinganyeka ngwove ika?" Thomas alumbunwine ngwenyi ejivile ngalila kuze vanyike vanahase kutwama, nakuya kushikola.
 
 ##
-Magozwe ashinganyekeleho hali eyi ngalila yayihya na yikiye kuya kushikola. Inyi nge natwenyi apwilenga wakoloka kaha apwilenga wakuhulama nakulilongesa vili vyosena? Inyi nge vamu vetele oku ku ngalila yayihya? Alizakaminyine . “Pamwe chamwaza kutwamanga kaha mujijila,” ashinganyekele.
+Magozwe ashinganyekeleho hali eyi ngalila yayihya, navyakuya kushikola. Ngachili nge nathwenyi ahanjikile mwamuchano hakwamba ngwenyi wakuhulama shikaho mwahona kulinangula chuma numba chimwe? Nyi nge vamuvetele oku kungalila yayihya? Evwile woma. Ashinganyekele, "Phamo chamwaza kutwamanga nakuyoyela mumikwakwa."
 
 ##
-Alwekele woma wenyi Tomasi. Omu lola lwahichile Tomasi amufwelelesele cheka wuze mwana lunga ngwenyi chiyoyelo nachipwa kanawa kuze ku ngalila yayihya.
+Alwezele Thomas woma wenyi. Mukuhita chamakumbi Thomas afwelelesele uze mwanalunga ngwenyi chiyoyelo nachipwa kanawa kuhambakana kuze kungalila yayihya.
 
 ##
-Shikaho Magozwe alukile mu lumu yazuvo amafo amatamba. Vali pangililile lumu na vana vavali vamapwevo vakwavo. Vose hamwe vapwilenga nakutwama haze hazuvo vapwilenga likumi. Hamwe na tata wapwevo Cissy na lunga lyenyi, tuwa vatatu, pusi kaha cheka na pembe wakashinakaji.
+Shikaho Magozwe alukilile muzuvo yamusongwa waulombo wamafwo amatamba. Vasavalilenga muze muzuvo navakwavo vanyike vavali. Vosena hamwe vapwilenga nakutwama muze muzuvo vanyike likumi. Vekha vapwile nakutwamamo shina isephwevo Cissy na lunga lyenyi, tuwa vatatu, kangatwe nakashinakaji kaphembe.
 
 ##
-Magozwe aputukile shikola shikaho yapwile yayikalu. Apwilenga navyavivulu vya kulinangula. Lola lumwe atondelenga kwecha. Wunonyi ashinganyekelenga Hali wuze muka kutukisa jindeke nawuze muka kwasa ngunja muze mumikanda. Nge vakiko kecheleko.
+Magozwe aputukile shikola kaha yapwile yayikalu. Apwilenga navyavivulu vyakulinangula. Lwola lumwe atondele kwecha. Oloze ashinganyekele uze nyamutekenya wajindeke nauze mukakwasa ngunja muze mumikanda yamijimbu. Nge mwavakhiko, ngocho kecheleko.
 
 ##
-Magozwe atwamine musenge yazuvo yapwile na kasongwa ka mafo amatamba, nakutanga mukanda wamijimbu kufuma kushikola. Tomasi ejile shikaho atwamine kwakamwihi nayikiye. “Mujimbu kana wakuhanjika haka?” Tomasi ahulishile. “Wuli nakuhanjika Hali mwana lunga ejile Kupwa tangishi,” Magozwe akumbulwile. “Lijina lya owu mwana pwevo yikiye hiya?” Tomasi ahulishile. “Lijina lyenyi yikiye Magozwe,” Magozwe ahanjikile nakukemwina.
+Magozwe atwamine musenge muweluka kuze kuzuvo yakasongwa kamafwo-amatamba, nakutanga mukanda wamijimbu kufuma kushikola. Thomas ejile nakutwama kwakulihata nayikhiye. Thomas amuhulishile ngwenyi, "Mujimbu uli haka?" Magozwe akumbulwile ngwenyi, "Uli hali mwanalunga napu mulongeshi." Thomas ahulishile ngwenyi, "Lijina lyou mwanalunga ikhiye hiya?" Magozwe ahanjikile nakumwemweta ngwenyi, "Lijina lyenyi ikhiye Magozwe."
 
 ##
 * License: [CC-BY]

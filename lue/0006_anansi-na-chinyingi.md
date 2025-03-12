@@ -1,26 +1,26 @@
-# Anansi na Wisdom
+# Anansi na Chinyingi
 
 ##
-makumbi akunyima vathu kavejivile vili vyosenako. kavejivile mwakutumbila jimbutoko, chipwe mwakupangila vitwa. kalunga wumundende Nyame atwama mwilu apwile na mangana alifuchi. alilamine kanawa mu deho ya ndambo.
+Makumbi akunyima vathu kavejivile chuma numba chimweko. Kavejivile mwakutumbila vimbuto, chipwe mwakutungila mahina, chipwe mwakusongela vitwa vyavikungoko. Kalunga walijina lya Nyame mwilu apwile nachinyingi chakaye. Achilamine kanawa mundeho yaunonga.
 
 ##
-Likumbi limwe, Nyame asakwile kuhana deho yakashishi kuli Anansi. Lola losena Anansi atalile mudeho yandambo, atangile vimwe vyavihya. chapwile chakuwahilila chikuma!
+Likumbi limwe, Nyame ashinganyekele kuhana ize ndeho yachinyingi kuli Anansi. Lwola lwosena Anansi atalile muze mundeho yaunonga, alinangwilemo vimwe vyavihya. Echi chamusuulwishile chikuma kumuchima!
 
 ##
-Anansi wawuminyi ashinganyekele, nangulama ndeho kanawa hakasongwa kamutondo wawusuku. Kaha yose nayipwa yami! atongele wusanga wawusuku, nayijinguluka deho ya ndambo, kaha cheka kuyikasa kujimo lyenyi. Aputukile kunyina mutondo. wunonyi chapwile chachikalu kunyina mutondo na ndeho kumukunyanga hamambuli lola losena.
+Anansi wakuzuzuka ashinganyekele, "Nangulamina ize ndeho helu lyamutondo wausuku. Kaha yose nayipwa yami ukhawami! Ahosele lungoji lwalusuku, nakulujingulwisa haze handeho yaunonga, nakuyikashilila kujimo lyenyi. Aputukile kunyina kuze kumutondo. Oloze chapwile chachikalu kunyina kumutondo shimbu ize ndeho ili nakumuveta hamambuli lwola lwosena.
 
 ##
-lola losena mwana walunga wa Anansi apwilenga nakutwama mwishi yamutondo nakutamba. Ahanjikile, "nachipwa chachashi nge mukasa ndeho kunyima yove?" Anansi esekele kukasa ndeho yakashishi kunyima yenyi, kaha vene chapwile chachashi chikuma.
+Lwola lwosena mwana Anansi walunga emanyine mwishi yamutondo nakutala. Ambile ngwenyi, "Khumana kachechi kukuhashiwilako nge mukashilila ize ndeho kunyima yove?" Anansi esekele kukashilila ize ndeho yakuzala nachinyingi kunyima yenyi, kaha chachili vene chapwile chachashi chikuma.
 
 ##
-Chakuhona kwenyeka lola ahetele helu lya mutondo. wunonyi echele nakushinganyeka, "yami ngwatelanga kupwa nakashishi kosena, aha wunonyi mwanami apwanga wukuzangama kuhambakana yami!" Anansi asulakanyine chikuma hachize ashile deho ya ndambo hamavu kufuma kumutondo.
+Mulwola lwalundende tuthu ahetele helu lyamutondo. Oloze emanyine nakushinganyeka, "Ami yami ngwatelanga kupwa nachinyingi chosena, oloze aha mwanami nazangama kunguhambakana ami!" Anansi apihililile chikuma kaha ambilile ize ndeho yaunonga hamavu kufuma kuze kumutondo.
 
 ##
-Yapazukile muvihanda hamavu. kashishi kapwilenga ka wana kuli wosena nakulipangila. hakiko vatu valilongesele kulima, kupanga vyakuvwala, kupanga vitwa vya vikungo, navyosena vatu vejiva kulinga.
+Yapazukile muvihanda haze hamavu. Chinyingi jino chambwambumukile nakuya kuli khala muthu. Hakhiko jino vathu valilongesele kulima, kutunga mahina, kutunga vitwa vyavikungo, navyosena vathu vejiva kulinga.
 
 ##
 * License: [CC-BY]
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

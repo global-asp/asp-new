@@ -1,19 +1,19 @@
-# Tuvali
+# Avali
 
 ##
-Mavoko avali amandende nakukwata.
+Tumavoko tuvali twakukwachisa.
 
 ##
-Vipamba avali yayindende nakupanta.
+Tuvipundo tuvali twakwashisa.
 
 ##
-Meso Avali amandende nakumona.
+Tumeso tuvali twakumwenesa.
 
 ##
-Matwitwi avali amandende nakwivwa.
+Tumatwitwi tuvali twakwivwisa.
 
 ##
-Kaha Cheka mavoko azangi amandende nakukumbachila.
+Natumavoko twamwaza tuvali twakulikwachisa mukasamba.
 
 ##
 * License: [CC-BY-NC]

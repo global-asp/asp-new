@@ -1,44 +1,44 @@
-# Kasumbi na chingolongochi
+# Kasumbi na Chingolongochi
 
 ##
-kasumbi na chingolongochi vapwile ma sepa. wunonyi vapwilenga nakulyeseka wumwe namukwavo. likumbi limwe vasakwile kuta ngunja nakumona hiya ejiva chikuma.
+Kasumbi na Chingolongochi vapwile masepa. Oloze vapwilenga nakulipecha umwe namukwavo. Likumbi limwe vasakwile kuhema ngunja nakumona hiya ejiva chikuma kuhambakana.
 
 ##
-Vayile kwakwashila nguja nakuputuka kwasa. Kasumbi apwilenga nakutambukisa, wunonyi chingolongochi apwilenga nakutambukisa chikuma. kusumbi apanchile kwakusuku, wunonyi chingolongochi apanchile kwakusuku chikuma. Kasumbi aputukile kwivwa kulihona.
+Vayile kuchivaza changunja nakuputuka kwasa. Kasumbi apwile nalumbushi, oloze Chingolongochi ahambakanyine. Kasumbi ashile ngunja kwakusuku, oloze Chingolongochi ayashile hahasuku kuhambakana. Kasumbi aputukile kwivwa kupihya kumuchima.
 
 ##
-Vasakwile kuteya ma penoti. Chingolongochi akwachile chakavanga kaha kasumbi engishile kaha kamwe. shikaho yapwilenga lola lwa kasumbi kukinga mwakwingishila ngunja.
+Valivwasanyine kwasa jipenoti. Chingolongochi ikhiye alivangile kupwa mungolo. Kaha Kasumbi engishile ngunja imwe kaha. Shikaho lwapwile jino lwola lwa Kasumbi kupwa mungolo.
 
 ##
-Chingolongochi ashile ngunja nakwingisa . chingolongochi ashile chindende ngunja nakwingisa . chingolongochi engishile ngunja katanu.
+Chingolongochi ashile ngunja nakwingisa. Chingolongochi ahichishile ngunja nakwingisa. Chingolongochi ashile namutwe nakwingisa. Chingolongochi engishile jingunja jitanu.
 
 ##
-kasumbi apihililile momo alujile. apwilenga muka kuluza wamupi. chingolongochi aputukile kusehya momo sepa lyenyi asulakanyine.
+Kasumbi apihililile hakuluza. Alujile mwamunene. Chingolongochi aputukile kuseha mwomwo sepa lyenyi asulakanyine.
 
 ##
-kasumbi asulakanyine kaha wunonyi asokolwele muvumbo wenyi nakumina chingolongochi.
+Hakupihilila changana Kasumbi asokolwele muvumbo wenyi nakumina Chingolongochi.
 
 ##
-Omu kasumbi apwile nakuya kwimbo, awanyine mama ya chingolongochi. mama yachingolongochi ahulishile, "wamonoko mwanami?" kasumbi kahanjikile vili vyosenako. mama ya chingolongochi alizakaminyine chikuma.
+Omu apwile Kasumbi nakuya kwimbo, aliwanyine nanaye ya Chingolongochi. Naye ya Chingolongochi ahulishile, "Unamonoko mwanami?" Kasumbi kahanjikileho numba chimweko. Naye ya Chingolongochi alizakaminyine.
 
 ##
-kaha mama yachingolongochi evwile ka lizu kakandende."Ngukafwe mama!" lizu lyalilile. mama ya chingolongochi atalile hosena nakwivwilila kanawa mukuwunda. lizu lya fumine mu lijimo lya kasumbi.
+Kaha naye ya Chingolongochi evwile kalizu kakandende, "Ngukafwe mama!" Naye ya Chingolongochi atalile oku noku nakwivwilila kanawa. Lizu lyafuminyine mukachi ka Kasumbi.
 
 ##
-mama yachingolongochi atambakanyine, "zachisa ngolo jove mwanami!" chingolongochi nahase kupanga livumba lyalipi na chipepa chachapi. kasumbi aputukile kwivwa kuviza.
+Naye ya Chingolongochi atambakanyine, "Zachisa ngolo jove ove mwanami!" Chingolongochi nahase kufumisa livumba lyalipi nachipepa chachipi. Kasumbi aputukile kuviza.
 
 ##
-kasumbi asajile. kaha aminyine and namukolomeno. kaha achuhwile naku kohola. chingolongochi apihile chikuma!
+Kasumbi atawile, kaha aminyine nakufwiza. Kaha achehwile nakukohola. Chingolongochi evwikile vyekha kaha!
 
 ##
-kasumbi akohwele nomu akohwele chingolongochi apwilenga mulijimo lyenyi. mama ya chingolongochi vanyinyile kumutondo nakuswama.
+Kasumbi akohwele nomu uze Chingolongochi apwile mujimo lyenyi alovokele. Naye namwana Chingolongochi vanyinyile kumutondo nakuswama.
 
 ##
-kufuma lize likumbi, tusumbi na vingolongochi vali jinda.
+Kufuma lize likumbi, tusumbi navingolongochi vapwa vakakhole.
 
 ##
 * License: [CC-BY]
 * Text: Winny Asara
 * Illustration: Magriet Brink
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

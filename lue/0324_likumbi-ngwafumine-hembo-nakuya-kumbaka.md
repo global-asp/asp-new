@@ -1,56 +1,56 @@
-# Likumbi ngwafumine hembo kuya ku mbaka.
+# Likumbi ngwafumine hembo nakuya kumbaka
 
 ##
-Hawimanyino wawundende wama basi mu mbongi yami Mwapwilenga mwakukashika na vatu kaha cheka mwazalile nama basi. hamavu hapwilenga vyuma vyavivulu vyakulonga. Tuponya vatambakanyinenga oku kwayilenga ma basi.
+Hawimanyino wajisacha mwimbo lyami halihomene vathu najisacha jakuzala. Hamavu hapwilenga vyuma vyavivulu vyakuvandamina kulongejeka. Mitoloki vapwile nakutambakana kwapwile nakuya jisacha javo.
 
 ##
-"mbaka!mbaka! kuya kumulawuko!" ngevwile kaponya kupunda. yize yikiko basi ngwatondanga kuya nayo.
+Ngwevwile mutoloki ali nakutambakana, "Mbaka! Mbaka! Yakuya kumulauko!" Ize ikhiko Sacha ngwatondele kukandama.
 
 ##
-Basi yaku mbaka yazalile, wunonyi vatu vavavulu vatwalilileho kulishinjika kwingila mukachi. vamwe valongejekele vitelo vyavo mwishi ya motoko. vamwe vahakile mukachi kamotoka.
+Sacha yakuya kumbaka yapwile kwakamwihi nakuzala, oloze vathu vavavulu vapwile nakulishinjika kutonda kwingila mukachi. Vamwe valongejekele viteli vyavo mwishi yasacha. Vekha vahakile vyavo hakhelulu jamukachi kasacha.
 
 ##
-Vatu vapwile hawungeji vakwachile mapepa avo aku basi hamwe omu vatondelenga kwa kutwamina mu basi mwazalile vatu. mapwevo navana vatwamina kanawa hawungeji wawusuku.
+Vaze vapwile nakwingila musacha vakwachile matiketi avo chosena vatondele hakutwamina muze musacha mwazalile navathu. Maphwevo navana vatwamishile kanawa haungeji wavo wausuku uze.
 
 ##
-ngwalifwachikile kwakamwihi na janena, mutu atwamine kwakamwihi Nayami akwachishile ku lipepa lenyi lyakumbachila lya mafo amatamba. avwalile ma sanda amyaka, avwalile chamashika chakufwa shikaho asolekele kulizakamina.
+Ngwalichinyinyikile kwakamwihi nanjanena. Muthu atwamine kwakamwihi nayami akwachishile kungonga yenyi yandundu yamafwo-amatamba. Avwalile jisambalakata jamwaka, chashi chamwaka chakufwa kaha asolekele kupwa nawoma.
 
 ##
-Ngwatalile haweluka wa basi shikaho ngwashinganyekele vene ngwamimi ngwakuseza limbo lyami, limbo ngwakolela. ngwapwilenga nakuya kumbaka.
+Ngwatalile haweluka wasacha nakwanuka ngwami ngwapwile nakuseza limbo lyami, limbo ngwakolelelemo. Ngwapwile nakuya kumbaka yayinene.
 
 ##
-Kulonga kwakumine kaha nawa vatu vosena vapwilenga hawungeji vatwamine. vakakulanjisa chochimwe vengilile mumotoka nakulanjisa vyuma ku vatu vapwile hawungeji. vosena vapwilenga nakutambakana ovyo vapwilenga nakulanjisa. mazu evwakanyine akusehesa kuli yami.
+Kulongejeka kwakumine kaha nawa vosena vapwilenga musacha vatwamine. Vakakulanjisa vatwalilileho kulichichimika musacha nakulanjisa vyuma vyavo. Vosena vapwilenga nakutambakana kukulisa vize vapwilenga nakulanjisa. Mazu evwikile apwile akusehesa kuli yami.
 
 ##
-Vahawungeji vavandende valanjile vyakunwisa, vakwavo valanjile vyakulya vyavindende nakuputuka kutafunya. vaze kavapwile najimbongoko ngeyami, vatambile kaha.
+Vamwe valanjile vyakunwa, vakwavo valanjile vyakulya vyamweseke nakuputuka kutafunya. Vaze kavapwile najimbongoko nge yami, twatalileko kaha.
 
 ##
-Evi visekashano vyakulanjisa vaviluwanganyishile kuli kulila chamotoko, chinjikijilo cha kusolola ngwavo vanaliwahisa nakuya. Kaponya alwekele vakakulanjisa kufuma mumotoka.
+Evi vikilikita vyakulanjisa vaviluwanganyishile kukusopesa chasacha, chinjikizo chakusolola ngwavo vanaliwahisa nakuya. Mutoloki wajisacha alwezele vakakulanjisa kufuma muminyau.
 
 ##
-Vakakulanjisa valishinjikile mangana vafume mu basi. vakwavo vahanyine jichenji kuli vatu vapwile hawungeji. vakwavo vesekele kulanjisa mu lola lwamakumishilo.
+Vakakulanjisa valishinjikile mangana vafume musacha. Vakwavo vahanyine jichenji kuli venyajo. Vakwavo vesekele kulanjisa muze vene mulwola lwamakumishilo.
 
 ##
-Omu basi yafumine hakusulukila vatu, ngwa nonokele ha njanena. ngwalikomokelelele nge nakahiluka cheka kwimbo.
+Omu sacha yasunukile, ngwanonokele hanjanena. Ngwalihulishile nge nangukeza kukahiluka cheka kwimbo.
 
 ##
-Omu wungeji watwalileho, mukachi ka motoka mwazumine. ngwasokele meso ami kushinganyeka nangusavala.
+Omu ungeji watwalileho, mukachi kasacha mwazumine. Ngwasokele meso ami kutonda kusavala.
 
 ##
-Wunonyi mangana ami aselumukile kuya kwimbo. mama yami mwapa kanawa? vambwanda vami navawanako mbongo? ushe vayayami navanuka kwichilila mbuto yamitondo yami?
+Oloze vishinganyeka vyapwile kwimbo. Mama ali kanawa? Vambwanda jami navaneha nganyo? Songo yami mwanuka kuthukumwina jimbuto jamitondo yami?
 
 ##
-Hakuya mujila, ngwalilongesele lijina lya ngalila yava natu oku vechi kutwamanga mumbaka. ngwapwilenga nakumamachila omu ngwahezumukile mutulo.
+Hakuya mujila, ngwalamine mumutwe lijina lyangalila atwaminengako nathu muze mumbaka yayinene. Ngwapwilenga nakuyivuluka likha chosena ngwalezukilile mutulo.
 
 ##
-omu mwahichile shimbu, ngwahindukile na chongo kwivwa mitambi yakusanyika vatu vali hawungeji kukinduluka kwimbo. ngwanonele ka chola kami kakandende nakufumamo mumotoka.
+Omu mwahichile shimbu, ngwahindukile navyema vyakusanyika vathu vapwile nakukinduluka kwimbo. Ngwanonele kangonga kami nakufuma muze musacha.
 
 ##
-Basi yapwilenga nakuhiluka yazalilenga washi, kalinomu nayikinduluka. Chachilemu chikuma chasaleko hiku tonda zuvo yava natu.
+Sacha yakuhiluka yapwilenga nakuzala washi, kalinwomu nayikinduluka. Chachilemu chikuma chasalileko kuli yami jino chapwile kutonda zuvo yanathu.
 
 ##
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

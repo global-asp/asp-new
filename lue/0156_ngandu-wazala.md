@@ -1,19 +1,19 @@
-# Ngandu wazala
+# Ngandu Wazala
 
 ##
-Lola lumwe kupwile ngandu wazala.
+Lwola lumwe kwapwile ngandu wazala chikuma.
 
 ##
-Atondele vyakulya chindende chindende kaha cheka muwuholela. Kaha nawa....
+Atondele vyakulya chindende chindende kaha nawa muuholela. Kukasumuka ...
 
 ##
-OW!!! ngandu nakamata!
+Ngo!!! Ngandu nakamata!
 
 ##
-Halutwe lwa chize keshi cheka nazalako, kaha nawahilila.
+Kufuma haze kechi cheka nazalako, kaha nawahilila.
 
 ##
-Kuvanga apwenga na zala cheka.
+Nomu mwapwa nazala cheka.
 
 ##
 * License: [CC-BY]

@@ -1,34 +1,34 @@
-# Makonde avakaka wapwevo
+# Makonde akhaka
 
 ##
-wande wa kaka wapwevo wapwile kanawa, wazalile namasangu, nalupa na masa. wunonyi chamwazaho chikuma apwile makonde. chipwe kakawapwevo apwile na vezukulu vavavulu, ngwejivile chakusweka ngwami yami azangile chikuma. Angusanyikilenga chikuma kuzuvo yenyi. Angulwekelenga visweko. wunonyi kwapwile chiseko chimwe kangulwekeleko, oku apwilenga nakufuchika makonde.
+Wande wakhaka waphwevo wapwile wamwaza, wakuzala namasa, masangu nalupa. Oloze vyawahileho chikuma vyapwile makonde. Chipwe tuhu khaka apwile navazukulu vavavulu, ngwejivile mumuchima wami ngwami ami yami azangileho chikuma. Angusanyikilenga kakavulu kuzuvo yenyi. Kaha nawa angulwezelenga tuvyuma tumwe twakuswama. Oloze kwapwile chimwe kangulwezeleko: okwo apwilenga nakufuchika makonde.
 
 ##
-Likumbi limwe ngwamwene bango yayinene vanayitumbika hamusana haweluka ya zuvo ya kaka wapwevo. omu ngwahulishile ovyo vatondelenga kuyilingisa, chikumbwililo vanguhanyine chapwile kaha ngwavo, "hi mbango yami ya kafuta." kwakamwihi na mbango, kwapwile mafo amakonde amavulu ovyo kaka wapwevo atumbikilenga ngonde na ngonde. Ngwahonene kutachikiza. "awa mafo aka, kakapwevo?" ngwahulishile. chikumbwililo ngwambachile chapwile kaha, " hi mafo ami akafuta."
+Likumbi limwe ngwamwene mbango yayinene vanayitumbika hamusana haweluka wazuvo yakhaka. Omu ngwahulishile ovyo ayilingishilenga, kukumbulula chapwile, "Yapwa mbango yami yakafuta." Kwakamwihi nayize mbango kwapwile mafwo amakonde amavulu aze khaka alumwinenga mwamundende mwamundende. Ngwasakile nguthachikize. Ngwahulishile ngwami, "Nyi awa mafwo aka, khaka?" Kukumbulula chafumineko chapwile, "Himafwo ami akafuta."
 
 ##
-chapwile chamwaza chikuma kutamba kakawami wapwevo, makonde, mafo amakonde na mbango yayinene. wunonyi kakawami wapwevo anguhilwishile hawungeji wakuhona kutachikiza. "kakapwevo ngwasakwila ngwechenu ngu tambe omu namuwahisanga....." "kanda mupwa na jipamiko, mwana, linga vene nge omu vanakulweke," ahilukilileho. Ngwaputukileko lumbushi.
+Chapwile chamwaza chikuma kumona khaka, makonde, mafwo amakonde nayize mbango yayinene. Oloze khaka angutumine kuli mama. "Khaka ngunasakwila ngwechenu ngumone omu namuwahisanga..." Ahilukilileho ngwenyi, "Kanda kupwanga najiphami nganako, ove mwana, linga nge omu vanakulweze," Ngwaputukileko lumbushi.
 
 ##
-Omu ngwa kindulukile, kakapwevo atwamine kaha haweluka wunonyi chakuhona mbango chipwe makonde. "kakapwevo, mbango yili kulihi, makonde osena alikulihi, kulihi....."wunonyi kumbulwilo ngwatambwile yapwile, "ali muchiseko chami chakafuta." chapwile chakukomowesa nakuhonesa mangana!
+Omu ngwahilukile, khaka atwamine haweluka oloze chakuhona ize mbango chipwe aze makonde. Ngwamuhulishile, "Khaka, mbango ili kulihi, makonde osena ali kulihi, kulihi..." Oloze kumbulwilo ngwatambwile yapwile, "Ali muchisete chami chakafuta." Changunehelele nauvwa!
 
 ##
-Halutwe lwa makumbi avali, kakapwevo angutumine kuya nakumumbachila mukombo wenyi muze muka peka mwakusavalila. chindende omu ngwasokolwele kahela, vangutambukishilile kuli livumba lyalipi lyama konde aze anakuhya. muka pete kamukachi mwapwilenga mbango yakafuta ka kaka. yapwilenga yakusweka kanawa kulipayi lyamwaka. ngwalizundwile nakulinuka lize livumba lyamwaza.
+Omu mwahichile makumbi avali, khaka angutumine kumunehela mukombo wenyi muze mukapete kenyi kakusavalila. Yayize sokololo kuchikolo, vangutambwokesele kulivumba lyamakonde akuhya. Mukachi kazuvo mwapwile ize mbango yakhaka yayinene yakafuta. Yapwilenga yakusweka kanawa nalipayi lyamwaka. Ngwalyehwile nakuhumbilila uze upengo-pengo.
 
 ##
-Lizu lya kakawami wapwevo lyangukashimwishile omu asanyikile, "wakulinga yika? zangwisako ngunehele mukombo."ngwazangwishile namukombo wenyi. "wakumwemweta yika?" kakapwevo ahulishile. chihuliso chalingile ngwanuke ngwami ngwapwanga lika nakukemwina ha kuwana chisweko chakafuta.
+Lizu lyakhaka lyangukasumwine omu asanyikile, "Uli nakulinga ika? Zanguwisako ngunehele mukombo." Ngwazanguwishile namukombo wenyi. Khaka ahulishile, "Uli nakumwemweta ika?" Chihula chenyi chalingile ngwanuke ngwami ngwapwile likha nakumwemweta hakuwana chiswamo chenyi chakafuta.
 
 ##
-Likumbi lya kavanga omu kakapwevo ejile nakutala mama, ngwatuchilile kuzuvo nakutala makonde cheka. mwapwilenga mususu wa makonde akuhya lyehi. ngwanonele yimwe nakusweka mumukanji wami. halutwe lwakufwika mbango cheka, ngwayile kunyima ya zuvo nakulya lumbushi. lyapwilenga likonde lize kanda ngutopengaho lyehi.
+Likumbi lyachako omu khaka ejile nakutala mama, ngwathuchilile kuzuvo yenyi ngwami ngukatale cheka aze makonde. Kwapwilenga mususu wamakonde akuhya chikuma. Ngwanoneleko limwe nakulisweka mukhanji yami. Kukumisa kufwika kuze kumbango cheka, ngwayile kunyima yazuvo nakulilya washi. Lyapwile likonde lyakuyema chize kanda ngwivwengangaho lyehi.
 
 ##
-Likumbi lya kavanga, omu kakapwevo apwilenga muwande kumbata mafo, ngwawombolokele nakuya nakunonoka hamakonde. osena apwile kwakamwihi nakuhya. kangwahandamineko ngwanonele makonde awana. omu ngwapwile nakushinganyeka mutu kwingila, ngwevwile kakapwevo kukohola haweluka. Ngwahashile kaha kusweka makonde mwishi ya mukanji wami nakuvahita.
+Likumbi lyachako, shimbu khaka apwile mulithepa nakuhela mafwo, ngwavombokelelemo nakunonoka hamakonde. Amavulu apwile akuhya. Ngwasutwileko makonde awana. Omu ngwapwile nakuya chindende chindende kuchikolo, ngwevwile khaka mwakohola haweluka. Ngwakumishile kusweka makonde mukhanji yami nakuhita kuze apwile.
 
 ##
-Likumbi lya shishileho lyapwile lya kulanjisa. kakapwevo ahindukile washi. ambachilenga kaha makonde akuhya na lupa mangana alanjise. kangwazangwishile kuya nakumutala lize likumbiko. wunonyi kangwa hashile kumusosolola hakashimbu kakasukuko.
+Likumbi lyashishilemo lyapwile lyakulanda nakulanjisa hamaliketi. Khaka ahindukile chimenemene. Kakavulu ambachilenga makonde akuhya nalupa lwakulanjisa kumaliketi. Kangwanguhwishile kuya nakumutala lize likumbi khanako. Oloze kangwahashile kuhona kumumona hashimbu yayisukuko.
 
 ##
-Halutwe lwa chize chingoloshi vangusanyikile kuli vamama nava tata yami, nava kakapwevo. Ngwejivile ovyo vangusanyikililile. lize likumbi omu ngwasavalile, ngwejivile ngwami kangwechi kevako cheka, keshi kuli vakakapwevo, keshi kuli visemi jami kaha cheka keshi kuli wuli wosenako.
+Lwola lwekha kuchingoloshi vangusanyikile kuli mama natata, nakhaka. Ngwejivile mwomwo ika. Uze ufuku omu ngwasavalile, ngwejivile ngwami kangwechi kukevaho chekako, kechi kwivila khakako, kechi kwivila visemi jami chipwe khala muthuko.
 
 ##
 * License: [CC-BY]

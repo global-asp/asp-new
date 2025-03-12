@@ -1,28 +1,28 @@
 # Kuteleka
 
 ##
-Ngwechi kusonga jitamba
+Nangusonga jithamba.
 
 ##
-Ngwechi kuvatula kabeji
+Nanguteta kavichi.
 
 ##
-Ngwechi kukwala ma kaloti.
+Nanguchika jikaloti.
 
 ##
-Ngwechi kukosa makunde.
+Nangukosa makunde.
 
 ##
-Ngwechi kuvatula chelu
+Nanguvatula lichipa.
 
 ##
-Ngwechi kuteta mafo.
+Nanguteta mafwo.
 
 ##
-Mama yami echi kuteta sapola.
+Mama mwateta sapola.
 
 ##
-Sapola yechi kungulilisa nge vanayivatula.
+Sapola jeji kungulilisa nge vanajivatula.
 
 ##
 * License: [CC-BY-NC]

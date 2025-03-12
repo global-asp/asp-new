@@ -1,25 +1,25 @@
-# Songoyami walunga wakukatala
+# Songoyami walunga wauvwa
 
 ##
-Ngwahindukanga nakuhwika kahya.
+Ngwahinduka nakuwika kahya.
 
 ##
-Ngwechi kuteleka meya.
+Ngweji kuzumisa meya.
 
 ##
-Ngwechi kuvatula jikunyi.
+Ngweji kuteta jikhunyi.
 
 ##
-Ngwechi kusunga mundeho
+Ngweji kusunganga mundeho.
 
 ##
-Ngwechi kukomba hamavu
+Ngweji kukombanga hamavu.
 
 ##
-Ngwechi kukosa malonga.
+Ngweji kukosanga malonga.
 
 ##
-Momo yika ngwechi kazatanga nangolo........nge yayami walunga alikaha ki nakuhema?
+Ika nanguzachila nangolo ngana... ... Shimbunyi ndumbwami walunga mwalihemena kwenyi?
 
 ##
 * License: [CC-BY-NC]

@@ -4,25 +4,25 @@
 Ngwazanga kutanga.
 
 ##
-Ngutangile hiya?
+Hiya nangutangila?
 
 ##
-Yayami wapwevo nasavala.
+Mdumbwami waphwevo nasavala.
 
 ##
-Ngutangile hiya?
+Hiya nangutangila?
 
 ##
-Mama yami na kakayami wapwevo vanakashika.
+Mama nakhaka waphwevo vanazezama namilimo.
 
 ##
-Ngutangile hiyaze?
+Hiya nangutangila?
 
 ##
-Tata yami na kakayami walunga vanakashika.
+Tata nakhaka walunga vanazezama.
 
 ##
-Nangutangila hiya? ngunahase kulitangila!
+Hiya nangutangila, nangulitangila ami yavene!
 
 ##
 * License: [CC-BY]

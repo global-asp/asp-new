@@ -1,28 +1,28 @@
-# Alikulihi pusi wami?
+# Kangatwe kami ali kulihi?
 
 ##
-Alikulihi pusi wami?
+Kangatwe kami ali kulihi?
 
 ##
-Chili mwishi yakahela?
+Ali mwishi yakahela tahi?
 
 ##
-Chili helu lya mesa yamalonga tahi?
+Ali helu lyachisweko tahi?
 
 ##
-Chilikunyima yachitwamo tahi?
+Ali kunyima yachitwamo tahi?
 
 ##
-Chili kwakamwihi nacha kumbilila majilo tahi?
+Ali kwakamwihi nakwakumbilila swali tahi?
 
 ##
-Chilimukachi ka chitenga tahi?
+Ali mukachi kachizuma tahi?
 
 ##
-Chili haweluka ya zuvo inyi tahi?
+Ali haweluka wazuvo tahi?
 
 ##
-Echi hano!
+Ou ali kuno!
 
 ##
 * License: [CC-BY-NC]

@@ -1,37 +1,37 @@
-# Tingi nava ngombe
+# Tingi navangombe
 
 ##
-Tingi atwamine nava kaka yenyi vapwevo.
+Tingi atwamine nakhaka yenyi waphwevo.
 
 ##
-Apwilenga nakulama vangombe hamwe nava kaka yenyi vapwevo.
+Apwilenga nakulama vangombe hamwe nakhaka yenyi waphwevo.
 
 ##
-Likumbi limwe mashilika vejile.
+Likumbi limwe maswalale vejile.
 
 ##
-Vambachile vangombe nakuya nabo.
+Vambachile vangombe nakuya navo.
 
 ##
-Tingi nava kaka yenyi wapwevo vatuchile nakuswama.
+Tingi nakhaka yenyi waphwevo vachinyine nakuswama.
 
 ##
-Vaswamine mumusenge kuheta naku wufuku.
+Vaswamine mumusenge kuheta nakuufuku.
 
 ##
-Kaha mashilika vejile cheka.
+Kaha maswalale vejile cheka.
 
 ##
-Kaka yenyi wapwevo aswekele Tingi mwishi ya mafo.
+Khaka yenyi waphwevo aswekele Tingi kwishi ya mafwo.
 
 ##
-Shikaho mushilika wumwe ahakile lihinji hali Tingi wunonyi aholele.
+Liswalale umwe amulyachile lihinji oloze Tingi aholele kulu.
 
 ##
-Omu kwapwile kanawa, Tingi na kaka yenyi wapwevo vafumine omu vaswamine.
+Omu valingile vaze maswalale vanayi, Tingi nakhaka yenyi vafumine haze vaswamine.
 
 ##
-Vendele chindende chindende muwuholelo kuya kwimbo.
+Vatambukile chindende chindende muuholela nakuya kwimbo.
 
 ##
 * License: [CC-BY]

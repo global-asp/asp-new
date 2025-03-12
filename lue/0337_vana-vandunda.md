@@ -1,37 +1,37 @@
-# Vana va ndunda
+# Vana vandunda
 
 ##
-Lola lumwe, kwatwamine chisaka chakuwahilila.
+Lwola lumwe, vathu vatwaminenga mukuwahilila muthanga yavo.
 
 ##
-Kavazungile wumwe namukwavoko. vakafwile visemi javo hembo nakumande.
+Kavazungilengako. Vakafwile visemi javo hembo nakumande.
 
 ##
-Wunonyi kavavetavijile kuya kakwamwihi nakakahyako.
+Oloze kavavetavijile kuya kwakamwihi nakakahyako.
 
 ##
-Shikaho vazachilenga milimo yavo nawufuko kaha. momo vapwile vakupangisa ndunda.
+Shikaho vazachilenga milimo yavo naufuko kaha. Mwomwo vapwile vakutungisa nandunda.
 
 ##
-Unonyi mwana lunga wumwe asakwile kuya hamusana.
+Oloze mwana umwe hakachi kavaze vamalunga asakile kuya mumusana.
 
 ##
-Likumbi limwe kusakisa kuya hamusana chakolele chikuma. vayayenyi vamulwekele nkanda mwaya hamusanako.
+Likumbi limwe kusaka chenyi echi chahyanyine. Vayayenyi vamulwezele kanda mwaya mumusanako.
 
 ##
-Wunonyi lola lwahichile! mwana lunga ayengunukile mumu sana wuzuma.
+Oloze echi chapwile kulishina! Ayengunukile muze mumusana uzuma.
 
 ##
-Vana va ndunda vapihilile chikuma hakumona songo yavo walunga kuyengunuka.
+Vaze vana vandunda vapihilile chikuma hakumona ndumbwavo mwayengunuka.
 
 ##
-Wunonyi vashinganyekele vyakulinga. vapangile ndunda yayengunukile muli kajila.
+Oloze vashinganyekele mwakulinga. Vambachile ize ndunda nakuumba kajila.
 
 ##
-Vatwalile yayavo wakajila kuma pili.
+Vatwalile kajila kandumbwavo helu lyaphili.
 
 ##
-Omu musana wejile. ambululukile nakwimba mumu sana wachimene.
+Omu likumbi lyazundukile, atukile nakuya nakwimba muze mumusana wachimene.
 
 ##
 * License: [CC-BY]

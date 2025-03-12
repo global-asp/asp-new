@@ -1,28 +1,28 @@
-# Wakulinga yika?
+# Uli nakulinga ika?
 
 ##
-Ngwakwimba.
+Nguli nakwimba.
 
 ##
-Wapwevo naku bayibisa.
+Ali nakunyengesa livoko.
 
 ##
-Ngwakusakwilila.
+Nguli nakusakwila.
 
 ##
-Wapwevo nakulyolola.
+Ali nakulyolola.
 
 ##
-Walunga nakusanyika.
+Ali nakusanyika.
 
 ##
-Ngwakwitava.
+Nguli nakukumbulula.
 
 ##
-Wapwevo nakwivwilila.
+Ali nakwivwilila.
 
 ##
-Wakulinga yika?
+Uli nakulinga ika?
 
 ##
 * License: [CC-BY]

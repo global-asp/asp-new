@@ -4,25 +4,25 @@
 Tala tunyama.
 
 ##
-Ngombe echi kuhanjika, "Mooo."
+Ngombe ngwenyi, "Mooo."
 
 ##
-Pembe echi kuhanjika, "Meh, meh."
+Phembe ngwenyi, "Mee mee."
 
 ##
-Mukoko echi kuhanjikanga "Neee."
+Kavalu ngwenyi, "Neee."
 
 ##
-Ngulu echi kuhanjikanga, "Nguuu nguu."
+Ngulu ngwenyi, "Nguuu nguu."
 
 ##
-Kasumbi echi kuhanjikanga, "Kokokokooo."
+Kasumbi ngwenyi, "Kokokokooo."
 
 ##
-Kawa echi kuhanjikanga, "Woo woo woo."
+Kawa ngwenyi, "Woo woo woo."
 
 ##
-Kulimi echi kuhanjikanga, "Shhh!"
+Njimi ngwenyi, "Shiii!"
 
 ##
 * License: [CC-BY-NC]

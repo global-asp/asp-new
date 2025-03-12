@@ -1,28 +1,28 @@
-# Vyakuvwala vyakushikola
+# Uvwalo wakushikola
 
 ##
-Owu mukanji wawusuku.
+Eyi khanji yayisuku.
 
 ##
-Echi chikovelo chamashika chachinene
+Eyi sweta yayinene.
 
 ##
-Echi chola chachinene
+Eyi ngonga yayinene.
 
 ##
-Owu mwiha wamumbunda wa...
+Ou muhya wamumbunda wa …
 
 ##
 Eli litepa lyalindende.
 
 ##
-Ma sokishi amehi.
+Eji jimenya jajihi.
 
 ##
-Unonyi awa masapato amahya.
+Oloze eji jisapato jajihya.
 
 ##
-... echi kuheta kanawa.
+... jinate kanawa.
 
 ##
 * License: [CC-BY-NC]

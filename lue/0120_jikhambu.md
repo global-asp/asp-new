@@ -1,28 +1,28 @@
-# Jikambu
+# Jikhambu
 
 ##
-Thuli ali najikambu jajihi.
+Thuli ali najikhambu jajihi.
 
 ##
-Anna ali najikambu jajisuku.
+Anna ali najikhambu jajisuku.
 
 ##
-Cathy ali najikambu jajisuku chikuma.
+Cathy ali najikhambu jajisuku kuhambakana.
 
 ##
-Zama navinjisa jikambu jenyi.
+Zama navinjisa jikhambu jenyi.
 
 ##
-Baba ali na wevu.
+Baba ali nawevu.
 
 ##
-Zanele nasakula jikambu jenyi
+Zanele nasakula jikhambu jenyi.
 
 ##
-Thabo navatula jikambu jenyi.
+Thabo navatula jikhambu jenyi.
 
 ##
-Themba natewula jikambu jenyi.
+Themba nateula jikhambu jenyi.
 
 ##
 * License: [CC-BY-NC]

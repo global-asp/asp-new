@@ -1,37 +1,37 @@
-# Chihwilwiso Chaka mukakukinga wuchi.
+# Linga mwalinga mukwenu yakatotaphako
 
 ##
-Owu mujimbu wa Ngende, mukakukinga wuchi, nakanyike walunga wawuminyi. Likumbi limwe omu Gingile apwilenga haweluka nakwanda yifo evwile mutambi wa Ngende. Kanwa ka gingile kaputukile kutukumwina havishinganyeka ka wuchi. Echele nakwivwilila mukuwunda, kutala tala nomu amwene kajila kumitayi helu lwamutwe wenyi. "Chitiki-chitiki-chitiki," kajila wamundende asusumwine, omu ambululukile kumutondo wukwavo, wukwavo Cheka. "Chitiki, chitiki, chitiki," asanyikile, kwimana lola ha Lola mangana ejivise ngwenyi Gingile akavangijile.
+Ou mujimbu wa Ngende, Katotaphako, nakanyike walunga wakuzuzuka walijina lya Ngingili. Likumbi limwe shimbu Ngingili apwile haweluka nakuyomba evwile mutambi wa Ngende. Kanwa ka Ngingili kaputukile kulizululukila lileji hakushinganyeka uchi. Emanyine nakwivwilila kanawa, kutala tala nomu amwene uze kajila mumithango helu lyamutwe wenyi. "Chitiki-chitiki-chitiki," uze kajila wamundende apalapachile, shimbu ambululukile kumutondo umwe, kuya kuukwavo, naukwavo. "Chitiki, chitiki, chitiki," asanyikile, kwimana mulwola hilwola nakumona ngwenyi Ngingili ali nakumukavangiza.
 
 ##
-Halutwe lwa Chihanda cha Lola lumwe, vahetele ha Mutondo wawunene. Ngende afwelelele le chakuhulamisa mitango. Shikaho atwamine ha mutango wumwe Nakulihwahishila mutwe wenyi Hali Gingile ngwengwavo kuhanjika, "Echi chilyaha! Twaya yinolola! Yika yinakukushimbwisa?" Gingile kamwene vapuka valivosenako mwishi yamutondo, wunonyi afwelelele Ngede.
+Omu mwahichile chimbwa chaola imwe, vahetele hamutondo mukuyu waunene wakulisokela. Ngende atumbwojokele nakusambwojoka haze hamithango. Awilile jino hamuthango umwe nakuzewila mutwe wenyi hali Ngilingili nge uze mwatonda kwamba ngwenyi, "Eji jili aha! Twaya jino! Ika inakuzezekesa?" Ngingili kahashile kumona vaphuka muze mwishi yauze mutondoko, oloze afwelelele Ngende.
 
 ##
-Shikaho Gingile ahakile muvu wenyi mwishi lyamutondo, ahakile hamwe tumitondo twakuma nakuwika kakahya kakandende. Omu kakahya kapwile nakuwema kanawa, ahakile Mutondo wawusuku mumuchima wa kakahya. Owu lukunyi valupangile mangana wupange wishi wawuvulu omu lwapwile nakuwema.aputukile kunyina, oku nakukwata Mutondo wa wishi mumazo enyi.
+Shikaho Ngingili ahakile likunga lyenyi mwishi yamutondo, akungulwile jithete jaumu nakuwika kalijiko. Omu kakahya kapwile nakuwema kanawa, ahakile mutondo wausuku waumu haze hakachi kakakahya. Elu lukhunyi lweji kulovola wishi wauvuvu nge luli nakuwema. Aputukile kunyina, oku nakwachilila kusongo ize yakuhola yauze mutondo wawishi namazo enyi.
 
 ##
-Chindende evwile chivumino chava puka. Vapwilenga nakwingila nakulovoka mupako mwa chisaka chavo. Omu Gingile ahetele kumulumba wa wavapuka ashinjikile songo yamungweji kwapwile mu pako. Vapuka vachinyinemo, vakusulakana. Vatukile kwakusuku mwomwo kavazangile wishiko. Wunonyi shimbu kanda kuchina vamusumine Gile!
+Chindende kaha, evwile chivumo chavaphuka. Vapwilenga nakwingila nakulovoka muphako yauze mutondo – ngoma yavo yauchi. Omu Ngingili ahetele kuze kungoma, ashinjikilile ize songo yamutondo yawishi muze muphako. Vaphuka valwasukilemo, nautenu. Vatukile nakufumamo mwomwo kavazangile wishiko – oloze oho ngocho vachinamusumu Ngingili!
 
 ##
-Omu vapuka vafuminemo, Gingile engishile Livoko lyenyi mu chisaka chavapuka. Afumishilemo ndunda, yapwilenga nakusotoka Wuchi. Ahakile ndunda kanawa mu chula shikaho ambachile hama fwiji enyi, aputukile kusuluka kumutondo.
+Omu vaphuka vafuminemo, Ngingili engishile livoko lyenyi muchisaka. Afumishilemo livoko mbe-e, mwamuze nalisotoka nauchi. Ahakile chithana kanawa muchula ambachilile hamafwiji enyi, nakuputuka kusuluka kuze kumutondo.
 
 ##
-Ngede atambile vyosena Gingile apwile nakulinga. Apwilenga nakumuvandamina mangana asezeko dunda yawuchi yipwenga nge kuhana kwakusakwilila kuli muka kulama wuchi. Ngede atukile kufumu kumutango kuya kumutango, kwakamwihi nakuheta hamavu. Gingile wunonyi ahetele heshi lyamutondo. Ngede atwamine halilolwa kwakamwihi namwana lunga nakuhandamina wufweto wenyi.
+Ngende amwene vyosena Ngingili apwile nakulinga. Apwile nakumuvandamina asezeko chithana chimwe chakuzala nauchi chakusolola kusakwilila kuli uze kasolo. Ngende atukile kufumu kumuthango umwe nakuya kumuthango ukwavo, kwakamwihi nakuheta hamavu. Kutwala muze Ngingili ahetele heshi lyamutondo. Ngende awilile halilolwa kwakamwihi nauze kanyike walunga nakuvandamina fweto yenyi.
 
 ##
-Wunonyi Gingile ajimine kakahya, ambachile muvu wenyi nakuputuka kuya kuzuvo, kuliwulako kajila. Ngede asanyikile chakusulakana, "Vic-torr! Vic-torr!" Gingile emanyine, anonokeka hali kajila nakuseha helu. "Wakutonda wuchi sepa lyami? Ha! Wunonyi yami ngwazatanga mulimo wosena, nakutambula kusuma kosena. Momo yika natulipangila owu wuchi wamwaza ngana nayove?" shikaho atambukile nakuya. Ngede azanjile! Katelanga kumulama nganako! Wunonyi mwambata chihilwiso.
+Oloze Ngingili ajimine kakahya, ambachile likunga lyenyi nakuputukako kuya kuzuvo, kuliula uze kajila. Ngende asanyikile namatoto ngwenyi, "ViC-torr! VIC-torr!" Ngingili emanyine, atalile uze mwana kajila nakuseha helu. "Nautonda uchi, nyi ngachilihi sepa lyami? Ha! Oloze ngwetu yami ngwazatanga mulimo wosena, nakusumiwa chosena. Ika natulipangilila ou uchi wamwaza ngana nayove?" Ngachize amusele nakuya. Ngende apihililile! Katelanga kumulinga nganako! Oloze mwawana mwakuhilwishila.
 
 ##
-Likumbi Limwe halutwe lwakuhita vyalumingo vyavivulu, Gingile evwile mutambi wawuchi kufuma kuli ngede. Anukile wuchi wuyema nakukavangiza kajila Cheka. Hulutwe lwakutetekela Gingile mumusenge, Ngede emanyine nakuwima mu chifwiko chamingonga. "Ahh," Gingile ashinganyekele. "Chisaka chavapuka chinahase kupwa omu mumutondo." Shikaho atuchilile kukwachisa kakahya Kenyi kakandende nakuputuka kunyina mutondo, mutondo wapwile nakufuma wishi mu kanwa. Ngede atwamine nakutamba.
+Likumbi limwe oho muchinahichi vyalumingo vyavivulu, Ngingili evwile mutambi wauchi kufuma kuli Ngende. Anukile uchi uyema nakukavangiza cheka uze kajila. Kufuma hakumutetekela Ngingili kusali yauze musenge, Ngende emanyine nakuhwima mumuvule wamingonga. "Ahaa," Ngingili ashinganyekele, "Ngoma yavaphuka yatela kupwa mumutondo omu." Washi washi aputwile kakahya kenyi nakuputuka kunyina, chifwifwi chenyi wishi kaka nambate. Ngende atwamine nakutaliliza.
 
 ##
-Gingile anyinyile, ajimukile omu kevwileko kulila chavapuka. "Pamwe vapuka vali mukachi ka mutondo," ashinganyekele yavene. Alikokele cheka kumutango wukwavo. Chakuhona kumona vapuka wunonyi apwile nakunonoka muchihanga cha chisupa! Chisupa asulakanyine hakumutangula tulo twenyi. Asungamishile meso enyi, nakusokolola kanwa Kenyi mangana asolole lizo lyenyi lyalisuku nakuwambuka.
+Ngingili anyinyine, oku mwalikomokela kuhona kwivwa kunyinga chavaphuka. Ashinganyekele ngwenyi, "Phamo vaphuka vali mukachi chikuma kamutondo." Alikokele cheka hamuthango ukwavo. Atelanga kachi amone vaphuka kukasumuka ali nakulitaka meso nameso nachisupa! Chisupa apihililile hakumutangula tulo twenyi. Akehesele meso enyi, nakusokolola kanwa kenyi mangana asolole mazo enyi amanene kaha nawa akuvambuka ngachize.
 
 ##
-Shinbu Kanda chisupa akombe Gingile, Gingile asulukile washi, mulumbushi, ahusukile mutango wumwe nakuholoka hamavu nakushikishilaho mboyo. Apinjile lumbushi, chakutokwa kuli yikiye, chisupa apwile achili nakwivwa tulo nakumununga, Ngede, muka kulama wuchi, amuhilwishililemo. Shikaho Gingile atangile.
+Shimbu kanda chisupa anyophokele Ngingili, Ngingili asulumukile washi kumutondo, mulumbushi, ahusukile kumuthango nakuholokela hamavu nakulichingumuna kasendengele. Anjalikichile nakuchina lumbushi. Kutokwa chenyi, chisupa apwile achili natulo etu twamuhonesele kumununga. Shikaho Ngende, katotaphako, awanyine usambanjinga. Shikaho Ngingili vamuzangamishile.
 
 ##
-Shikaho, nge vana va Gingile vanevu mujimbu wa Ngede vechi kulemesanga kajila wuze kana. Lola losena vechi kwangulanga wuchi, vechi kwanukanga kuseza chahanda chachi nene cha mukakukinga wuchi!
+Shikaho, omu vana va Ngingili navevwa mujimbu wa Ngende veji kulemesanga kajila uze. Lwola lwosena navaheta hakukongola uchi, veji kwanukanga kusezaho chithana chachinene chakatotaphako!
 
 ##
 * License: [CC-BY]

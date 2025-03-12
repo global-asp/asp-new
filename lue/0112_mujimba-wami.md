@@ -1,28 +1,28 @@
 # Mujimba wami
 
 ##
-Ngwahase kututa nacho.
+Ngunahase kuthuta nawo.
 
 ##
-Ngwahase kutumbuka nacho.
+Ngunahase kutumbuka nawo.
 
 ##
-Ngwahase kukina nacho.
+Ngunahase kukina nawo.
 
 ##
-Ngwahase kusana nacho.
+Ngunahase kuhala nawo.
 
 ##
-Ngwahase kulivuwa nacho.
+Ngunahase kutumbwojoka nawo.
 
 ##
-Ngwahase kwasa nacho.
+Ngunahase kwasa nawo.
 
 ##
-Ngwahase kuchina nacho.
+Ngunahase kuchina nawo.
 
 ##
-Unonyi kangweshi kuhasa kumbululuka nachoko.
+Oloze kangwechi kuhasa kutuka nawoko.
 
 ##
 * License: [CC-BY-NC]

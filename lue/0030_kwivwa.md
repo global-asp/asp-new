@@ -1,19 +1,19 @@
-# Wuvwiso
+# Kwivwa
 
 ##
-Muchima wami wakwivwa vyavivulu.
+Muchima wami wevwa vyavivulu.
 
 ##
-Ngwechi kwivwa kanawa nge kaka nakutulweza mijimbu ku chingoloshi.
+Ngweji kwivwa kuwaha omu khaka mwatutela mijimbu nachingoloshi.
 
 ##
-Ngwechi kwivwa kanawa kusekashana na sempa lyami.
+Ngweji kwivwanga vyeka kuheta hakuhema nasepa lyami.
 
 ##
-Ngwechi kupihililanga nge tata yami nahanjika ngwenyi keshi nambongoko.
+Ngweji kwivwanga kupihya nge tata mwahanjika ngwenyi kechi ali najimbongoko.
 
 ##
-Ngwechi kwivwa kunguzanga nge mama yami mwangukumbachila.
+Ngweji kwivwa kuzangiwa nge mama mwangusambilila.
 
 ##
 * License: [CC-BY-NC]

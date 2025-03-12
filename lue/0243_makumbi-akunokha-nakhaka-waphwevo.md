@@ -1,64 +1,64 @@
-# Chiwimo na nakakapwevo
+# Makumbi akunokha nakhaka waphwevo
 
 ##
-Odongo na Apiyo vatwamine mu mbaka na tata yavo. Vahandaminyinenga vihwimo. Nge mashikola apwilenga akusoka kahako, wunonyi momo vayile nakutambukila kaka yavo wapwevo. Atwaminenga mulimbo lyaku lovela kwakamwihi na kalwiji kakanene.
+Odongo na Apiyo vatwaminenga mumbaka nasevo. Vapwilenga nakutalilila kumakumbi akunokha. Kechi nge mwomwo vanasoko shikolako, oloze mwomwo vayile nakumona khaka yavo waphwevo. Khaka yavo ou atwaminenga hamusumba kwakamwihi nakalwiji wamunene.
 
 ##
-Odongo na Apiyo vawahililile chikuma momo yapwile lola lwa kutambukila khaka yavo cheka. Shimbu kanda Wufuku, valongejekele vyola vyavo nakuliwahisa wungeji wakuya kwimbo lya khaka pwevo wavo. Kavasavalileko wunonyi vahanjikile wufuku wosena Hali chalumingo.
+Odongo na Apiyo vawahililile chikuma mwomwo lwapwile lwola lwakutambukila kakha yavo cheka. Shimbu kanda kuchenga, valongejekele jingonga javo nakulizanga kutambuka ize thunda yayisuku yakuya kwimbo lyakhaka yavo. Kavasavalileko, ufuku wosena wakushimutwila kunokha chavo.
 
 ##
-Chimenemene chakavanga, vaputukileko wungeji namotoka ya tata yavo. Vendesele kuhambakana mapili, tunyama na mitondo ya tiyi. Valavile mamotoka kaha bembile myaso cheka.
+Lyacheleko nachimene, vakatukile muminyau yasevo. Vahichile mujiphili, mutunyama vamuchipapa namande atiyi. Valavilenga jiminyau ungeji wosena nakwimba myaso nawa.
 
 ##
-Omu mwahichile kashimbu, vanyike vazeyele shikaho valezumukilile mutulo.
+Omu mwahichile kashimbu, vaze vanyike vazeyele kaha valezumukilile mutulo.
 
 ##
-Tata yavo ahindwile Odongo na Apiyo omu vahetele kwimbo. Vawanyine Nya-kanyada, khaka pwevo wavo, kuhwima hachisalo mwishi lyamutondo. Nyar-kanyada muchitundu cha luo, 'chalumbunuka mwana pwevo wa vathu vaku kanyada'. Apwile wakujikiza na pwevo wamwaza.
+Sevo ahindwile Odongo na Apiyo omu vahetele mwimbo. Vawanyine Nyar-Kanyada, khaka yavo, ali nakunokha hachisalo mwishi yamutondo. Nyar-Kanyada muchitundu cha Luo, "chalumbunuka mwana vathu vaku Kanyada". Apwile phwevo wangolo kaha wamwaza.
 
 ##
-Nyar-kanyada avatambukishile muzuvo shikaho vakinyine muzuvo chakuwahilila. Vazukulu vyenyi vawahililile kuhana ovyo vamumbachilile kufuma kumbaka. "Chatete sokololenu chawana ocho ngwamimbachila," Odongo ahanjikile. "Pimbi, chawana chami chipwenga cha tete!" Apiyo ahanjikile.
+Nyar-Kanyada avatambwile muze muzuvo yenyi nakukina nakujinguluka muze kusolola kuwahilila. Vazukulu jenyi vawahililile hakumuhana ovyo vamunehelele kufuma kumbaka. Odongo ahanjikile ngwenyi, "Chatete sokolola wana wami." Kwivwa Apiyo nawa muze ngwenyi, "Chiku, vangila wami!"
 
 ##
-Omu asokolwele vyawana kana,Nyar-kanyada akisulwile vezukulu vyenyi mu chisemwa.
+Omu akumishile kusokolola mawana, Nyar-Kanyada akiswile vazukulu jenyi mwaya chisemwa.
 
 ##
-Shikaho Odongo na Apiyo vayile haweluka. Vachinyishile tujila natu wuyawuya.
+Jino Odongo na Apiyo vayile haweluka. Vahangile tujila natuuyauya.
 
 ##
-Vanyinyine mitondo, nakulichila meya amukalwiji.
+Vanyinyine kumitondo nakuhemena mumeya amukalwiji.
 
 ##
-Omu kwalavile vahilukile kuzuvo nakulya vyakulya vya chingoloshi. Shimbu kanda vamanyise kulya, valezumukile mutulo.
+Omu kwelavile vahilukile kuzuvo nakulya vyakulya vyachingoloshi. Shimbu kanda vamanyise kulya, valezumukilile mutulo.
 
 ##
-Likumbi lya kavanga, tata yavana akindulukile kumbaka kuvaseva vana na Nyar-kanyada.
+Lyacheleko, sevo akindulukile kumbaka kuvaseza na Nyar-Kanyada.
 
 ##
-Odongo na Apiyo vakafwile khaka yavo wapwevo na milimo vyamu zuvo. Vaswichile meya na jikunyi. Vambachile mawulu kufuma kuli tusumbi nakumba mafo mu wande.
+Odongo na Apiyo vakafwile khaka yavo waphwevo namilimo yakukhanda. Vaswichilenga meya nakuchava jikhunyi. Vambachile maulu kufuma kutusumbi nakuhela mafwo mulithepa.
 
 ##
-Nyar-kanyada atangishile vezukulu vyenyi mangana vapange ugali wawuvovu mangana valyenga na supu. Avalwekele mwakupangila loso lwa vyelu mangana valise na vayishi vakocha.
+Nyar-Kanyada anangwile vazukulu jenyi mwakuhikila shima yayivwovu mangana valyenga namusoji. Avalwezele mwakutelekela loso lwavyelu mangana valise navayishi vakwocha.
 
 ##
-Chimene chimwe, Odongo ambachile vangonbe va khaka pwevo yenyi nakuvalisa mwila. Vatuchililile muwande wa muthu vali hata nenyi. Njimi asulakanyine Odongo. Evwishile woma ngwenyi mwalama vangombe vaze momo vanamulila mbuto jenyi. Halutwe lwa lize Likumbi, kanyike azachile nangolo mangana vangombe kanda navalingisa muwukaluko.
+Likumbi limwe nachimene, Odongo ayile nakulisa vangombe jakhaka yenyi. Vaze vangombe vengilile muwande wamuthu valihachile nenyi. Uze mwenyawande apihililile na Odongo. Evwishile woma ngwenyi mwakwachilamo vaze vangombe mwomwo vanamulila vimbuto vyenyi. Kufuma lize likumbi, uze kanyike akingile vaze vangombe kuchina navahilukilamo.
 
 ##
-Halikunbi likwavo, vanyike vayile kwakulanjishila na Nyar- kanyada. Apwilenga nakatambo hakulanjishila mafo, Shuga na sopo. Apiyo azangile kulweka vathu mitengo ya vyuma. Odongo apwilenga nakulongejeka vyuma vize vathu vapwilenga nakulanda.
+Halikumbi likwavo, vanyike vayile kuchisakano na Nyar-Kanyada. Apwilenga nakatambo alanjishililenga mafwo, sukili nasopo. Apiyo azangilenga kulweza vathu jindando javyuma. Odongo alongejekelenga vyuma vize valanjilenga vathu.
 
 ##
-Hakukuma cha Likumbi vanwine tiyi ya chai hamwe. Vakafwile khaka pwevo kulava mbongo valanjishileko.
+Hakukuma chalikumbi vanwine tiyi yachai hamwe. Vakafwile khaka yavo kulava jimbongo awanyine.
 
 ##
-Wunonyi chachindende kaha wuhwimo wakumine, shikaho vanyike vakindulukile ku mbaka. Nyar-kanyada ahanyine Odongo komoki kaha Apiyo chamashika. Alongejekele vyakulya vyavo vyamujila.
+Oloze chachindende kaha makumbi akunokha akumine, shikaho vanyike vakindulukile kumbaka. Nyar-Kanyada ahanyine Odongo lupasa kaha Apiyo sweta. Avalongejekelele vyakulila mujila.
 
 ##
-Omu tata yavo ejile nakuvambata, kavazangileko kukinduluka kwimbo, vana valambililile Nyar-kanyada mangana ayenga navo ku mbaka. Shikaho akemwine nakuhanjika, "Ngwakolo chikuma Nakuya ku mbaka. Nakamihandamina mukeze kuno kwimbo Cheka."
+Omu sevo ejile nakuvambata, kavazangile kukatukako. Vashinjililile Nyar-Kanyada ngwavo ayenga navo kumbaka. Amwemwetele nakwamba ngwenyi, "Ngwakolo chikuma mwakutwamina mumbaka mwauchi. Nangumivandamina mwizenganga cheka kuno kwimbo."
 
 ##
-Odongo na Apiyo vose vavali vamukumbachililile nakusalisa.
+Odongo na Apiyo vosena vavali vamukwachile kasamba nakumusalisa.
 
 ##
-Omu Odongo na Apiyo vahilukile kushikola vashimutwililile vakwavo chiyoyelo chakwimbo. Vanyike vamwe vashinganyekele ngwavo chiyoyelo cha Mumbaka chapwile chamwaza. Unonyi chatete, vosena vetavile ngwavo Odongo na Apiyo vapwile na khaka pwevo wavo wamwaza!
+Omu Odongo na Apiyo vahilukile kushikola valwezeleko vakwavo chiyoyelo chakwimbo. Vanyike vamwe vashinganyekele ngwavo chiyoyelo chamumbaka chamwaza. Vakwavo vambile ngwavo chakwimbo chamwaza kuhambkana. Olozenyi vosena vetavijile ngwavo Odongo na Apiyo vapwile nakhaka yavo wambwende!
 
 ##
 * License: [CC-BY]

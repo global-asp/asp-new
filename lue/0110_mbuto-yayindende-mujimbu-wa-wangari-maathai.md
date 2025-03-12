@@ -1,44 +1,44 @@
-# ka mbutu kakandende: mujimbu wa Wangari maathai
+# Mbuto yayindende: Mujimbu wa Wangari Maathai
 
 ##
-mwimbo hakawumbu ka kenya kumulawuko wa afilika, mwana pwevo azachile na mama yenyi mu wande. lijina lyenyi ikiye wangari.
+Mwimbo limwe haushikumukilo waphili ya Kenya ku East Africa, mwanaphwevo azachile nanaye muwande. Lijina lyenyi ikhiye Wangari.
 
 ##
-Wangari azangile kupwa haweluka. muwande wa vyakulya wa chisaka chenyi apazwile mavu na mukwanga wenyi. engishile tujimbuto twatundende mumavu azuma.
+Wangari azangilenga kupwa haweluka. Mulithepa lyavo achipwilenga mavu namukwale wenyi. Ashinyinyikile tumbuto twatundende mumavu.
 
 ##
-lola lwenyi azangile chikuma lwapwile chingoloshi. omu kwalavile chikuma kutala mbutu, wangari atachikijile ngwenyi hi lola lwa kuya kuzuvo. akavangijile kajila muwande kuvatula kalwiji omu ayilenga.
+Lwola lwenyi azangile chikuma shina chingoloshi, likumbi hilinalauka. Omu kwelavile kumona vimbuto kuhasa jino hichiku, Wangari athachikijile ngwenyi hilwola lwakuya kuzuvo. Mwakavangiza kaze kaphundujila kapulasanyine muwande, kuzauka tulwiji chosena ayilenga.
 
 ##
-Wangari apwilenga mwana wa kuzangama kaha cheka kahandamine kuya kushikolako. Wunonyi tata yenyi na mama yenyi vatondele atwame nakuvakafwa hembo. omu apwilenga myaka yitanu nayivali, yayenyi walunga avalwekele visemi jenyi mangana vamwechi ayenga kushikola.
+Wangari apwilenga mwana wakuzangama kaha kazangile kwenyeka lwola kuhona kuya kushikolako. Oloze ise nanaye vasakile atwame nakuvakafwanga hembo. Omu ahetele myaka yakusemuka itanu-nayivali, yayenyi walunga avalwezele visemi jenyi vamweche ayenga kushikola.
 
 ##
-Azangile kutanga! Wangari alilongesele vyavivulu kaha cheka vyavivulu namukanda atangilenga. alingilenga kanawa hashikola shikaho vamusanyikile kuya nakutangila kuma fuchi avindele ku united states of america. Wangari awahililile chikuma! atondele kwijiva vyavivulu vya kaye.
+Azangile kutanga! Wangari alilongesele vyavivulu mumikanda atangilenga. Hakulinga kanawa mushikola vamusanyikile kuya nakutangila ku United States of America. Wangari awahililile chikuma! Atondele kwijiva vyavivulu vyamukaye.
 
 ##
-Hashikola yayinene ya amelika wangari alilongesele vyuma vyaviha vyavivulu. atangile mihako nomu vyechi kukolanga. shikaho anukile omu apwilenga nakukola. kuhema ngunja nava yayajenyi mumu vule wamitondo mungalila yamitondo yamwaza mu kenya.
+Ku Yunivesiti ya America Wangari alilongesele vyuma vyavihya vyavivulu. Alinangwile vyamihako nomu yeji kukolanga. Kaha anukile mujila akolelele: kuhema ngunja navayaya jenyi mumuvule wamitondo mumisenge yamwaza yamu Kenya.
 
 ##
-Omu atangilenga chikuma, mukiko atachikijile ngwenyi azanga lifuchi lya kenya. atondelenga vakiko vapwenga vakuwahilila na kukasunuka. omu atangilenga chikuma, mukiko anukilenga limbo lyenyi lya mu afulika.
+Kulihakilako chenyi kutanga chamulingishile kweuluka nge azanga lifuchi lya Kenya. Atondelenga vapwenga vakuwahilila nakusokoka. Mukulinangula vyavivulu mukhiko anukilenga limbo lyenyi lya Africa.
 
 ##
-omu amanyishile kutanga chenyi, ahilukile ku kenya. wunonyi lifuchi lyenyi lyachinjile. mawande amanene atohwele mungalila. mapwevo kavapwile najikunyi jakutelekelahoko. vatu vapwilenga vakuyanda navana vapwilenga nazala.
+Omu amanyishile kutanga chenyi, ahilukile ku Kenya. Oloze lifuchi lyenyi lyalumukile. Mawande amanene atanjile lifuchi lyosena. Maphwevo kavapwile najikhunyi jakuwikisa kahya kakutelekelahoko. Vathu vapwilenga vakuyanda kaha vana vapwilenga nazala.
 
 ##
-Wangari ejivile vyakulinga. alwekele mapwevo mwakutumbila mihako kufuma kujimbuto. mapwevo valanjishilenga mitondo nakukafwa visaka javo. mapwevo vahwahililile chikuma. Wangari avakafwile kwivwa vakulema.
+Wangari ejivile vyakulinga. Alwezele maphwevo mwakutumbila mitondo kufuma kumikoswa yavimbuto. Vaze maphwevo valanjishilenga ize mitondo nakuzachisa jize jimbongo kulama jithanga javo. Vaze maphwevo vawahililile chikuma. Echi chafumine hali Wangari kuvakafwa valivwe ngolo nakutakama.
 
 ##
-omu lola lwahichile, mitondo yakolele mumisenge, tulwiji twaputukile kulimwanga cheka. mujimbu wa Wangari watandile mu afulika yosena.lelo, makumbakaji yamitondo yasoko kufuma kuli mbuto ya wangari.
+Hakuhita chalwola, mitondo yakolele nakupwa misenge, tulwiji twaputukile kuhitangana cheka. Mujimbu wa Wangari watanjile Africa yosena. Lelo, makhombakaji amitondo anasoko kufuma kujimbuto ja Wangari.
 
 ##
-Wangari azachile na ngolo. vatu vosena mukaye vamwene, vamuhanyine wufweto wamwaza. vechi kuyisanyika ngwavo nobel peace prize, shikaho apwilenga watete kutambula owu wufweto kana.
+Wangari azachile nangolo. Vathu vosena mukaye vamwene milimo yenyi, vamuhanyine muchato waulemu. Vauvuluka 'Nobel Peace Prize', kaha ikhiye apwilenga phwevo wamu Africa watete kutambula ou muchato.
 
 ##
-Wangari afwile mu mwaka wa 2011, wunonyi twechi kumushinganyeka lola lose twechi kumonanga mutondo.
+Wangari afwile mu mwaka wa 2011, oloze tweji kumushinganyekanga lwola lwosena natumona mutondo wamwaza.
 
 ##
 * License: [CC-BY]
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

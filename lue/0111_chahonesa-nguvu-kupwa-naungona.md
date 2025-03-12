@@ -1,32 +1,32 @@
-# yika nguvu katwama na wungonako
+# Chahonesa nguvu kupwa naungona
 
 ##
-likumbi limwe, mbwanda apwile nakwenda kukalwiji.
+Likumbi limwe, mbwanda apwile nakutambuka kungenge yakalwiji.
 
 ##
-Nguvu kwapwile nayikiye, kwendejeka nakulya tumwila twamwaza twamafo amatamba.
+Nguvu nayikhiye apwile kuze, nakupasala nakulya tumwila twaushindeshinde.
 
 ##
-Nguvu kamwene mbwanda kupwa kuzeko shikaho nguvu alyachile mbwanda halihinji chakuzeneka kwijiva. Mbwanda aputukile kutetemukila Nguvu, yove Nguvu! kawamweneko ngove wakungulyata hachipamba?
+Nguvu kamwene nge mbwanda kwapwile kuzeko shikaho amulyachile hachipundo. Mbwanda aputukile kutetemuka, "Ove Nguvu! Kawamweneko ngwove unangulyate hachipundo?"
 
 ##
-Nguvu alikonekelele kuli mbwanda, "ngukonekeleko. kangwakumonangako. ngukonekeleko chikuma!" wunonyi mbwanda kevwileko shikaho atenukilile Nguvu, "wachilingilangamo kaha! likumbi limwe, mukachimona! mukafweta!"
+Nguvu alikonekelele kuli Mbwanda, "Ngukonekeleko. Kangwakumonangako. Ngukonekeleko ove mukwetu!" Oloze Mbwanda kamvwilileko shikaho amutambakanyine Nguvu, "Wachilingilangamo kaha! Likumbi limwe, naukachimona! Naukafweta!"
 
 ##
-Mbwanda ayile nakuwana kakahya kaha ahanjikile, "yako, wukoche Nguvu nge nafumu mumeya nakulya mwila. Angulyatanga!" kakahya akumbulwile, wukalu wawuchi, mbwanda, sepa lyami. nangulinga nge omu wangulweze,"
+Mbwanda ayile nakuwana kakahya nakwamba ngwenyi, "Yako, umwoche Nguvu omu mwafuma mumeya nakutonda kulya mwila. Angulyatanga!" Kakahya akumbulwile ngwenyi, "Ukalu wauchi, Mbwanda, sepa lyami. Nangulinga nge omu unangulweze."
 
 ##
-Halutwe, Nguvu apwile nakulya mwila kwakusuku nakalwiji, "ohhh!" kakahya kamwinyikile milangi. Milangi yaputukile kocha wungona wa nguvu.
+Lwola lwekha, Nguvu apwile nakulya mwila kwakusuku nakalwiji omu evwile, "Epu-u!" milangi yakahya inepuka. Milangi yaputukile kwocha ungona wa Nguvu.
 
 ##
-Nguvu aputukile kulila nakutuchila ku meya. Wungona wosena wawemene nakakahya. Nguvu atwalilileho kulila, "wungona wami waweme mukakahya! wangona wosena wunayi! wungona wami wamwaza!"
+Nguvu aputukile kulila nakuthuchila kumeya. Ungona wosena wawemene nakakahya. Nguvu atwalilileho kulila, "Ungona wami unaweme nakakahya! Ungona wami wosena unayi! Ungona wami wamwaza ngachize!"
 
 ##
-Mbwanda awahililile kuwema wungona cha nguvu. kaha lino likumbi. hawoma wakakahya, shikaho nguvu kaya kwakusuku nameyako.
+Mbwanda awahililile hakuwema chaungona wa Nguvu. Nakulelo lino ngana, hawoma wakakahya, Nguvu kaya kwakusuku nameyako.
 
 ##
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue

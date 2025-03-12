@@ -1,40 +1,40 @@
 # Tom mukakulanjisa makonde
 
 ##
-Tom nambate lupasa lwamakonde akuhya.
+Tom mwambata lwalo lwamakonde akuhya.
 
 ##
-Tom nayi kwakulanjishila nakulanjisa makonde.
+Tom mwaya kumaliketi nakulanjisa makonde.
 
 ##
-Vatu kwakulanjishila vana kulanda mihako.
+Vathu kumaliketi vali nakulanda mihako.
 
 ##
-Oloze vawuchi vanakulanda makonde a tom. vanasakula kulanda mihako kuli mapwevo.
+Oloze naumwe wauchi ali nakulanda makonde a Tom. Vasaka kulanda mihako kuli maphwevo.
 
 ##
-"Mungalila mwetu, mapwevo kaha vechi kulanjisanga mihako," vatu vechi kuhanjika. "lunga muka owu?" vatu vechi kuhulisa.
+Vathu veji kuhanjika ngwavo, "Mungalila yetu, maphwevo kaha vakhiko veji kulanjisanga mihako." Shikaho nge lunga navahulisa ngwavo, "Lunga muka ou?"
 
 ##
-Wunonyi Tom kechako. echi kusanyika "landenu makonde ami! landenu makonde ami ayema akwiha kanawa!"
+Oloze Tom kecheleko. Mwasanyika, "Landenu makonde ami! Landenu makonde ami ayema akuhya kanawa!"
 
 ##
-Pwevo wumwe nambateho mulumba wumwe wamakonde halupasa. natalishisa hamakonde chakuzangama.
+Phwevo umwe mwambata mulumba umwe wamakonde halwalo. Mwashishika aze makonde kanawa.
 
 ##
-Pwevo nalande makonde.
+Phwevo mwalanda aze makonde.
 
 ##
-Vatu vavavulu vechi kwiza nakushikama. vechi kulanda makonde a tom nakuvalya.
+Vathu vavavulu naveza kuze kukatambo. Navalanda makonde kuli Tom nakulya.
 
 ##
-Kalinomu, lupasa lwasale hululu. Tom nalave mbongo nawanemo.
+Kalinwomu, lwalo lunasale lwamupolongwa. Tom mwalava jimbongo nawanemo.
 
 ##
-Shikaho tom nalandemo sopo, shunga na mbolo. nahake vyuma mu lwalo
+Jino Tom mwalanda sopo, sukili nachindanda. Mwahaka vize vyuma mulwalo lwenyi.
 
 ##
-Tom nolola lwalo hamutwe nakuya kwimbo.
+Tom mwahaka lwalo hamutwe wenyi nakuya kwimbo.
 
 ##
 * License: [CC-BY]

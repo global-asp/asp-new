@@ -1,19 +1,19 @@
 # Kakahya
 
 ##
-Tala kakahya!
+Tala, kakahya!
 
 ##
-Kakahya kakuwema.
+Kakahya nakepuka.
 
 ##
-Kakahya kechi kuteleka.
+Kakahya keji kuteleka.
 
 ##
-Kakahya kechi Kuhana kuzuma.
+Kakahya keji kuneha liyena.
 
 ##
-Kakahya kechi kuhana mweji.
+Kakahya keji kuneha musana.
 
 ##
 Tala kakahya!
@@ -22,7 +22,7 @@ Tala kakahya!
 Kakahya kamwaza.
 
 ##
-Kaha cheka kakalemu.
+Kaha katwama nangolo.
 
 ##
 * License: [CC-BY]

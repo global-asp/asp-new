@@ -1,37 +1,37 @@
 # Lunga wamusuku chikuma
 
 ##
-Litemo lyenyi lyapwanga lyalyihi chikuma.
+Litemo lyenyi lyapwile lyalihi chikuma.
 
 ##
-Muchikolo mwenyi mwapwanga mwamwihi chikuma.
+Muchikolo chenyi mwapwile mwamwihi chikuma.
 
 ##
-Kahela kenyi kapwanga kakehyi chikuma.
+Kahela kenyi kapwile kakehi chikuma.
 
 ##
-Kinga yenyi yapwanga yayihyi chikuma.
+Khinga yenyi yapwile yayihi chikuma.
 
 ##
-Owu lunga apwanga wamusuku chikuma.
+Ou lunga apwile wamusuku chikuma.
 
 ##
-Apanganga muhinyi wawusuku walitemo.
+Asongele muhinyi walitemo wausuku chikuma.
 
 ##
-Apanganga vikwachiso yavikolo vyavisuku.
+Asongele vipamba vyavikolo vyavisuku chikuma.
 
 ##
-Apanganga kahela kakasuku chikuma.
+Asongele kahela kakasuku chikuma.
 
 ##
-Alandanga kinga yayisuku chikuma.
+Alanjile khinga yayisuku chikuma.
 
 ##
-Atwamanga hachitwamo chachisuku chikuma. alyanga na foloko yayisuku chikuma.
+Atwamine hachitwamo chachisuku chikuma. Alishile fwoloko yayisuku Chikuma.
 
 ##
-Asezele zuvo yenyi nakuya nakutwama mumusenge. atwaminemo myaka yayivulu.
+Asezele zuvo yenyi nakuya nakutwama mumusenge waunene. Atwamine myaka yayivulu.
 
 ##
 * License: [CC-BY]

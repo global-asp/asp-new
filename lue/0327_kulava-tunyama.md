@@ -1,28 +1,28 @@
 # Kulava tunyama
 
 ##
-Njamba wumwe nakuya nakunwa meya.
+Njamba umwe ali nakuya nakunwa meya.
 
 ##
-Va sefu vavali vanakuya nakunwa meya.
+Vathungu vavali vali nakuya nakunwa meya.
 
 ##
-Va pakasa vatatu na tujila vawana navakiko vanakuya nakunwa meya.
+Vaphakasa vatatu natujila vawana navakhiko vali nakuya nakunwa meya.
 
 ##
-Va pala vatanu nava chombo vatanu nawumwe vanakuya nakunwa meya.
+Tusenda vatanu navihengi vatanu-naumwe vali nakuya kumeya.
 
 ##
-Va ngolo vatanu navavali vanakutuchila ku meya.
+Vangolo vatanu-navavali vali nakuthuchila kumeya.
 
 ##
-Vimbotwe vitanu navi tatu na vayishi vatanu nava wana vanakuhala mumeya.
+Vimbotwe vatanu-navatatu navayishi vatanu-navawana vali nakuhala mumeya.
 
 ##
-Ndumba wumwe nakuteta. nakutonda cheka kunwa. hiya nakwivwa woma va ndumba?
+Ndumba umwe mwateta. Nayikhiye mwatonda kunwa. Hiya ali nakwivwa woma wandumba?
 
 ##
-Njamba wamwe nakunwa meya na ndumba.
+Njamba umwe ali nakunwa meya nandumba.
 
 ##
 * License: [CC-BY]

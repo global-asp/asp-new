@@ -4,37 +4,37 @@
 Likumbi limwe, mama ambachile mihako yayivulu.
 
 ##
-"Natupwa namihako lola muka?"vahulisa. "natupwa namihako kuchingoloshi," mama ahanjikile.
+Natuhulisa ngwetu, "Natupwa namihako lwola muka?" Mama akumbulwile ngwenyi, "Natupwa namihako lelo naufuku."
 
 ##
-Yayama walunga Rahim wawuminyi. natopo mihako yosena. nali chihanda chachinene.
+Yaya walunga Rahim walifwi. Namakhila mihako yosena. Eji kulya yayivulu.
 
 ##
-"Tala omu Rahim nalingi!" songo yami walungu natambakana. "Rahim wamupi muchima kaha cheka nalizangamisa," ngwahanjika.
+Songo yami mwatambakana ngwenyi, "Tala ovyo Rahim nalingi!" ami nanguhanjika ngwami, "Rahim wakuhuka kaha muthu wakulizanga ivene."
 
 ##
-Mama nasulakanyina Rahim.
+Mama napihilila na Rahim.
 
 ##
-Nayetu tunasulakanyina Rahim. wunonyi Rahim kalikonekeleko.
+Nayetu tunapihilila na Rahim. Oloze Rahim wapyaku.
 
 ##
-"kamweshiko kumuzangamisa?" songo yenyi walunga nahulisa.
+Songo yenyi walunga mwahulisa ngwenyi, "Kamwechi kumuzangamisako?"
 
 ##
-"Rahim, kalinomu wulikonekela," mama nanuna.
+Mama mwamutenukila ngwenyi, "Rahim, kalinwomu naumona."
 
 ##
-Rahim aputukile kwivwa kuviza.
+Rahim mwaputuka kwivwa kuviza.
 
 ##
-Mulijimo mwami muli jimband, "Rahim ayevetelele.
+Rahim mwayeveta ngwenyi, "Mujimo lyami muli nakwivika jimbandu."
 
 ##
-Mama ejivanga evi navisoloka. muhako wunakuzangamisa Rahim!
+Mama ejivanga ngwenyi echi nachisoloka. Muhako uli nakuzangamisa Rahim!
 
 ##
-Halutwe, Rahim alikonekelelele kuli yetu. "kwangweshi kapwa nawuminyiko cheka, "ashikile. tuvosena tumufwelelenu.
+Omu mwahichile lwola, Rahim mwalikonekela kuli yetu. Ashikile ngwenyi, "Kangwechi cheka kukapwa nauminyiko." Tuvosena tumufwelelenu.
 
 ##
 * License: [CC-BY]

@@ -1,52 +1,52 @@
-# Kujina
+# Kusakula
 
 ##
-Limbo lyami lyapwile namawukalu. twapangile mulayini wawusuku hakuswita meya kumupompi.
+Limbo lyami lyapwile namaukalu amavulu. Kuswita meya kuvanga kwimana mumukana wausuku kumuyengo umwe.
 
 ##
-Twahandaminyine vyakulya vyawana vahanyine vakwetu.
+Twavandaminyinenga kulya chakutukafwa kuvakwetu.
 
 ##
-Twasokele mazuvo etu washi momo yaveji.
+Twakiyilenga mazuvo etu washi kuchinyisa veji.
 
 ##
-Vanyike vavavulu vechele shikola
+Vanyike vavavulu vechele shikola.
 
 ##
-Vanyike vamapwevo vazachile nge ndungo kumenbo.
+Vanyike vamaphwevo vazachilenga ungamba mumembo akwavo.
 
 ##
-Vana vamalunga kavapwile nakwakutwama kaha cheka vakwavo vazichile muwande wavatu.
+Vanyike vamalunga vakimbilenga mumembo shimbu vakwavo vazachililenga mumande avathu.
 
 ##
-Omu peho yapekumwine, mapepa asukukikile hamitondo naha lilapa.
+Omu peho yahuhwile yapekumwinenga mapepa aze asakaminenga hamafwo nahajimbango nahamalapa avathu.
 
 ##
-Vatu vavavatwile nama lolo akupazuka vambilile halihosena.
+Vathu valilemekelenga navivanjilo vyakupazwojoka evi kavambililenga kanawako.
 
 ##
-Shikaho likumbi limwe, mupopi womine kaha vindundu vyomine.
+Jino likumbi limwe, mupombi womine kaha jisuhwa jetu jasalile jamupolongwa.
 
 ##
-Tata yami endele kufuma kuzuvo nakuya kuzuvo nakulomba vatu mangana vapwengako kuchikungulilo.
+Tata ahichishilemo mutambi, zuvo hizuvo mangana vathu valikungulule nakushimutwila.
 
 ##
-Vatu vilikungulile mwishi yamutondo na kwivwilila.
+Vathu valikungulwile mwishi yamutondo nakwivwilila.
 
 ##
-Tata yami emanyine nakuhanjika, "twatela tuzachile hamwe mangana tuhase kolola mawukalu etu."
+Tata emanyine nakukhokweza vathu, "Twatela tuzachile hamwe mangana tuhase kukumisa maukalu etu mwimbo."
 
 ##
-Juma wa myaka yitanu nayitatu, natwame halungowa nakutambakana, "ngunahase kukafwa nakukomba."
+Kanyike Ndumba wamyaka yakusemuka itanu-nayitatu, oku natwame hamungowa atambakanyine, "Ami ngunahase kuzata mulimo wakukomba."
 
 ##
-Pwevo wumwe ahanjikile, "mapwevo vanahase kungununga nakulima vyakulya."
+Phwevo umwe ahanjikile ngwenyi, "Maphwevo vanahase kulinunga nayami nakulima vyakulya."
 
 ##
-Lunga mukwavo emanyine nakuhanjika, "malunga navafula lishima."
+Lunga mukwavo emanyine nakuhanjika ngwenyi, "Malunga navafula lishima."
 
 ##
-Vose twatambakanyine nalizu limwe, "twatela kuchinja chiyoyelo chetu."kufuma lize likumbi twazachile hamwe nakuwana jila jamawukalu etu.
+Vosena twatambakanyine nalizu limwe, "Twatela kwalumuna chiyoyelo chetu." Kufuma lize likumbi twazachile hamwe nakukumisa maukalu etu.
 
 ##
 * License: [CC-BY]

@@ -1,28 +1,28 @@
-# Andiswa hilitanana lyangunja
+# Andiswa muyatwa wangunja yakumahinji
 
 ##
-Andiswa atambile vana vama lunga kuteya ngunja. asakile kechi alinunge navo. ahulishile mukakutala ngunja nge nahase kulilongesa hamwe navakiko.
+Andiswa apwile nakutala vanyike vamalunga vapwile nakwasa ngunja yakumahinji. Asakile kachi aheme navo. Ahulishile mukakunangula ngunja nge nahase kulilongesela hamwe navo.
 
 ##
-Mukakutala ngunja ahakile mavoko enyi hambunda. "hano hashikola, malunga kaha vetaviza kwasa ngunja," ahanjikile
+Mukakunangula ngunja ahakile mavoko enyi hambunda nakuhanjika ngwenyi, "Hano hashikola, malunga kaha vakhiko vetavisa kwasa ngunja yakumahinji."
 
 ##
-Vana vamalunga vamulwekele kuya nakuteya ngunja yakumavoko. vahanjikile ngwavo ngunja yakumahinji yapwa yama lunga kaha yakuma voko yamapwevo. jino Andiswa asulakanyine.
+Vaze vanyike vamalunga vamulwezele kuya nakwasa ngunja yakumavoko. Vahanjikile ngwavo ngunja yakumahinji yapwa yamalunga, shina yakumavoko ikhiko yamaphwevo. Andiswa kasuulukile nachoko.
 
 ##
-Likumbi lyakushishamo, shikola yapwilenga na ngunja yayinene. mukakutalilako ngunja alizakaminine momo mutuwenyi azangile chikuma mukakwasa ngunja apwile nakukola shikaho kateyeleko.
+Lyacheleko, shikola yapwilenga nakulipecha chachinene changunja yakumahinji. Mukakunangula ngunja alizakaminyine mwomwo muthu wenyi wakwijiva chikuma ngunja apwile nakukola kaha kahashile kuhemako.
 
 ##
-Andwisa atuchilile kuli mukakutala ngunja nakumu lambilila mangana asenga ngunja. wunonyi mukakutala ngunja kejivileko vyakulinga. oloze asakwile ngwenyi andiswa alinunge nalizavu mukuteya ngunja.
+Andiswa athuchililile kuli mukakunangula ngunja nakumulembelela amwitavile kwasa ngunja. Oloze mukakunangula ngunja kejivile vyakulingako. Kutwala muze etavilile Andiswa kuhema ize ngunja yakumahinji.
 
 ##
-Ngunja yakolele. shikaho wawuchi engishile ngunja muchihanda chatete.
+Ngunja ize yapwile yayikalu. Kuheta halwola lwakunoka nava vengishile vauchi.
 
 ##
-Kuhichila muchihanda chakushisaho mukakwasa ngunja ahanyine ngunja kuli andiswa. andiswa atuchile lumbushi kwakamwihi nakwakwingishilako ngunja. ashile ngunja nangolo nomu engishile.
+Kuheta muchihanda chamuchivali, umwe wavaze vanyike vamalunga ahanyine ngunja kuli Andiswa. Andiswa athuchile nayo lumbushi kuheta kujiphanda jangolo. Ashile ize ngunja nakwingisa.
 
 ##
-Lizavu lyawahililile. kufuma vene lize likumbi, mapwevo navakiko vavetavijile kwasanga ngunja yamalunga.
+Lizavu lyawahililile. Kufuma vene lize likumbi, vanyike vamapwevo navakhiko vavetavishile kwasanga ngunja yamahinji haze hashikola.
 
 ##
 * License: [CC-BY-NC]

@@ -1,28 +1,28 @@
-# Mukanda wa ngonda
+# Mukanda wajingonde
 
 ##
-Ku nomu
+Kunomu.
 
 ##
-Kwazumu
+Musana weye kunazumu.
 
 ##
-Kuli peho
+Kuli peho.
 
 ##
-Kuli mavwi
+Kuli mavwi.
 
 ##
-Kwa tutu
+Kunatutu.
 
 ##
-Yakunoka
+Vula ili nakunokha.
 
 ##
-Kuli muveso
+Kuli mikalateta.
 
 ##
-Ngwamono kongolo
+Ngunamono khongolo.
 
 ##
 * License: [CC-BY-NC]

@@ -1,64 +1,64 @@
-# Mbulu wa mwana
+# Mwana Chimbulu
 
 ##
-Apwile kanyike wapwevo amwene mujimba wakujimbangana hakasuku.
+Apwile kanyike waphwevo avangilile kumona uze mujimba wakukomwesa hakasuku.
 
 ##
-Omu mujimba waswenyene kwakamwihi, amwene ngwenyi apwile pwevo nalijimo.
+Omu uze mujimba waswenyene mwakamwihi, amwene ngwenyi apwile phwevo walijimo.
 
 ##
-Sonyi Wunonyi kuzangama, kanyike wapwevo aswenyene kwakamwihi na pwevo. “Twatela kumulama,” vatu va kanyike wapwevo vasakwile. “ natumulama namwanenyi kanawa.”
+Oku sonyi oloze nawa nakumika, uze kanyike waphwevo aswenyene kwakamwihi nauze phwevo. Vathu jauze kanyike waphwevo valivwasanyine ngwavo, "Twatela kumulama kanawa namwanenyi."
 
 ##
-Mwana apwile kalinomu kwiza mujila. “Shinjika!” “Nehenu mapayi!” “Meya” “shinjika!!!”
+Mwana apwile kwakamwihi nakusemuka. "Shinjika!" "Nehenu mapayi!" "Meya!" Shinjika!!!"
 
 ##
-Wunonyi omu vamwene mwana, vosena vatumbukile mukulikomokela. “Mbulu?!”
+Oloze omu vamwene uze khemba, vosena vamotokele nakulikomokela. "Chimbulu?!"
 
 ##
-Vosena vaputukile kulihamika. “Twahanjikanga ngwetu natulama mwana na naye kanawa, shikaho mukiko natulinga,” vamwe vahanjikile. “Wunonyi navatunehela kuhona kutokwa!” Vamwe vahanjikile.
+Vosena vaputukile kulihamika. Vamwe vahanjikile ngwavo, "Twahanjikanga ngwetu natulama vosena namwana nanaye kanawa shikaho mukhiko natulinga. "Oloze vakwavo vahanjikile ngwavo, "Mwatunehela luvinda!"
 
 ##
-Shikaho pwevo aliwanyine wukawenyi cheka. Alishishimwine omu mwalinga nawuze mwana wakuhona kumonangaho lyehi. Alishishimwine omu mwalinga nayavene.
+Shikaho uze phwevo aliwanyine ukhawenyi cheka. Kathachikijile mwakulinga nauze mwana wanganako. Kathachikijile omu mwalinga hali yaveneko.
 
 ##
-Ejile nakwitava ngwenyi apwilenga mwanenyi kaha cheka apwilenga mama yenyi.
+Kusongo etavijile ngwenyi apwile mwanenyi kaha nawa ikhiye naye.
 
 ##
-Wunonyi nge mwana wuze atwamine ngachize chakuzeneka kukola kenshi vyose vyapwile kanawa. Wunonyi mbulu ya mwana akolele nakuhona kuheta munyima ya naye. Shikaho imba tuhu esekele kulinga vilinga vyavatu Wunonyi kahashile kulinga vilinga vyavatuko. Mama yenyi azeyele nanyi. Lola lumwe vamulingishile alinge vyuma vize vatelanga tunyama kulinga.
+Jino nge mwana uze asalile ngachize, chakuzeneka kukola kachi vyosena vyalumukile. Oloze uze chimbulu chamwana akolele nakuhona kuta munyima yanaye. Numba tuhu esekele ngachilihi, kahashile kuyoya nge muthuko. Naye kakavulu azeyele nenyi nakukwata matoto. Lwola lukwavo amulingishilenga milimo yakutela kulinga tunyama.
 
 ##
-Chifulunganyino na kusulakana chaputukile Kupwa muli mbulu. Kalingile vili vyosenako. Ahonene Kupwa muli mosena. Asulakanyine ngwenyi likumbi limwe Mwakapanta naye nakuholoka.
+Liwayanga namatoto vyachimbilile mukachi kachimbulu. Nevi alingile vene vyauchi. Kahashile kupwa ngana nyi ngachizeko. Kufutuka echi chamulingishile likumbi limwe ashinjike naye nakumuholwela hamavu.
 
 ##
-Mbulu azalile nasonyi. Aputukile kuchina kwakusuku Jimbushi jakanyombo.
+Chimbulu evwile sonyi. Aputukile kuchina nakuya kwakusuku.
 
 ##
-Olo lola echele kututa, yapwile wufuku, kaha mbulu ajimbalile. “Hiii hooo?” Ayevatilile wufuku. “Hiii hooo?” Wufuku wakumbwilile. Apwile wukawenyi. Kulikula yavene mu ngunja yakulikwata, aholokelele mutulo.
+Omu echele kuthuta, kukasumuka kunatoko, hiufuku, kaha Chimbulu ajimbalile. Ayevetelele ufuku, "Hi-i hwaaa" Mungulungunda walizu lyenyi wevwikile uze ufuku likha, "Hiii hooo?" Apwile ukhawenyi. Alivungile nge ngunja nakusavala tulo twakuyandangila.
 
 ##
-Mbulu ahindukile nakuwana mukulwane wa lunga wakuhona kwijiva nakumunonoka. Mbulu atalile mumeso awuze mukulwane wa lunga shikaho aputukile kwivwa chifwelelo.
+Chimbulu ahindukile nakuwana mukulwane walunga wakuhona kwijiva namunongamina nakumutala. Chimbulu atalile mumeso auze mukulwane walunga kaha evwile nakumuchima hwo-o.
 
 ##
-Mbulu ayile nakutwama nawuze mukulwane walunga, shikaho wuze mukulwane walunga atangishile mbulu jila jajivulu jakuyoyelamo. Mbulu evwililile nakulilongesa nge omu vamulwekele kuli mukulwane walunga. Valikafwile, shikaho vasehele hamwe.
+Chimbulu ayile nakutwama nauze mukulwane walunga, uze amunangwile Chimbulu jijila jajivulu jakuyoyelamo. Chimbulu evwililile nakulilongesa, nge mwalingile nawa uze mukulwane walunga. Valikafwile, kaha vasehele nakuwahilila nawa hamwe.
 
 ##
-Chimene chimwe, mukulwane wa lunga ahulishile Mbulu mangana amu mbate helu lya kawumbu.
+Likumbi limwe nachimene, uze mukulwane walunga alombele Chimbulu kumutwala helu lyaphili.
 
 ##
-Helu hahaze valezumukilile mutulo, Mbulu alotele ngwenyi mama yenyi avijile shikaho apwile nakumusanyika. Omu ahindukile.......
+Helu mukachi kamavwi valezumukilile mutulo, Chimbulu alotele naye naviji kaha ali nakumusanyika. Omu ahindukile...
 
 ##
-......mavwi ajimukile na sempa lyenyi, lunga wamukulwane.
+... mavwi ajimukile nasepa lyenyi hamwe, uze mukulwane walunga.
 
 ##
-Mbulu Wunonyi ejivile vyakulinga.
+Chimbulu jino ejivile vyakulinga.
 
 ##
-Mbulu awanyine mama yenyi, wukawenyi nakulishishimwina mwanenyi ajimbalile. Valinonekele Hali wumwe namukwavo hakashimbu kakanene. Shikaho valikumbachilile wumwe namukwavo nangolo.
+Chimbulu awanyine naye, ukhawenyi nalinongamina nakulinyenga hali mwanenyi. Valitalile usumbi halwola lwalunene. Nakulikwata mukasamba.
 
 ##
-Mbulu wa mwana na mama yenyi vakulile hamwe nakuwana jila jajivulu mwakutwamina. Chindende, vose vavajingulukile, chisaka chikwavo vaputukile kutwama.
+Uze mwana Chimbulu nanaye vanakolelela hamwe nakuwana jijila jajivulu jakutwamina hamwe. Chindende chindende mungalila yavo jithanga jikwavo jinaputuka kutwama muze.
 
 ##
 * License: [CC-BY]

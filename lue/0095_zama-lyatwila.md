@@ -1,40 +1,40 @@
-# Ama himutu wakulikwachisa!
+# Zama lyatwila!
 
 ##
-Songo yami walunga echi kusavala nge kwatoko chikuma, momo nguli wakulikwachisa!
+Songo yami walunga eji kukotokela chikuma kusavala nge kunatoko. Ami ngweji kuhindukanga washi mwomwo ngwapwa wakulikwachisa!
 
 ##
-Yami ngwechi kulingisanga musana wingile.
+Yami ngweji kunehesanga musana kwingila.
 
 ##
-"Wuli katanganyika wami wakuchimene, "Mama ahanjikile.
+Mama ahanjikile ngwenyi, "Wapwa uthanganyika yami wakuchimene."
 
 ##
-Ngwechi kulisanyisa yami lyavene, kangweshi nakutonda wukafoko.
+Ngweji kulisanyisa yami yavene, kangwechi kutonda wakungukafwakoko.
 
 ##
-Ngunakwijilila meya atuta na sopo yakalivumba.
+Ngunahase kusana meya atuta nasopo yakalivumba kamwaza.
 
 ##
-Mama nangwanukisa, kanda muvulyama kulikumbako."ngwakumbulula, "kweka, keshi yamiko!"
+Mama mwangwanukisa, "Kanda nauvulyama mazoko." Nangukumbulula, "Kwekha, kechi yamiko!"
 
 ##
-Halutwe lwakukosa, ngwameneka kaka yami wapwevo na tata pwevo, nakuva lweza kupwa na likumbi lyamwaza.
+Kukumisa kukosa, ngweji kumeneka khaka natataphwevo, nakuvalweza vatwame kanawa lize likumbi.
 
 ##
-Kaha ngwalivwalisa, "ngwakolo wunonyi mama, "ngwahanjika.
+Kaha nangulivwika ami yavene. Nanguhanjika ngwami, "Ngunakolo jino mama."
 
 ##
-Nguna hase kupata chikovelo chami nakukasa jisapato jami.
+Ngunahase kusoka jimota jami nakukasa mihya yajisapato jami.
 
 ##
-Kaha ngwechi kulwekanga songo yami walunga mijimbu yosena yakushikola.
+Kaha nangumona ngwami songo yami walunga nathachikiza mijimbu yosena yakushikola.
 
 ##
-Mushikola ngwechi kulikwachisa mujila yosena.
+Mushikola ngweji kulikwachisa mujijila josena.
 
 ##
-Ngwechi kulinganga evi vyamwaza vyosena makumbi osena. unonyi vyuma ngwazanga chikuma, kuhema kaha cheka kuhema!
+Ngweji kulinganga evi vyamwaza vyosena kumbi hikumbi. Oloze chuma ngwazanga chikuma, chapwa kuhema hema!
 
 ##
 * License: [CC-BY]

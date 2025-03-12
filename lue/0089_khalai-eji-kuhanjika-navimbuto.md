@@ -1,28 +1,28 @@
-# Khalai echi kuhanjika namitondo
+# Khalai eji kuhanjika navimbuto
 
 ##
-Owu yikiye khalai. ali namyaka yitanu nayivali. lijina lyenyi lyalumbunuka 'wamwaza' muchitundu chenyi, lubukusu.
+Ou ikhiye Khalai. Ali namyaka itanu nayivali yakusemuka. Lijina lyenyi lyalumbunuka "wamwaza" mulilimi lyenyi, Lubukusu.
 
 ##
-Khalai echi kuhinduka nakuhanjika kumitondo yama malalanja. "ove mutondo wama lalanja, kola mangana wutuhane malalanja akwiha amavulu.
+Khalai mwahinduka nakuhanjika kumutondo wamamalalanja. "Ove mutondo wamalalanja, kola mangana utuhane malalanja akuhya amavulu."
 
 ##
-Khalai echi kuya kushikola. mujila echi kuhanjika ku mwila. "ove mwila, soka namafo amatamba kanda mumako."
+Khalai mwaya kushikola. Mujila mwahanjika namwila. "Ove mwila, twalililaho kukola kaha kanda naumako."
 
 ##
-Khalai nahichi hamitondo yamwaza yakuvyekuma mafulawa. "enu mafulawa, twalilenuho kusoloka kanawa mangana ngumihake mumutwe wami."
+Khalai mwahita kujithemo jamuchipapa. "Enu jithemo, twalilenuho kusoloka kanawa mangana ngumihake mujikhambu jami."
 
 ##
-Ha shikola, khalai echi kuhanjika namitondo hakachi ka senge. "yenu mitondo, sokesenu mitango yayinene mangana tu tangilenga mumuvule wove."
+Hashikola, Khalai mwahanjika namutondo wahakachi kasenge. "Ove mutondo, soka mithango yayinene mangana tutangilenga mumuvule wove."
 
 ##
-Khalai echi kuhanjika na senge ya mitondo yashikola. "sokenu nakutohwa mangana muhonese vatu vavapi kwingila mukachi."
+Khalai mwahanjika nangiza yahashikola. "Ove ngiza likolezeze mangana uhonese vathu vavapi kwingila mukachi."
 
 ##
-Nge khalai nahiluka kwimbo kufuma kushikola, echi kutambukila mutondo wamalalanji. "malalanja ove anahi lyehi tahi?" khalai nahulisa
+Khalai omu mwahiluka kwimbo kufuma kushikola, mwatambukila mutondo wamalalanja. Khalai mwahulisa, "Malalanja ove anahi lyehi tahi?"
 
 ##
-"Malalanja achili amavisu," khalai nashishimwina. "nankukumona hamene mutondo wama lalanji," khalai nahanjika. "ngwatachikiza ngwami chayize lola mupwa na lilalanja lyakuhya lyami!"
+"Malalanja achili amavisu," Khalai mwahizumuka. "Nangukumona hamene ove mutondo wamalalanja," Khalai mwahanjika. "Phamo kuheta haze naupwa nalilalanja lyakuhya lyakunguhana!"
 
 ##
 * License: [CC-BY]

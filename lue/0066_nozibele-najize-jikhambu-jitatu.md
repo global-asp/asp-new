@@ -1,47 +1,47 @@
-# Nozivele na aswana asachu
+# Nozibele najize jikhambu jitatu
 
 ##
-makumbi akunyima, mapwevo vatatu vayile nakumbata jikunyi.
+Lwola lumwe kushikulu, maphwevo vatatu vayile nakuchava jikhunyi.
 
 ##
-lya pwile likumbi lizuma shikaho vayile ku lwiji nakusana. vahemene nakulichila meya nakuhala mumeya.
+Lyapwile likumbi lyaliyena, kaha ngocho vayile kukalwiji nakusana. Vahemene nakulichila meya nakuhala nawa.
 
 ##
-chaluvinda, vachimwene vene ngwavo vachelewele. vatuchilile kwimbo.
+Washi washi vakasumukile hikunatoko. Vahilukile washi kwimbo.
 
 ##
-omu vahetele kwakamwihi nalimbo, Nozibele ahakile livoko lyenyi kushingo. avulamine wusanga!" alambililile masepa jenyi mangana vamutwaleko. wunonyi masepa jenyi vahanjikile ngwavo kwalavile.
+Omu vahetele kwakamwihi nalimbo, Nozibele ahichishile livoko mushingo. Avulyamine usanga! "Ngunalombo muhiluke nayami!" alambililile masepa jenyi. Oloze masepa jenyi vakumbulwile ngwavo kunatoko.
 
 ##
-kaha Nozibele ahilukile kukalwiji wukawenyi. awanyine wusanga wenyi nakutuchila kwimbo. wunonyi ajimbalile muwufuku.
+Kaha Nozibele ahilukile kukalwiji ukhawenyi. Awanyine usanga wenyi nakuthuchila kwimbo. Oloze ajimbalile mumilima.
 
 ##
-muwusuku amwene myeji kwiza kufuma kuchisambwe. atuchililileko naku kokomwesako.
+Amwene muteleleji wakakahya uli nakufuminyina muchisambwe. Athuchililileko nakungongomweza.
 
 ##
-kulikomokela chenyi, kawa asokolwele chikolo nakuhanjika, " waku tonda yika?" ngwajimbala shikaho nwakutonda kwakusavala," Nozibele ahanjikile. "ingila nge chiku nankusuma!" Nozibele. kawa ahanjikile. kaha Nozibele engilile.
+Nge chiyovo, kawa asokolwele kuze kuchikolo nakuhanjika ngwenyi, "Unakutonda ika?" Nozibele akumbulwile ngwenyi, "Ngunajimbala kaha nguli nakutonda kwakusavala." Kawa ahanjikile ngwenyi, "Ingila, nge chiku nangukusuma!" Kaha Nozibele engilile.
 
 ##
-kawa ahanjikile, " nguhikile!" "unonyi kanda lyehi ngutelelyengaho kawa, " akumbulwile. "hika, nge chiku nakusuma!" kawa ahanjikile. shikaho Nozibele atelekele vyakulya vya kawa.
+Kaha uze kawa ahanjikile ngwenyi, "Ngutelekeleko!" Nozibele akumbulwile ngwenyi, "Oloze ami kanda lyehi ngutelekelengaho kawa," Kawa ahanjikile ngwenyi, "Teleka, nge chiku nangukusuma!" Shikaho Nozibele amutelekelele vyakulya uze kawa.
 
 ##
-kaha kawa ahanjikile, "ngwalileko kahela!" Nozibele akumbulwile, "kanda ngupangengaho lyehi kahela kakawa." panga kahela nge chiku nakusuma!" kawa ahanjikile. kaha Nozibele apangile kahela.
+Kaha kawa ahanjikile ngwenyi, "Ngwalileko kahela!" Nozibele akumbulwile ngwenyi, "Kanda ngwalengangaho lyehi kahela kakawa." Kawa ahanjikile ngwenyi, "Ala kahela, nge chiku nangukusuma!" Shikaho Nozibele alile kahela.
 
 ##
-Makumbi osena atelekelenga nakukombela nakukosela kawa. Likumbi limwe kawa ahanjikile, "Nozibele, lelo ngwatela kutambukilako masepa. komba muzuvo, teleka vyakulya shimbu kanda nguhiluke."
+Kumbi nge hikumbi atelekelelenga nakukombela nakukosela uze kawa. Likumbi limwe kawa ahanjikile ngwenyi, "Nozibele, lelo ngwatela kutambukilako masepa vamwe. Komba muzuvo, teleka vyakulya kaha kosa vyuma vyami shimbu kanda nguhiluke."
 
 ##
-Omu kawa ayile, Nozibele ambachile jikambu jitatu mumutwe wenyi. ahakile lukambu lumwe mwishi lyakahela, kambu yikwavo muzango. atuchililile kuzuvo jimbushi.
+Omu alingile kawa hanayi lyehi, Nozibele ambachile jikhambu jitatu kumutwe wenyi. Ahakile lukhambu lumwe mwishi yakahela, lukwavo kunyima yachikolo, kaha lumwe mumulaka. Kufumaho atuchililile kuzuvo jimbushi. 
 
 ##
-Omu kawa ahilukile, atondele Nozibele. "Nozibele, wulikuli?" atambakanyine. "nguli mwishi lyakahela," lukambu lwatete lwahanjikile. "nguli kuno kunyima ya chikolo," lukambu lwachivali lyahanjikile. "nguli kuno, muzango," lukambu lwamuchitatu lwahanjikile.
+Omu ahilukile kawa, atondele Nozibele. Atambakanyine ngwenyi, "Nozibele, uli kulihi?" Lukhambu lwatete lwahanjikile, "Nguli kuno, mwishi yakahela." Lukhambu lwamuchivali lwahanjikile, "Nguli kuno kunyima yachikolo." Lukhambu lwamuchitatu lwahanjikile, "Nguli kuno, mumulaka."
 
 ##
-kaha kawa ejivile Nozibele amongele. Kaha atuchililile kwimbo. Unonyi vayaya ya Nozibele vapwile namingweji kuhandamina. kawa alumukile nakuchina shikaho kavamumonako cheka.
+Kaha kawa ejivile ngwenyi Nozibele amwongele. Shikaho athuchililile kwimbo. Oloze vayaya ya Nozibele vapwile nakuvandamina kuze namingweji yayinene. Kawa alumukile nakuchina kaha kavamumweneko kufuma haze.
 
 ##
 * License: [CC-BY]
 * Text: Tessa Welch
 * Illustration: Wiehan de Jager
-* Translation: masho kaloza
+* Translation: Masho Kaloza
 * Language: lue
