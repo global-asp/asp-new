@@ -4,25 +4,25 @@
 Thuli o na le moriri o mokgutshwane.
 
 ##
-Anna o na le moriri o molelele. 
+Anna o na le moriri o molelele.
 
 ##
 Cathy o na le moriri o molelele ka ho fetisisa.
 
 ##
-Zama o lohile moriri wa hae. 
+Zama o lohile moriri wa hae.
 
 ##
-Baba o na le ditedu. 
+Baba o na le ditedu.
 
 ##
-Zanele o kamme moriri wa hae. 
+Zanele o kamme moriri wa hae.
 
 ##
-Thabo o kutile moriri ya hae. 
+Thabo o kutile moriri ya hae.
 
 ##
-Themba o beotse moriri wa hae. 
+Themba o beotse moriri wa hae.
 
 ##
 * License: [CC-BY-NC]
