@@ -51,6 +51,7 @@ tn | Setswana (South Africa)
 tn | Setswana (Namibia)
 toi | ChiTonga
 tum | Tumbuka
+xh | isiXhosa
 xog | Lusoga
 yo | Yoruba
 zne | Zande
