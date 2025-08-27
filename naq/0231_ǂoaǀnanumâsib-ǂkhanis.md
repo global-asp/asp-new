@@ -7,22 +7,22 @@
 Sores ge ǀgamsa.
 
 ##
-ǂOaxa I ge a.
+ǂOaxa i ge a.
 
 ##
-ǃÂuxa I ge a.
+ǃÂuxa i ge a.
 
 ##
-ǃKhai I ge a.
+ǃKhai i ge a.
 
 ##
-ǀApi I ge ra.
+ǀApi i ge ra.
 
 ##
-ǃGuru I ge ra.
+ǃGuru i ge ra.
 
 ##
-Tita ǃGaoǃhanaba ta ra mû.
+ǃGaoǃhanaba ta ra mû.
 
 ##
 * License: [CC-BY-NC]
