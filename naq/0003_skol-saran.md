@@ -22,7 +22,7 @@ Nē kausikha ge ǃnubu.
 Xawe ra ge nē ǁharora ǀasa.
 
 ##
-ǃamkuse ǂâu te hâ.
+ǃAmkuse ǂâu te hâ.
 
 ##
 * License: [CC-BY-NC]
