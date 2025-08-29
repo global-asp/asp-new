@@ -1,13 +1,13 @@
 # ǂNuruǁnuib ǀkha kurusa ǀgôan xa
 
 ##
-ǀGuia I ge ǂkhî ǀaokhoen xa ge ǁanhe hâ i.
+ǀGuia i ge ǂkhî ǀaokhoen xa ge ǁanhe hâ i.
 
 ##
-ǁÎn ge tātsē ge ǃkham ¡gu tama hâ i. ǁÎn ge ǁîn îra oms tsî ǃhanab ǃnâ gere hui.
+ǁÎn ge tātsē ge ǃkham ūgu tama hâ i. ǁÎn ge ǁîn îra oms tsî ǃhanab ǃnâ gere hui.
 
 ##
-Xawen ge a ǂkhāsa, ǀaes ǀg¡se ǀhurusa.
+Xawen ge a ǂkhāsa, ǀaes ǀgūse ǀhurusa.
 
 ##
 ǁÎn ge ǃoes ǃnâ ǀgui sîsenna dī ǁkha, ǁîn ǂnuruǁuib ǃkha kurusa xui-ao!
@@ -25,7 +25,7 @@ Xawe ge kaise ǃonkhao! ǁÎb ge nē ǀgamsa sores xa ge tsuni.
 ǃGâsab ta tsunibe ǀgaus xakha ge ǂnuruǁuib ǀkha kurusa ǃgâsakha ge ǃoa.
 
 ##
-Xawe kha ge ǀawehe ¡hâ. ǁÎkha ge narus tsuni hâ ǂnuruǁnuib dis ǀkha anisa ge kuru.
+Xawe kha ge ǀawehe ūhâ. ǁÎkha ge narus tsuni hâ ǂnuruǁnuib dis ǀkha anisa ge kuru.
 
 ##
 ǁÎkha ge ani ǃgâsaroba ǀgapi ǃhommi ai ge ǃapa-u.
