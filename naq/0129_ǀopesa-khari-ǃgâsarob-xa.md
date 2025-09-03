@@ -25,5 +25,5 @@ Tare-i ǃaroma ta nēti ǀgaisase ra sîsenba... ... ti ǃgâb ra ǀhuru hîna?
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

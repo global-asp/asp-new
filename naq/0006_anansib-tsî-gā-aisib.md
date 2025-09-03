@@ -22,5 +22,5 @@ Supuseb ge ǀgapigab kōse ra kharo. Xaweb ge sâ tsî ra âiǃgâ, "Tita gom ho
 * License: [CC-BY]
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

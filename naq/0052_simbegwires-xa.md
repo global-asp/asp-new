@@ -52,5 +52,5 @@ Sao ra wekhēs ge Anitasa Simbegwires, mikisas tsî ǀgôan tsîna ûǁares ǃar
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

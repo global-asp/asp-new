@@ -52,5 +52,5 @@ Oa dawasen ra bēb ge ǃkhaese ra ǀoa. ǀGūǁaeb ge ǁîba aioas ǁga nî ǃna
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

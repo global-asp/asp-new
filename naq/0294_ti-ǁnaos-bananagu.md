@@ -34,5 +34,5 @@ Ega ǁnātsekam ǃuia ra ge ti îra, tsî ti ǁnaos tsîna ge gaite. ǃAromasa t
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

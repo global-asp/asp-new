@@ -43,5 +43,5 @@ Arib ge oaǀkhīb ge o Nozibelesa gere ôa. "Nozibelese, mâpas hâ?" tib ge ge 
 * License: [CC-BY]
 * Text: Tessa Welch
 * Illustration: Wiehan de Jager
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

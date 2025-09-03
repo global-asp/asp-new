@@ -28,5 +28,5 @@ Tsî Gomas ge ǁaes tsîna dī tama autos ra hā ǁaeb ai. ǁÎs ǁaebas ra ū d
 * License: [CC-BY]
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser, Ingrid Schechter
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

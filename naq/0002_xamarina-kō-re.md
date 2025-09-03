@@ -28,5 +28,5 @@ Gari-aob tsîn ra "shhh!" ti mî.
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

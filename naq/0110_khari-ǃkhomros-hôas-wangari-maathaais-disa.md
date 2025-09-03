@@ -40,5 +40,5 @@ Wangaris ge 2011ǁî kurib ǃnâ ge ǁō, xawe da ga îxa haide mû ǁaeb hoaba 
 * License: [CC-BY]
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq

@@ -28,5 +28,5 @@ Mû-aon ge khîb xa ra ǃhau. ǁNā tsēsa xu di ge skoli tawa axade aiǃgaisa �
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Maureen So-oabes
+* Translation: Maureen Merley So-Oabes
 * Language: naq
