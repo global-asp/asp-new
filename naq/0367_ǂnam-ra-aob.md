@@ -1,4 +1,4 @@
-ǂNam ra aob
+# ǂNam ra aob
 
 ##
 Satertaxtsēs ge tsîb ge Ricoba ǂharuguǃkhaib ǁga mamasa ǀkha ra ī. ǁÎb ge ǂharuguǃkhaib ǁga ǃgûs xa ǃgâibahe. ǂHaruguǃkhaib ge a ǁkhoaxa! ǂGui xūnats ge ra mû.
@@ -25,7 +25,7 @@ Ob ge ra ǁnâu! ǀGui khoe-i ge ǁkhoaxase ‘Amazing Grace' amsa ra ǂnuni. ǁ
 ǂNam ra aob ge khoena ǃoa kō tama hâ. ǁÎb ge mari-e kō tama hâ. ǁÎb ge ǀguis khami ī xū-i tsîna kō tama hâ. ǁÎb ge maride dōb ǃnâ tsanana tsî ǁîb ǁhōs ǃnâ ra ǂgā.
 
 ##
-Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī."  Ricob ge noxopa ǂgī khoe-e mû tsâ tama hâ. ǁÎb ge ra ǃao. ǁÎb ge mamasas di horokhoesa ai ra ǃkhōbasen tsî tsaurase ra dî "Mama, ǁnā aoba a ǂgī?"
+Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī." Ricob ge noxopa ǂgī khoe-e mû tsâ tama hâ. ǁÎb ge ra ǃao. ǁÎb ge mamasas di horokhoesa ai ra ǃkhōbasen tsî tsaurase ra dî "Mama, ǁnā aoba a ǂgī?"
 
 ##
 ǁÎs ge ǁîb di ǃomsa ra ū. "Î," tis ge ra ǃeream, "î, ǁîb ge a ǂgī. Kō re, ǁîb ge ǃuri haiba ūhâ. ǂGui ǂgī khoen ge ǃuri haiba ra tani. ǁÎb ge haiba ra sîsenū îb ān tsî doab ǃnâ hâ xūna hōǃâ.
@@ -52,13 +52,13 @@ Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī."  Ricob ge 
 “Xaweb ge ǁîba ǂkhanin tamas ka io ǂhôaǂkhanina a khomai ǁoa," tib ge Ricoba ra mî. "ǂKhanin ge hâ ǂgī khoen ǃaroma xoasana. ǁÎn ge mîdi ǃâs ǃnâ ǂnaorode ǀkha ra xoahe hîa ǃkharaga xoamûde ra ǂâibasende. ǁÎdi ge kodedi khami ra sîsen."
 
 ##
-“ǁîba mû tama hâ hîa mâti a khomai ǁkhā?"  "ǁÎb ge ǀkhunugu ǀkha ra khomai. ǁÎb ge ǂnaorode ǁîb di ǀkhunuǂaodi ǀkha ra ǀkhanase xoamûde ra ǂanǂui, sats sa mûra ǀkha ra dīs khami."
+"ǁîba mû tama hâ hîa mâti a khomai ǁkhā?" "ǁÎb ge ǀkhunugu ǀkha ra khomai. ǁÎb ge ǂnaorode ǁîb di ǀkhunuǂaodi ǀkha ra ǀkhanase xoamûde ra ǂanǂui, sats sa mûra ǀkha ra dīs khami."
 
 ##
 Ricob ge ra buru ǂgī khoen tsēkorope xūna a dī ǁkhā ǃkhais xa; ǃās ǃnâ ǃgûmâs, amde ǂnams tsî khomais tsîna.
 
 ##
-ǁÎb mamasas ge ra mî, "Hoarahūs ǃkharagagusib sats tsî ǂgī khoen ǁaegu hâb ge sats ge ǁkhā tsî ǁîn ge a mû ǁoa."  "Tita ge a mû ǁkhā xawe ta ge a ǂnam ǁoa," tib ge Ricoba ra ǀnom.
+ǁÎb mamasas ge ra mî, "Hoarahūs ǃkharagagusib sats tsî ǂgī khoen ǁaegu hâb ge sats ge ǁkhā tsî ǁîn ge a mû ǁoa." "Tita ge a mû ǁkhā xawe ta ge a ǂnam ǁoa," tib ge Ricoba ra ǀnom.
 
 ##
 * License: CC BY-NC-SA
