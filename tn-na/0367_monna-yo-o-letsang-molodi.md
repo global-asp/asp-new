@@ -60,6 +60,7 @@ Rico a hakgamala go akanya gore batho ba ba sa boneng ba kgona go dira sengwe le
 ##
 Mmaagwe a mo bolelela, "Pharologanyo fa gare ga gago le motho wa sefofu ke gore o a bona ene ga a bone." Ke kgona go bona, mme ga ke kgone go letsa molodi o monate jaaka monna wa sefofu." Rico a nyenya.
 
+##
 * License: CC BY-NC-SA
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
