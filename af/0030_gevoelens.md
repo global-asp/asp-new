@@ -4,7 +4,7 @@
 My hart voel baie dinge.
 
 ##
-Ek is gelukkig as my ouma in die aand vir ons stories vertel.
+Ek voel gelukkig as my ouma in die aand vir ons stories vertel.
 
 ##
 Ek voel laf as ek met my vriend speel.

@@ -10,16 +10,16 @@ Toe hulle die einde van die reis bereik, het die bestuurder hulle gevra om hulle
 Hond het 'n bietjie ekstra betaal, omdat hy nie die regte kleingeld gehad het nie.
 
 ##
-Die bestuurder wou net Hond sy kleingeld teruggee, toe Bok weghardloop sonder om enigiets te betaal.
+Die bestuurder wou net vir Hond sy kleingeld teruggee, toe Bok weghardloop sonder om enigiets te betaal.
 
 ##
 Die bestuurder was baie kwaad. Hy het weggery sonder om vir Hond sy kleingeld te gee.
 
 ##
-Dis hoekom, vandag nog, Hond na 'n motor hardloop om binnekant te loer op soek na die bestuurder wat hom sy kleingeld skuld.
+Dis hoekom Hond, vandag nog, 'n motor jaag om binnekant te loer op soek na die bestuurder wat hom sy kleingeld skuld.
 
 ##
-Bok hardloop weg as hy 'n motor hoor. Sy is bang sy sal tronk toe gaan omdat sy nie haar reisgeld betaal het nie.
+Bok hardloop weg as sy 'n motor hoor. Sy is bang sy sal tronk toe gaan omdat sy nie haar reisgeld betaal het nie.
 
 ##
 En Koei is nie gepla wanneer 'n motor aankom nie. Koei neem haar tyd om oor die pad te stap, want sy weet dat sy haar reisgeld ten volle betaal het.

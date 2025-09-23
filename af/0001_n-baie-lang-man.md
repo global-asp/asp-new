@@ -19,7 +19,7 @@ Hierdie man was te lank!
 Hy het 'n baie lang skoffelsteel gemaak.
 
 ##
-Hy het baie hoë deure gemaak.
+Hy het baie hoë deurrame gemaak.
 
 ##
 Hy het 'n baie lang bed gemaak.

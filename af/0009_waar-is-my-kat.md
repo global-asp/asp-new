@@ -4,25 +4,25 @@
 Waar is my kat?
 
 ##
-Is dit onder die bed?
+Is hy onder die bed?
 
 ##
-Is dit bo-op die klerekas?
+Is hy bo-op die klerekas?
 
 ##
-Is dit agter die rusbank?
+Is hy agter die rusbank?
 
 ##
-Is dit langs die vullisblik?
+Is hy langs die vullisblik?
 
 ##
-Is dit binne-in die mandjie?
+Is hy binne-in die mandjie?
 
 ##
-Is dit buite die huis?
+Is hy buite die huis?
 
 ##
-Hier is dit!
+Hier is hy!
 
 ##
 * License: [CC-BY-NC]

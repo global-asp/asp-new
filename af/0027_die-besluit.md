@@ -4,7 +4,7 @@
 My dorpie het baie probleme gehad. Ons het in 'n lang ry gestaan om van een kraan af water te kry.
 
 ##
-Ons het gewag vir ander om kos te skenk.
+Ons het gewag vir kos wat deur ander mense geskenk word.
 
 ##
 Ons het vroeg reeds ons huise gesluit teen diewe.
@@ -22,22 +22,22 @@ Jong seuns het in die dorpie rondgeloop terwyl ander op plase gaan werk het.
 Wanneer die wind gewaai het, het afvalpapier aan die bome en heinings gehang.
 
 ##
-Mense is deur glas wat onverskillig neergegooi is, gesny.
+Mense is deur glasstukke wat onverskillig neergegooi is, gesny.
 
 ##
-Eendag, het die kraan leeg geloop en ons houers was leeg.
+Eendag het die kraan leeggeloop en ons houers was leeg.
 
 ##
-My pa het van huis tot huis geloop om mense na 'n dorpsvergadering toe te nooi.
+My pa het van huis tot huis geloop om mense na 'n dorpsvergadering uit te nooi.
 
 ##
 Die mense het onder 'n groot boom bymekaargekom en geluister.
 
 ##
-My pa het opgestaan en gesê: "Ons moet saamwerk om ons probleme op te los".
+My pa het opgestaan en gesê: "Ons moet saamwerk om ons probleme op te los."
 
 ##
-Die agt-jarige Juma het op 'n boomstomp gesit en geskree: "Ek kan help om op te ruim."
+Die agtjarige Juma het op 'n boomstomp gesit en geskree: "Ek kan help om op te ruim."
 
 ##
 'n Vrou het gesê: "Die vrouens kan my help om groente te kweek vir kos."

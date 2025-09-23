@@ -10,7 +10,7 @@ Hierdie trui is groot.
 Hierdie sak is groot.
 
 ##
-Die gordel is...
+Hierdie gordel is...
 
 ##
 Hierdie hoed is klein.

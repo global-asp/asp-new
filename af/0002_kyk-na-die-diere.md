@@ -1,10 +1,10 @@
 # Kyk na die diere
 
 ##
-Hou die diere dop.
+Kyk na die diere.
 
 ##
-Die koei sê: "Moe."
+Die koei sê: "Moooe."
 
 ##
 Die bok sê: "Mê, mê."

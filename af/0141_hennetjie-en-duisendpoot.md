@@ -1,40 +1,40 @@
-# Die Hennetjie en die Duisendpoot
+# Hennetjie en Duisendpoot
 
 ##
-Hennetjie en Duisendpoot is vriende. Maar hulle kompeteer altyd teen mekaar. Op 'n dag besluit hulle om sokker te speel om te bepaal wie die beste speler is.
+Hennetjie en Duisendpoot was vriende. Maar hulle het altyd teen mekaar gekompeteer. Op 'n dag het hulle besluit om sokker te speel om te bepaal wie die beste speler is.
 
 ##
-Hulle het sokkerveld toe geloop en begin hulle wedstryd. Hennetjie was vinnig, maar Duisendpoot was vinniger. Hennetjie skop ver, maar Duisendpoot skop verder. Hennetjie het knorrig begin raak.
+Hulle het sokkerveld toe geloop en met hulle wedstryd begin. Hennetjie was vinnig, maar Duisendpoot was vinniger. Hennetjie het ver geskop, maar Duisendpoot het verder geskop. Hennetjie het knorrig begin raak.
 
 ##
-Hulle het besluit om doelskoppe die volgende te doen. Duisendpoot was heel eerste die doelwagter. Hennetjie het net een doel geskop. Daarna is dit Hennetjie se beurt om die doelpale te verdedig.
+Hulle het besluit om te kyk wie die meeste doele kon skop. Duisendpoot was eerste die doelwagter. Hennetjie het net een doel geskop. Daarna was dit Hennetjie se beurt om die doel te verdedig.
 
 ##
-Duisendpoot skop die bal en teken een punt aan. Duisendpoot het die bal gedribbel en teken nog 'n doel aan. Duisendpoot het 'n kopbal gespeel en teken nog 'n doel aan. Duisendpoot het altesaam vyf doele aangeteken.
+Duisendpoot het die bal geskop en een punt aangeteken. Duisendpoot het die bal gedribbel en nog 'n doel aangeteken. Duisendpoot het 'n kopbal gespeel en nog 'n doel aangeteken. Duisendpoot het altesaam vyf doele aangeteken.
 
 ##
-Hennetjie was woedend dat sy verloor het. Sy was 'n slegte verloorder. Duisendpoot het begin lag omdat sy vriendin so 'n groot bohaai opskop.
+Hennetjie was woedend omdat sy verloor het. Sy was 'n slegte verloorder. Duisendpoot het begin lag omdat sy vriendin so 'n groot bohaai opskop.
 
 ##
 Hennetjie was so kwaad dat sy besluit het om haar bek groot oop te maak en Duisendpoot in te sluk.
 
 ##
-Terwyl Hennetjie rustig huis toe loop, loop hy vir Mamma Duisendpoot raak. Mamma Duisendpoot vra bekommerd: "Het jy my kind gesien?" Hennetjie het nie 'n antwoord gehad nie. Mamma Duisendpoot was baie bekommerd.
+Terwyl Hennetjie rustig huis toe geloop het, het sy vir Mamma Duisendpoot raakgeloop. Mamma Duisendpoot het gevra: "Het jy my kind gesien?" Hennetjie het nie geantwoord nie. Mamma Duisendpoot was baie bekommerd.
 
 ##
-Net toe Hennetjie begin loop hoor Mamma Duisendpoot 'n klein stemmetjie. "Help my Mamma!" skree die stem. Mamma Duisendpoot kyk soekend rond en luister versigtig. Die stem het vanuit Hennetjie se maag gekom.
+Net toe Hennetjie begin loop, het Mamma Duisendpoot 'n klein stemmetjie gehoor. "Help my Mamma!" het die stem geskree. Mamma Duisendpoot het soekend rondgekyk en versigtig geluister. Die stem het uit Hennetjie se maag gekom.
 
 ##
-Mamma Duisendpoot skree: "Gebruik jou unieke kragte, my kind!" Duisendpote kan 'n slegte reuk en aaklige smaak afgee. Hennetjie begin siek voel.
+Mamma Duisendpoot het geskree: "Gebruik jou unieke krag, my kind!" Duisendpote kan 'n slegte reuk en aaklige smaak afgee. Hennetjie het begin siek voel.
 
 ##
-Hennetjie breek ‘n wind op. Sy het gesluk en gee ‘n spoeg. Toe nies sy en begin hoes en hoes. Duisendpoot proe verskriklik sleg.
+Hennetjie het 'n wind opgebreek. Toe het sy 'n sluk gegee en gespoeg. Toe het sy genies en begin hoes en hoes. Duisendpoot was walglik!
 
 ##
-Hennetjie hoes en proes totdat die duisendpoot weer sy verskyning maak vanuit Hennetjie se maag. Mamma en Duisendpoot het vinnig teen ‘n boomstam opgeklim om te gaan wegkruip.
+Hennetjie het gehoes en geproes tot sy die duisendpoot wat in haar maag was, uitgehoes het. Mamma en Duisendpoot het vinnig teen 'n boomstam opgeklim om te gaan wegkruip.
 
 ##
-Van daardie dag af, is hoenders en duisendpote vyande.
+Van daardie dag af is hoenders en duisendpote vyande.
 
 ##
 * License: [CC-BY]

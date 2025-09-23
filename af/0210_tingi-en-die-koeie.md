@@ -4,7 +4,7 @@
 Tingi woon by sy ouma.
 
 ##
-Hy het altyd saam met haar die koeie opgepas.
+Hy het saam met haar die koeie opgepas.
 
 ##
 Eendag het soldate gekom.
@@ -16,10 +16,10 @@ Hulle het die koeie weggevat.
 Tingi en sy ouma het weggehardloop en gaan wegkruip.
 
 ##
-Hulle het in die bosse weggekruip tot donker.
+Hulle het in die bosse weggekruip tot na donker.
 
 ##
-Net toe het die soldate teruggekom.
+Toe het die soldate teruggekom.
 
 ##
 Ouma het gou vir Tingi onder die blare weggesteek.

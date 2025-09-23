@@ -10,7 +10,7 @@ Die son is warm.
 Dit is winderig.
 
 ##
-Dis bewolk.
+Dit is bewolk.
 
 ##
 Dit is koud.
@@ -22,7 +22,7 @@ Dit reën.
 Daar is donderweer.
 
 ##
-Ek sien die reënboog.
+Ek sien ‘n reënboog.
 
 ##
 * License: [CC-BY-NC]

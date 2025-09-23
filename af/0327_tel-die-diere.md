@@ -1,19 +1,19 @@
 # Tel die diere
 
 ##
-Een olifant is oppad om water te gaan drink.
+Een olifant is op pad om water te gaan drink.
 
 ##
 Twee kameelperde gaan om water te drink.
 
 ##
-Drie wildebeeste en vier voëls gaan ook om water te drink.
+Drie buffels en vier voëls gaan ook om water te drink.
 
 ##
-Vyf impalas en ses wilde varke loop na die water toe.
+Vyf impalas en ses wildevarke loop na die water toe.
 
 ##
-Sewe zebras hardloop na die water toe.
+Sewe sebras hardloop na die water toe.
 
 ##
 Agt paddas en nege visse swem in die water.
@@ -22,7 +22,7 @@ Agt paddas en nege visse swem in die water.
 Een leeu brul. Hy wil ook water drink. Wie is bang vir die leeu?
 
 ##
-Een olifant drink saam die leeu water.
+Een olifant drink saam met die leeu water.
 
 ##
 * License: [CC-BY]
