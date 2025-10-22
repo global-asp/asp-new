@@ -45,6 +45,7 @@ rw | Kinyarwanda
 sg | Sango
 so | Somali
 st | Sesotho
+suk | Sukuma
 sw | Kiswahili
 ti | Tigrinya
 tn | Setswana (South Africa)
