@@ -19,6 +19,7 @@ dag | Dagbani
 diu | Rumanyo
 fr | French
 gaa | Ga
+gog | Kigogo
 hz | Otjiherero
 ki | Kikuyu
 kj | Oshikwanyama
