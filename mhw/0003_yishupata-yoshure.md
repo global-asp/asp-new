@@ -7,7 +7,7 @@ Oghu muthithi ne ghure.
 Oyu djeshi ne mukuru.
 
 ##
-Odhi ndjato ne dhikuru.
+Edhi ndjato ne dhikuru.
 
 ##
 Oghu muya ne...
@@ -16,17 +16,17 @@ Oghu muya ne...
 Oyu hutji ne mumbiru.
 
 ##
-Oyi yikamishi ne yifupi.
+Eyi yikamishi ne yifupi.
 
 ##
 Ene agha makuha ne mapya.
 
 ##
-... kuni rikanya thiwana.
+... kunirikanya thiwana.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

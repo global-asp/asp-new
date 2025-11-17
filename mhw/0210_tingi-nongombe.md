@@ -1,41 +1,41 @@
-# Tingi no ngombe
+# Tingi nongombe
 
 ##
-Tingi gha tungire na nyakudyendi ghomukamadi.
+Tingi ghatungire nanyakudyendi ghomukamadi.
 
 ##
-Nga ha kunganga ngombe dhawo pofotji.
+Ngahakunganga ngombe dhawo pofotji.
 
 ##
-Diyuwa dimweya maporitha gheyire.
+Diyuwa dimweya hashurundate heyire.
 
 ##
-Hana shimbire ngombe dhawo.
+Hanashimbire ngombe dhawo.
 
 ##
-Tingi na nyakudyendi ghomukamadi ha tjirire no hondire.
+Tingi nanyakudyendi ghomukamadi hatjirire hakonde.
 
 ##
-Ha kondire mudiputa kate ghuthiku.
+Hondire mudiputa kate ghuthiku.
 
 ##
-Munyimadhopo ha maporitha haka hukire karo.
+Munyimadhopo hashurundate hakahukire karo.
 
 ##
-Nyakudya Tingi ghomukamadi ghondekire Tingi mumahako.
+Nyakudya Tingi ghondekire Tingi kwishi dhomahako.
 
 ##
-Muporitha ghumweya gha mu djatire, ene yene pore.
+Mushurundate ghumweya ghamudjatire, ene 'yene pore.
 
 ##
-Apa ha monine ha Tingi na nyakudyendi ghomukamadi kambenene kokawa, ha shwayire mudiputa.
+Apa hamonine haTingi nanyakudyendi ghomukamadi eshi yinakutura, hakuhokorire.
 
 ##
-Ha nyomine thipore ha yende kudighumbo.
+Hanyomine muthipore hatambe kudighumbo.
 
 ##
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

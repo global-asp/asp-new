@@ -1,32 +1,32 @@
 # Yirama yange
 
 ##
-Kukona ni yi tjirithe.
+Kukona nitjire nayo.
 
 ##
-Kukona ni yi reyithe.
+Kukona nireghe nayo.
 
 ##
-Kukona ni yi kinithe.
+Kukona nikine nayo.
 
 ##
-Kukona ni yi yowanithe.
+Kukona niyoghane nayo.
 
 ##
-Kukona ni yi reyareyithe.
+Kukona nireghareghe nayo.
 
 ##
-Kukona ni yi thitithe.
+Kukona nithite nayo.
 
 ##
-Kukona ni yi shendukithe.
+Kukona nishenduke nayo.
 
 ##
-Ene mbadi wa kukona kuyitukitha.
+Ene mbadi wakukona nituke nayo.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

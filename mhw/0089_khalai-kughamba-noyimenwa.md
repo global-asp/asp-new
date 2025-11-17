@@ -1,32 +1,32 @@
 # Khalai kughamba noyimenwa
 
 ##
-Oyu ne Khalai. Myaka dhendi ne kwokowadi. Dina dyendi kwatongora eshi 'ghomuwa' mundimi dhawo, Lubukusu.
+Oyu ne Khalai. Myaka dhendi ne kwokowadi. Dina dyendi dyatongora eshi 'shaghunongo' mundimi dhendi, Lubukusu.
 
 ##
-Khalai kupinduka no kughamba no thitondo thomaghumi. "Nakanderera we thitondo thomaghumi, kure wangu ghutupeko maghumi ghomengi ghopyuu."
+Khalai kupinduka nokughamba nothitondo thoghughumi. " "Nakanderera, owe thitondo thoghughumi, kure wangu nokutupako maghumi ghomengi ghopyuu."
 
 ##
-Khalai kuna kuyenda kushure. Mundhira dhendi kughamba no muhonyi. "Nakukanderera muhonyi, kure thinamahako no mbadi ghukukute."
+Khalai kunakuyenda kushure. Mundhira dhendi kughamba nomuhonyi. " Nakukanderera owe muhonyi, kure thinamahako shemwa nowakukuta."
 
 ##
-Khalai kuna kupita mitemo. "Namukanderera mwadhimitemo, mutemune vene kengeyo podigho eshi ni kuture muhuki dhange."
+Khalai kunakupita mitemo. " Namukanderera amwe mwamitemo, mutemune vene kengeyo podigho eshi nimuturange muhuki dhange."
 
 ##
-Kushure, Khalai kuna kughamba no thitondo ethi thakara pakatji koditete." Nakukanderera thitondo, yandje mite dhishokuru, podiyo eshi tutoyere mumumvure.
+Kushure, Khalai kunakughamba nothitondo ethi thakara pakatji koditete." Nakukanderera owe thitondo, yandje mite dhoye dhishokuru, podigho eshi tutoyere mwimi dhomumvure ghoye."
 
 ##
-Khalai kuna kughamba no ruthito oru ha dhingumutwedha kushure dhawo. "Nakanderera kure nongcamu no shingeke hanu hoyikaritha yoyimango mbadi hangene mo."
+Khalai kunakughamba noruthito oru hadhingumwetwedha shure dhawo. "Nakanderera, kure nongcamu noshingeke hanu hoyikaritha yoyimango mbadi hengenemo."
 
 ##
-Khalai pa kuhuka kudighumbo pa kashwagha kushure ne, kudhingura thitondo thomaghumi. "Maghumi ghoye ne shimbe mbadi pyuu ndi?" ghana kwipura Khalai.
+Khalai pakuhuka kudighumbo pakushwagha kushure, aye kudhingura thitondo thoghughumi. "Maghumi ghoye ne shime mbadi pyuu ndi?" dyoghanakwipura Khalai.
 
 ##
-"Maghumi gho maheya ne shime thinamahako," mumeho gha Khalai. "Ñanyi naku na kukenge peghundha thindondo thomaghumi," ghana kughamba Khalai. "Pamweya ñanyi ghu kare ko no dighumi dyange dyo pyuu."
+"Maghumi ghomaheya ne shime meshu," ghahethere Khalai. "Ñanyi nakunakukenge peghundha thitondo thoghughumi," dyoghanakughamba Khalai. "Pamweya ñanyi ghukareko nodighumi dyange dyopyuu."
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

@@ -1,32 +1,32 @@
-# Yinu munye ghuna kutenda?
+# Yinu munye ghunakutenda?
 
 ##
-Ame kuna kwimba.
+Ame kunakwimba.
 
 ##
-Aye kuna kuravera moro.
+Aye kunakurumeritha nonyara.
 
 ##
-Ame kuna kukanda.
+Ame kunakukanda.
 
 ##
-Aye kuna kukughorora.
+Aye kunakukughorora.
 
 ##
-Aye kuna kwitha.
+Aye kunakwitha.
 
 ##
-Ame kuna kumorora.
+Ame kunakuhutha.
 
 ##
-Aye kuna kuterera.
+Aye kunakutegherera.
 
 ##
-Yinu munye ghuna kutenda?
+Yinu munye ghunakutenda?
 
 ##
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

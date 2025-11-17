@@ -1,32 +1,32 @@
-# Ṅombo, Mbwa naNgombe
+# Ñombo, Mbwa, naNgombe
 
 ##
-Ṅombo,Mbwa naNgombe ne hakarire hashere hohakuru. Diyuwa dimweya hayendire kuruyendo muthihaghuto tho kutapera.
+Ñombo, Mbwa, naNgombe hakarire hakaghushere mwene. Diyuwa dimweya hayendire muruyendo nothihaghuto thokuruwera.
 
 ##
-Apa ha kakumine oku hatambire, muhingi gha wepurire hafute futo dhawo. Ngombe ye ghatapire.
+Apa hakakumine oku hatambire, muhingi ghawepurire haruwere mukudi wawo. Ngombe ye ghatapire.
 
 ##
-Mbwa gha futire gho mengi kupitakana agha gha roghera kutapa yoyishi mbadi gha karire no masherenyi gho kurikanyena.
+Mbwa gharuwerire ghomengi kupitakana agha gharoghera kutapiwa yoyishi mbadi ghakarire nomasherenyi ghokuroghera.
 
 ##
-Muhingi kwa shanine gha tape tjindji dhaMbwa apa gha tjirire Ṅombo oku ye mbadi ghana futu.
+Muhingi momughatape tjindji kwaMbwa apa ghatjirire Ñombo oku aye mbadi ghanaruwera.
 
 ##
-Muhingi gha tokotire thikuma. Gha hingire ghakayende no mbadi ghatapire tjindji dhaMbwa.
+Muhingi ghatokotire thikuma. Ghahingire ghakayende nombadi ghatapire tjindji dhaMbwa.
 
 ##
-Yodiyo keho, ngambi dyarero, Mbwa ne kutjidha thihaghuto ghunokera mwishi gha wane ya muhingi gha mukorota masherenyi ghendi.
+Yodigho keho, ngambi dyodyarero dino, Mbwa ne kutjirera kuthihaghuto ghanokere mwishi ghawane oya muhingi ghamukorota tjindji dhendi.
 
 ##
-Ṅombo ye ne kutjira kumughuma gho thihaghuto. Ghayapa eshi ṅanyi ha kumukwate yoyi ghapirire kufuta.
+Ñombo 'yene kutjira pakuyuva mughuma ghothihaghuto. Ghayapa eshi ñanyi hakumukwate yoyi ghapirire kuruwera ruyendo rwendi.
 
 ##
-No Ngombe ye ne mbadi gha kudhekeranga ngeshi thihaghuto thina kwiya. Ngombe kukuranga pakutjinaghana thitavura yoyishi gha futire ye mukuyara.
+Ngombe 'yene mbadi ghakudhekeranga pakwiya thihaghuto. Ngombe kukuranga pakutjinaghana pathitavura yoyishi gharuwere 'ye ruyendo rwendi.
 
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
 * Illustration: Marleen Visser, Ingrid Schechter
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

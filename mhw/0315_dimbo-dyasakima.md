@@ -1,62 +1,62 @@
 # Dimbo dyaSakima
 
 ##
-Sakima ghatungire nawakuru wendi na minendi ghomukamadi. Awo hatungire padyango dyakatughuru gho mutungi. Ndhuwo dhawo dhomuhonyi ne dhakarere kughuhura ghomiyira dhoyitondo.
+Sakima ghatungire nawakuru wendi naminendi ghomukamadi. Awo hatungire pananda dhakatughuru ghonyami. Ndhuwo dhawo dhomuhonyi dhakarere kughuhura ghombadi dhomiyira dhoyitondo yokukuranda.
 
 ##
-Apa gha karire Sakima no myaka dhihatu, ghakorwire no gha fire meho. Sakima ne mwanuke oyu ghakarire noghudimuki.
+Apa ghakarire Sakima myaka dhihatu, ghakorwire noghatuyukire meho ghendi. Sakima ghakarire mungaghu ghoghutari thikuma.
 
 ##
-Sakima nga tendanga yinu yoyingi eyi nga hapiranga kutenda hanuke ho myaka dhokwokofotji. Thitamenedhi, aye ngahungamananga nohakuru homumukunda no kukuvureka yinu yomudyo.
+Sakima ngatendanga yinu yoyingi eyi ngapiranga kutenda harumyana homyaka kwokofotji. Thitamenedhi, aye ngahungamananga nohakuru homumukunda nokukuvureka yinu yomudyo.
 
 ##
-Hakuru waSakima nga ha rughananga mudimbo dya mutungi. Nga hatundanga mudimbo mathikuthiku no kahuka ghuthiku. Sakima nga thiyaranga na minendi ghomukamadighana.
+Hakuru waSakima ngaharughananga mudighughumbo dyanyami. Ngahatundanga mudighumbo mathikuthiku nokahuka runguro thikuma. Sakima ngathigharanga naminendi ghomukamadighana.
 
 ##
-Sakima gha hakire kwimba membo. Diyuwa dimweya nyina ghamwipure, "Kupi wa kuhongera membo gha, Sakima?"
+Sakima ghahakire kwimba membo. Diyuwa dimweya nyina ghamwipurire, "Kupi ghunakuhongeranga agha membo, Sakima?"
 
 ##
-Sakima gha huthire, "Kughaneyanga vene, nawe. Ame kughayuva mumutwi wange no kughemba."
+Sakima ghahuthire eshi, "Ghakushughumuka ghakunigheranga vene, nawe. Ame kughayuva mumutwi wange nokughemba."
 
 ##
-Sakima gha hakire kwimbera minendi gho mukamadi, thikumapo, apa nga yuvanga ndhara. Minendi yu nga mu teghereranga gha kwimba dimbo dyendi edi gha hakire thikuma. Aye nga kunyunganyunganga kudimbo di dyo kuhengaghura.
+Sakima ghahakire kwimbera minendi, thikumapo, apa ngafanga kanyombwe. Minendi ngamuteghereranga edi ghanakwimba dimbo dyendi edi ghahakire thikuma. Aye ngakunyunganyunganga kodi dimbo dyomungeya ghokumuhengaghura.
 
 ##
-"Kukona ghudimbe karo Sakima," minendi nga mukanderanga. Sakima nga tawanga no kumwimbera karo rorwingi.
+"Sakima, kukona ghudinimbire karo ndi," dyongamukandereranga minendi. Sakima ngatawanga nokudimuhukurukera karo rorwingi.
 
 ##
-Runguro rumweya apa ha kahukire hakuru wendi kudimbo, mbadi ha ghambaghurire. Sakima gha dimukire eshi poyidi yina hokoka.
+Runguro rumweya apa hakahukire hakuru wendi kudighughumbo, mbadi haghambaghurire. Sakima ghadimukire eshi poyidi yoyiyi eyi yinakakahokoka.
 
 ##
-"Ghukutu munye ghu di po, nawe, tate?" ghepure Sakima. Sakima gha yuvire eshi mwana mutungi gho mungaghu ne ghana yongara. Mutungi yu gha gha yuvire dingungwa no gha tokotire.
+"Ukutu munye ghudipo, nawe, tate?" Dyoghepuririre Sakima. Sakima ghayuvire eshi mwana nyami ghomungaghu ne ghanayongara. Oyu nyami ghayuvire dingungwa noghatokotire.
 
 ##
-"Kukona ni ka mwimberepo. Pamweya ṅanyi gha shamberere karo,"Sakima gha tongwere hakuru wendi. Ene hakuru wendi ha mukanane. "Ayene mutungi thikuma. Owene gho mungaghu gho mukunga vene. Kughayara shi dimbo dyoye ne ṅanyi di ka mughamwene?"
+"Ame kukona nikamwimbere. Pamweya ñanyi ghakashamberere karo," dyoghatongwerire Sakima hakuru wendi. Ene hakuru wendi hamunuthire. "Ayene mutungi thikuma. Owene ghomungaghu ghomukunga vene. Edi ghunakughayara eshi dimbo dyoye ñanyi dikamughamwene ndi?"
 
 ##
-Ngambikemo, Sakima mbadi gha kuhupwere. Minendi gha mukwatithireko. "Membo gha Sakima ne kunihengaghura me ngeshi ndhara. Naye mutungi ṅanyi gha kamuhengaghure."
+Ngambikemo, Sakima mbadi ghakuhupwerire. Minendi ghamukwatithireko. "Membo ghaSakima ne kunihengaghura shemwa ngeshi amene ndhara. Membo ghapo ñanyi ghakahengaghure oya katughuru yoshemwa, kukona ghakahengaghure oya katughuru ghomutungi."
 
 ##
-Diyuwa dyokurandako, Sakima ghepure minendi gha mutware kudimbo dyamutungi.
+Diyuwa dyokurandako, Sakima ghepuririre minendi ghamutware kunanda dhamutungi.
 
 ##
-Ghemanine pamuve dho dikende dyodikuru no ghatangire kwimba dimbo dyendi edi gha hakire thikuma. Munyima dhoruvedhe, mutungi gha shwayithire mutwi wendi padikende dyodikuru.
+Ghemanine pamuve dhodikende dyodikuru dyondhugho noghatangire kwimba dimbo dyendi edi ghahakire thikuma. Katekandhi, mutungi ghashwaghithire mutwi wendi padikende diya dishokuru.
 
 ##
-Haruwani hashayekire eyi hatendire. Hategherere kudimbo dyaSakima dyoditowi. Ene katughuru yofotji gha ghambire,"Noyofotji temba gha kukona kuhengaghura muhona. Oyu mungaghu gho mukunga kughayara shi ṅanyi gha muhengaghure?"
+Harughani hashaghekire eyi harughanine. Hateghererire kudimbo dyoditowi dyaSakima. Ene katughuru yofotji ghaghambire eshi, "Noyofotji temba oyu ghatwetha kuhengaghura nyami. Oyu mungaghu ghomukunga ne kunakughayara eshi ñanyi ghatwethe kumuhengaghura ndi?"
 
 ##
-Sakima gha manine kwimba dimbo dyendi no gha pirukire gha kayende. Ene mutungi yu ghashwayire wangu no kuninga eshi, "Nakandera wimbe karo."
+Sakima ghamanine kwimba dimbo dyendi noghapirukire ghathighuke. Ene mutungi ghashwaghire wangu nokuninga eshi, "Nakanderera, wimbe karo."
 
 ##
-Poro ruvedhe, hatutughuru hawadi heyire hana dhamuna munu pathirongo. Awo hawanine mwana mutungi hana mupumura no kumuthiya kuthitavura.
+Panako dhodho, hatutughuru hawadi heyire hanadhamuna munu pathirongo. Awo hashekire mwana mutungi hanandasha nokumuthigha kumbadi dhombadi dhothitavura.
 
 ##
-Mutungi yu gha shamberire thikuma mukumona mwanendi karo. Ghafutire Sakima ko yi gha muhengaghurire. Ghatwarire mwanendi na Sakima kuthipatera podiyo shi gha kukone kumona karo.
+Mutungi ghashamberire thikuma pakumona mwanendi karo. Gharuwerire Sakima kumahengawero. Munyima, ghatwarire mwanendi naSakima kuthipangero podigho eshi mboghamone karo.
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga, Servasius M. Ndjunga
 * Language: mhw

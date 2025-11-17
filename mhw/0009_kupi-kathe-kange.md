@@ -4,29 +4,29 @@
 Kupi kathe kange?
 
 ##
-Mwishi dho ghudidi kadi ndi?
+Mwishi dhoghudidi kadi ndi?
 
 ##
-Pawiru dho thimbangupungwero ndi?
+Pawiru dhothimbangupungwero ndi?
 
 ##
-Kunyima dho thipura ndi?
+Kunyima dhothipura ndi?
 
 ##
-Pepi no thingongoro tho yitjoro ndi?
+Pepi nothingongoro thoyitjoro ndi?
 
 ##
 Mukakoño kadi ndi?
 
 ##
-Panunda dho ndhugho kadi ndi?
+Panunda dhondhugho kadi ndi?
 
 ##
-Okano pano!
+Kano pano!
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath, Ingrid Schechter
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

@@ -1,56 +1,55 @@
-# Diyuwa edi na shwaghire kudighumbo ni yende muñurumbara
+# Diyuwa edi natambire kuñurumbara
 
 ##
-Kumbighana ghemanine mumukunda wetu noghakarire nohanu hohengi awa hadhinekire. Pamuve pakarire murongero dhodhingi thikuma dhokudhineka. Hadhineki hakuyererire ghutoya mena kukutha ku hana kuyenda makumbi ghagho.
+Besa ghomumbiru ghemanine mumukunda wetu noghakarire nohanu hohengi gha rongerire thikuma. Pamuve payarire mirongererero dhodhingi thikuma. Hadhineki hakughererire ghutoya mena kukutha oku ghanakuyenda mabesa ghawo.
 
 ##
-"Ñurumbara! ñurumbara! Kuna kuyenda kuditokera!" Na yuvire mudhineki ghana kukuyerera. Oya ne yokumbi nashana kutjaghera.
+"Ñurumbara! Ñurumbara! Thaditokera!" Dyonayuvire mudhineki ghanakukugherera. Oyane yobesa oyu nashanine kuperama.
 
 ##
-Kumbi ghomuñurumbara ghashanine kuyara, ene hengi hanu awa ha kuthindadhekire ha dhine. Hamwe haturire murongero dhawo mwishi dhokumbi. Hamwe haturire dhawo pawiru dhokumbi.
+Besa ghokuñurumbara ghashanine kuyara, ene hanu hashawingi hakuthindarakanyinemo eshi haperamemo. Hamwe haturire miirongerero dhawo mwishi dhobesa. Hamwe mirongerero hanyomedhire mwimi dhobesa pawiru dhoyipura.
 
 ##
-Hadhini ghohapya ha shimbire tukarata twawo ghushana kokuhungumana mukumbi oyu ghakarire hanu ghohengi. Hambuyama awa ha karire nohanuke awa turire kudyango dyodiwa muruyendo ru rorure.
+Hakaruyendo hohapya hafungaterire tutikiti twawo ghushana kokuhungumana mubesa ghokuyara thikuma. Hakamadi hohana hawaturire thiwana ghuwaroghitha thiwana ghukuroghithera ruyendo rorure.
 
 ##
-Nakuthinenekire kumbadi dhodikende. Munu oyu gha hungumanine pepi nange ghafungaterire thipapero thothinamahako nongcamu. Aye ghavatire yisandari yokukurupara, baki ghokudjovoka no ghamonekire woma.
+Nakuthindarakanyine kumbadi dhothitarero. Munu oyu ghahungumanine pepi nange ghafungaterire nongcamu pulasitiki ghothinamahako. Aye ghashupashutire yisandari yokukurupara, baki ghokudjovoka nowamukarire woma.
 
 ##
-Na nokere panunda dhokumbi no na ghayarire shi kuna kuthiya mukunda wange, dyango edi na kurera. Ame pakuyenda kuñurumbara.
+Nanokerire panunda dhobesa nonadimukire eshi kunakuthigha mukunda wange, dyango edi nakurera. Ame kunakunakuyenda kuñurumbara dhishokuru.
 
 ##
-Yokudhinadheka nayo yapwire nohadhini wahe ghahungumanine. Hakakughuritha shime hengenenine mukumbi ha ghurithe yinu yagho kwawadhini. Kehe yu ghaghambire ghukuyerera yinu eyi ha karire nayo yo kughuritha. Mañando gha ghaniyuvekere yira ghodisheve.
+Yokudhinadheka nayo yapwire nohakaruyendo wahe hahungumanine. Hakakughuritha shime hathinenekire kwingena mubesa haghurithe yinu yawo kwawakaruyendo. Kehe'yu ghaghambire ghukugherera yinu eyi ghakarire nayomughuro. Agha maywi ghaniyukerire yira ghodisheve.
 
 ##
-Hadhini hohapu ha ghurire yinwa, oku hamwe haghurire yindjakaghura yoyimbiru no ha tangire kundjakura. Awa ha pirire masherenyi, kenge yira me, kwa rorere vene.
+Hakaruyendo hongandji haghurire yinwa, oku hamwe haghurire yindjakaghura yoyipu nohatangire kundjakura. Awa hapirire masherenyi, yira ya'me, twarorere vene.
+
+Eyi yiviyadhoka yandendukire apa ghapembithire thipembitho thobesa, thineghedhitho eshi kunakwimana keho. Mudhineki ghakughererire haghurithi hatundemo.
 
 ##
-Yipepa yi yayipire kumuyoyo ghokumbi, thineghedhitho eshi kuna kwimana. Mudhineki gha harukere haghurithi ha tundemo.
+Haghurithi hakuthindadhekire mundhira dhawo dhokushwagha mubesa. Hamwe hatapire tjindji kwawakaruyendo. Hamwe hayerekire kughuritha rokuhurerera yinu yoyingi.
 
 ##
-Haghurithi ha kuthindadhekire mundhira dhawo dhokushwagha mukumbi. Hamwe ha tapire tjindji kwakaruyendo. Hamwe hayerekire kughuritha ro kuhurerera yinu yoyingi.
+Apa ghatundire besa pathitishini, nanokerire panunda dhothitarero. Natangire kughayadhara ngeshi mbonakahuka karo kumukunda wange.
 
 ##
-Apa ghatundire kumbi po kwimekera, na no kere panunda dhodikende. nayedhekerire eshi mbona huka karo kumukunda wange.
+Apa rwarundurukire ruyendo, mwishi dhobesa mwatangire kuyenya thikuma. Naferere meho ghange ghughayara eshi pamwe ñanyi niporokere muturo.
 
 ##
-Apa twa twarire no ruyendo rwetu kughutho, mwishi dhokumbi mwa tangire kuyenya thikuma. Na ferere meho ghange ghughayara shi pamwe ñanyi ni rare.
+Ene maghano ghange ghahukire kudighumbo. Nawe mboghanakara mumakungero mwene ndi? Tudimba twange mbotunawana masherenyi ndi? Minange ghomurumyana mboghanavuruka kuvetera yitondo yange ndi?
 
 ##
-Ene maghano ghange gha hukire kudighumbo. Nawe mboghana kara mumakungero mwene ndi? Tudimba twange mbotuna wana masherenyi ndi? Minange ghomungaghu mboghana vuruka kuvetera yitondo ndi?
+Mundhira, nakwatire dina dyodyango oku ghatungire mwedyange muñurumbara dhishokuru. Naporokerire muturo oku ame pakudivunguta. Navungutavungutire edi dina kare apa naporokerire nato.
 
 ##
-Mundhira, na kwatire dina dyodyango oku gha tungire mwedyange muñurumbara dhodhikuru. Shime na di vuradhokire opa na rarire.
+Munyima dhomaviri kwokonne, nayakumukire kukayoghototo kopakuyuva yitha yawakaruyendo awa hatambire kumukunda wange. Natjomboririre ndjato dhange nonashurukire mubesa.
 
 ##
-Munyima dhomaviri kwoko nomanne, nayakumukire ghukuyerera no kwitha hadhini awa ha yendire kumukunda wange. Natjombore ndjato dhange no na reghire ni shwaghe mukumbi.
-
-##
-Kumbi ghokuhuka ghayarire wangu-wangu. Tamba hemane ghahuke kudiva. Thomudyo thikuma kwange kenge pano, thakarire thokutanga kushana ndhugho dhamwedyange.
+Besa ghokuthighuka ghayarire wanguwangu. Tamba ghemane hatambe thodiva. Thomudyo thikuma kwange kenge pano ne thakarire thokutanga kushana dighumbo dyamwedyange.
 
 ##
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga , Servasius M. Ndjunga
 * Language: mhw

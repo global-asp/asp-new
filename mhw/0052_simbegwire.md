@@ -1,56 +1,56 @@
 # Simbegwire
 
 ##
-Apa gha fire nyina Simbegwire, gha tokotire thikuma. Wiha Simbegwire gha kondjire po pa gha hureramu kupakera mwanendi thinga. Kamananakamanana ha kuhongire karo kushamberera ngambi kenge papirire nyina Simbegwire. Kehe mathikuthiku nga ha hungumananga no kukuvureka yodiyuwa dyo paghutho. Kehe runguro nga ha terekanga murarero pofotji. Munyima kokuyogha turonga pofotji, wiha Simbegwire nga mughamwenanga noyirughana yendi yoshure.
+Apa ghafire nyina Simbegwire, ghatokotire thikuma. Wiha Simbegwire ghakondjire popa ghahurera mukukunga mwanendi. Kamananakamanana hakuhongire karo kushamberera ngambi kenge papirire nyina Simbegwire. Kehe mathikuthiku ngahahungumananga nokukuvureka yodiyuwa dyokurandako. Kehe runguro ngahaterekanga murarero pofotji. Munyima kokuyogha turonga pofotji, munyima wiha Simbegwire ngamughamwenanga noyirughana yendi yoshure.
 
 ##
-Diyuwa dimweya, wiha Simbegwire gha hurere kwiya kudimbo kupitana mayuwa gho maheya. "Kupi ghudi mwanange?" ghethire. Simbegwire gha tjirere kwa wihe. Ghemanine apa gha monine eshi wihe ghana kwata dyoko dya mbuyama. "Nashana ghu kuwanekere na munu ghumwe gho mudyo, mwanange. Oyu ne yo Anita," gha ghambire ghu menya-menya.
+Diyuwa dimweya, wiha Simbegwire ghahurere kwiya kudimbo kupitana mayuwa ghomaheya. "Kupi ghudi mwanange?" ghethire. Simbegwire ghatjirere kwawihe. Ghemanine apa ghamonine eshi wihe ghanakwaterera dyoko dyamukamadi. "Nashana ghukuhangane namunu ghumwe ghomudyo, mwanange. Oyu ne yoAnita," ghaghambe ghumenyamenya.
 
 ##
-"Moro Simbegwire, wiho gha nitongwera yoyingi yokuhatera kukoye," gha ghambire Anita. Ene kadi gha menyune no kukwata temba dyoko dya mukamadighana yu. Wiha Simbegwire gha hafire no kushamberera. Gha ghambire yo kuhatera ku kutunga kwagho pofotji hahatu, no ngepi edi ya kukara yipara yawo. "Mwanange, nakurupera eshi ñanyi wa ku mutambure Anita eshi nyoko," gha ghambire.
+"Moro Simbegwire, wiho ghanitongwera yoyingi yokuhatera koye," ghaghambe Anita. Ene mbadi ghamenyunine nokukwata temba dyoko dyamukamadighana 'yu. Wiha Simbegwire ghanyanyukire nokushamberera. Gha ghambire yokuhatera kutunga kwawo pofotji hahatu, nongepi edi yakukara yipara yawo. "Mwanange, nakurupera eshi ñanyi wakumutambure Anita eshi nyoko," dyoghaghambire.
 
 ##
-Yipara ya Simbegwire ya kutjindjire. Mbadi gha wanine karo noruvedhe ro kuhungumana na wihe mathikuthiku. Anita nga mupanga thikuma yirughana yo mudighumbo no nga ghayanga kate nga piranga kurughana yirughana yendi yoshure runguro. Nga yendanga gha karare pa kumana vene kudya murarero. Thinu ethi nga thi muhengaghuranga ne ngugho gho marudhi gha shawingi oyu gha mupire nyina. Wiha Simbegwire mbadi gha dimukire eshi mwanendi ne mbadi gha shambererire.
+Yipara yaSimbegwire yakutjindjire. Mbadi ghawanine karo noruvedhe rokuhungumana nawihe mathikuthiku. Anita ngamupanga thikuma yirughana yomudighumbo nongaghayanga kate ngapiranga kurughana yirughana yendi yoshure parunguro. Ngayendanga ghakarare pakumana vene kudya murarero. Thinu ethi ngathimuhengaghuranga ne ngugho ghomarudhi ghashawingi oyu ghamupire nyina. Wiha Simbegwire mbadi ghancenunine eshi mwanendi ne ghakarire notokotoko.
 
 ##
-Apa twa pitire po tughonda totupu, wiha Simbegwire gha wa tongwerire eshi ñanyi gha kutunde mudimbo mayuwa ghongandji. "Na kona kuyenda kuruyendo no yirughana," gha ghambire. Ene, nadimuka eshi ñanyi mwa ku kukunge. Rupara rwa Simbegwire rwa ndjembukire ene, wihe mbadi gha yinongononine. Anita mbadiko eyi gha ghambire. Naye mbadi gha shambererire.
+Apa twapitirepo tughonda totupu, wiha Simbegwire ghawatongwerire eshi ñanyi ghakutunde mudighumbo mayuwa ghongandji. "Nakona kuyenda kuruyendo noyirughana," dyoghaghambire. "Ene, nadimuka eshi ñanyi mwakukukunge." Rupara rwaSimbegwire rwarembukire, ene wihe mbadi ghayinongononine. Anita mbadi ghakumburireko. Nayetemba mbadi ghashambererire.
 
 ##
-Yinu ya kukutere Simbegwire. Ngeshi mbadi ghana mana yirughana yendi yo padighumbo, ngambi nga kushivana, Anita ne kumupumura. Karo pa kudya murarero, mbuyama yu ngadyanga yidya yoyingi kuthiyerapo Simbegwire tukukumwena totumbirumbiru. Kehe ghuthiku Simbegwire nga diranga kate kukotha, gho ndhondhera ngugho wa nyina.
+Yinu yakukuterire Simbegwire. Ngeshi mbadi ghanamana yirughana yendi yopadighumbo, ngambi kunashivana, Anita ne kumupumura. Karo pakudya murarero, mukamadi 'yu ngadyanga yidya yoyingi kuthiyerapo Simbegwire tuñukumuna totumbirumbiru. Kehe ghuthiku Simbegwire ngadiranga kate kukotha, ghundhondhera ngugho wanyina.
 
 ##
-Mathikuthiku ghamweya, Simbegwire gha rarere no mbadi gha pindukire wangu."Owe mukamadighana sha ghuva!" Anita gha kugherire. Gha kokire Simbegwire pa ghudidi. Ngugho yu sha ghuwa gha kakatere ku dimboha, no gha djadjukire muyipindhi yiwadi.
+Mathikuthiku ghamweya, Simbegwire ghararere nombadi ghapindukire wangu. "Owe mukamadighana shaghuva!" Ghakugherire Anita. Ghakokire Simbegwire paghudidi. Ngugho oyu shaghuwa ghakakatere kudimboha, noghadjadjukire muyipindhi yiwadi.
 
 ##
-Simbegwire gha tokotire. Gha tokore kushwagha no kutjira mudimbo. Gha shimbire yipindhi yo nguwo wa nyina, kurongera yidya yimweya no gha tjwayukire mudimbo. Gha kuthire ndhira edhi gha yendire wihe.
+Simbegwire ghatokotire. Ghatokorire kushwagha nokutjiramo mudighumbo. Ghashimbire yipindhi yonguwo wanyina, kurongera yidya yimweya noghatjwayukire mudighumbo. Ghakuthire ndhira edhi ghayendire wihe.
 
 ##
-Apa rwa karire runguro, gha dhinine kuthitondo tho thire pepi no rware no gha tendire ghudidi pa mite dho thitondo. Apa gha rarire, ghembire: "Nawe, nawe, nawe, wa nithiya. Wa nithiya no mbadi karo wakahuka. Tate ne mbadi gha nihaka karo. Nawe, diyuwa munye wa kahuka? Wa nithiya."
+Apa rwakarire runguro, ghadhinine kuthitondo thothire pepi norware noghatendire ghudidi pamite dhothitondo. Apa ghararire, ghembire: "Nawe, nawe, nawe, wanithigha. Wanithigha nombadi karo wakahuka. Tate ne mbadi ghanihaka karo. Nawe, diyuwa munye wakahuka? Wanithigha."
 
 ##
-Mathikuthiku pa kuva diyuwa, Simbegwire ghembire karo dimbo di ya. Apa heyire hambuyama kurware no ha yoye yitere yawo hayuvire dimbo dyo thiñeke dya kushwayera kuthitondo tho thire. Ha ghayarire eshi ngwa mupepo wa kununganyunga mahako, no ha twikere no yirughana yawo. Ene yofotji gho po hambuyama ghaterere thiwana kudimbo di.
+Mathikuthiku diyuwa dyokurandako, Simbegwire ghembire karo dimbo diya. Apa heyire hakamadi kurware nohayoye yitere yawo hayuvire dimbo dyothidiro dinakushwagherera kuthitondo thothire. Haghayarire eshi ngwa mupepo ghunakunyunganyunga mahako, noharundurukire noyirughana yawo. Ene yofotji ghopapawo ghategherere thiwana kudimbo 'di.
 
 ##
-Mbuyama yu gha kengire kuwiru dho thitondo. Apa gha monine mukamadighana yu no yipindhi yo ngugho wendi, gha dirire, "Simbegwire mwana mukurwange!" Ha mbuyama hamweya ha shayekire kuyogha no ha ghamwenine Simbegwire kushuruka kuthitondo thi. Nyinaghana gha ndhondherire mukamadighana yu no kumuhengaghura.
+Mukamadi 'yu ghakapukire kuwiru dhothitondo. Apa ghamonine mukamadighana 'yu noyipindhi yongugho wendi, gha dirire, "Simbegwire mwana mukurwange!" Hakamadi hamweya hashayekire kuyogha nohaghamwenine Simbegwire kushuruka kuthitondo 'thi. Nyinaghana ghandhondherire mukamadighana 'yu noghayerekire kumuhengaghura.
 
 ##
-Nyinaghana Simbegwire gha mushimbire kudimbo dyendi. Gha mupire Simbegwire yidya yo yiyenyu, no gha muvungerire mughudidi no ngugho wa nyina. Ghuthiku gho Simbegwire gha dirire apa gha rarire. Ene, maruhodhi gho yishamberera. Gha dimukire eshi nyinaghana ñanyi gha ku mupakere thinga no ku mukunga.
+Nyinaghana Simbegwire ghamushimbire kudighumbo dyendi. Ghakapire Simbegwire yidya yoyiyenyu, noghamuvungerire mughudidi nongugho wanyina. Ghuthiku 'gho Simbegwire ghadirire apa ghararire. Ene, maruhodhi ghoyishamberera. Ghadimukire eshi nyinaghana ñanyi ghakumupakere thinga nokumukunga.
 
 ##
-Opa gha kahukire wiha Simbegwire kudimbo, kuna wana ndhugho dhendi ne mukunguru. "Yinye ya hokoka, Anita?" Ghepurire no mutjima gho kundundumena. Mbuyama yu gha tjwathanithire eshi Simbegwire ne gha tjira. "Ku nashanine eshi gha nikutekere, gha ghambire. Ene ngwa nakarire ghukenya thikuma. Wiha Simbegwire gha shwayire mudimbo no kupirukera mutara gho rware. Gha twikere kuyenda kumukunda wa minendi mu kepura ngeshi ha mumona Simbegwire.
+Apa ghakathighukire wiha Simbegwire kudighumbo, kunawana ndhugho dhendi mukunguru. "Nye yahokoka, Anita?" Ghepurire nomutjima ghokundundumena. Mukamadi ghatjwathanithire eshi Simbegwire ne ghatjwayuka. "Nashanine eshi ghanikutekere," dyoghaghambire. "Ene pamwengwa nakarire ghukenya thikuma." Wiha Simbegwire ghashwaghire mudighumbo nokupirukera mutara ghorware. Ghayendire kumukunda waminendi ghomukamadi mukepura ngeshi hamumonako Simbegwire.
 
 ##
-Simbegwire gha pepire no ha yiro yendi no gha kambekedhire wihe kokayenda. Gha yapire eshi ngwa ghana pata, no gha tjirere mwishi dho ndhugho no konda. Ene wihe gha muyendere no kumutongwera, "Simbegwire, nga ghu wana nyoko gho muwa no ghunongo. Oyu gha kuhaka no kukutjwathana. Na hafa no na kuhaka." Hakuyuvire eshi Simbegwire ñanyi gha karange kwa nyinaghana yu kate popa gha kuhimena.
+Simbegwire ghakarire muyipepaghura apa ghakambekedhire wihe kokakoyenda. Ghomapire eshi pamwengwa ghanamupatera, noghatjirere mwimi dhondhugho ghunda. Ene wihe ghamuyendere nokumutongwera, "Simbegwire, ngaghuwana nyoko ghomuwa noghunongo. Oyu ghakuhaka nokukutjwathana. Ghunanishambereritha nonakuhaka." Hakuyuvire eshi Simbegwire ñanyi ghakarange koyu nyinaghana kare popa ghakuhimena.
 
 ##
-Wihe nga ka mudhinguranga kehe diyuwa. Diyuwa dimweya, gheyire na Anita. Gha ghonyonine dyoko dyendi kwa Simbegwire. "Dishesha shemwa mwanuke, na kwirire," gha dirire. "Kukona ghu nipe ruvedhe na kuyereke karo ndi?" Simbegwire gha kengire wihe oyu gha karire no rupara ro yikudhekera. Simbegwire gheyire kughutho kamanana no kundhondhera Anita.
+Wihe ngakamudhinguranga kehediyuwa. Diyuwa dimweya, gheyire naAnita. Anita ghaghonyononine dyoko dyendi kwaSimbegwire. "Dishesha shemwa mwanuke, nakwirire," dyoghadirire. "Kukona ghunipe ruvedhe nakuyereke karo ndi?" Simbegwire ghakengire wihe oyu ghakarire norupara royikudhekera. Simbegwire gheyire kughutho kamanana nokundhondhera Anita.
 
 ##
-Thivike tho kurandako, Anita gha noyire ha Simbegwire, no yiro yendi na nyinaghana kudighumbo dyagho. Mawe mukandi! Anita gha terekire yida yoyihe eyi gha haka Simbegwire, no keheyuno gha dire kate kukuta. Munyima hanuke hapepire oku hakuru wo ne pakukuvureka. Simbegwire gha shambererire no gha tjimapire. Gha tokorire eshi tamba-tamba gha kahuke kudighumbo gha kuna tunge na wihe na nyina ghothitumbwena.
+Thivike thokurandako, Anita ghanoyire haSimbegwire, noyiro yendi nanyinaghana kudighumbo dyawo. Mawee, mukandi! Anita ghaterekire yidya yoyihe eyi ghahaka Simbegwire, nokeheyuno ghadire kate kukuta. Munyima hanuke hapepire oku hakuru 'wo ne pakukuvureka. Simbegwire ghashambererire noghatjimapire. Ghatokorire eshi tambatamba ghakahuke kudighumbo ghakunatunge nawihe nanyina ghothitumbwena.
 
 ##
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

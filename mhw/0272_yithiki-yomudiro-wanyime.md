@@ -1,50 +1,50 @@
-# Nyime noMuyendhi
+# Yithiki yomudiro waNyime
 
 ##
-Thithimwetwedha thi kwa tangire mumamyaka ghokarekare ogha ghana kapita apa ngayi tunganga yiyama nohanu pofotji. Thiku dhiya hanu mbadi nga ha kara no ghughambero ku mudiro. Nga ha dyanga yidya yawo wishu. Nyime pithendi yodiye gha karire no ngcamu dhomudiro.
+Thithimwetwedha 'thi kwatangire mumyaka dhokarekare edhi dhinakapita apa ngayitunganga yiyama pofotji nohanu. Thikudhiya hanu mbadi ngahakara noghughambero kumudiro. Ngahadyanga yidya yawo wishu. Nyime pithendi yodighe ghakarire nongcamu kumudiro.
 
 ##
-Hanu no yiyama ya konganine pofotji ha turithepo dighanano. "Yinye shotu kone kutenda tu shimbe mudiro kwa Nyime podigho eshi tu tereke yidya yetu?" He purire. Ghoha tokore ha taterere kate ghuthiku ghoha tangire kwimba nokwimba, kukanda no kukanda, witha yomuhe. "Mwiye no mukine netu. Mwiye no mukine netu."
+Hanu noyiyama yakonganine pofotji haturithepo dighanano. "Yinye shotukone kutenda tushimbe mudiro kwaNyime podigho eshi tutereke yidya yetu?" dyohakwipudhurire. Hatokorire hataterere kate ghuthiku nohatangire kwimba nokwimba, kukanda nokukanda, witha yomuheya. "Mwiye nomukine netu. Mwiye nomukine netu."
 
 ##
-Yiyama yisha wingi ya shwaghire mumaputa noyi kupakerere noyikine nokwimba. Nyime gha retire tutondo tokutakitha mudiro. Gha tu takire tutondo, kutaka nokutaka. Kapupikamanana kamwithighana kathimutukure kwishi dhoyitondo. Nyime gha fudhire kumwithi no gha turireko muhonyi. Kamudiroghana ka tumbukire no kehe yuno gha retire thikunyi thendi. Kapupikamanana wahe ha tangire kukina ghudhinguruka mudiro.
+Yiyama yishawingi yashwaghire mumaputa noyikupakerere muyikina nokwimba. Nyime gharetire tutondo tokutakitha mudiro. Ghatakire tutondo, kutaka nokutaka. Kapupikamanana kamwithighana kathimutukire kwishi dhoyikunyi. Nyime ghafudhire mwithi noghaturirepo muhonyi ghokukuta. Kamudiroghana katumbukire nokeheyuno gharetire thikunyi thendi. Kapupikamanana wahe hatangire kukina ghudhinguruka mudiro.
 
 ##
-Kadimba gha karire mashendu no thiyama thokutambuka wanguwangu. Hanu gho ha ghambire kwendi eshi, "Oku atwe kuna kwimba kuno no oku nyime kuna kukina netu, owe ne yende ghu kashimbe tutondo twendi tokutakitha mudiro gho katjire." Kadimba gha tjombore tutondo twaNyime to kutakitha mudiro gho gha katjirire. Mbadi ya mu tombokire yoyishi Nyime ghamu kwatire kadimba gho gha kahuthire tutondo twendi tokutakitha mudiro.
+Kadimba ghakarire shaghunyanyami nomashendu shemwa. Hanu haghambire kwendi eshi, "Oku atwe pakwimba kuno ndani oku Nyime kunakukina netu, wakona kushimba yithiki yendi yomudiro nokutjira." Kadimba ghatjomborire yithiki yaNyime yomudiro nokatjira. Mbadi yamutombokire yoyishi Nyime ghamukwatire nokumukungura yithiki yendi yomudiro nokayihutha.
 
 ##
-Nyime ghembire dimbo dyoku kutanaghura: "Kwange ne mbadi ghukukutu. Ame mbadi na kara no ghukukutu. Kukona ni kudye no ghuhuki ghoye, ame kukona ni kudye ngambi nga mbadiko ghuhuki. Mbadi na kara no ghukukutu. Mwaheya mwe ne mwa yidya yange."
+Nyime ghembire dimbo dyokukutanaghura eshi: "Kwange 'mene mbadiko ukukutu. Ame mbadi nakara noukukutu. Kukona nikudye noghuhuki ghoye, ame kukona nikudye ngambi mbadiko ghuhuki. Mbadi nakara noukukutu. Mwaheya panone mwayidya kukwange."
 
 ##
-Mapi kukona gha tjire no kuregha wanguwangu. Hanu ghoha mu tongwere eshi, "Oku Nyime kuna kukina no kwimba netu, tjombore tutondo twendi to kutakitha mudiro ghotjire."
+Menye kukona kutjira nokuregha thikuma. Hanu hamutongwerire eshi, "Oku Nyime kunakukina nokwimba netu, wakona kushimba yithiki yendi yomudiro nokutjira."
 
 ##
-Apa ha kinine nokwimba, Mapi gho gha tjombore tutondo tokutakitha mudiro no kureghera muthipumbu. Ene Nyime gha ghambire eshi, Pashanye na pirera kuyuva putukuputuku ko makondo gho Mapi munyima dhange?"
+Apa hakinine wimba, Menye ghatjomborire yithiki yomudiro nokureghera muthipumbu. Ene Nyime ghaghambire eshi, "Pashanye nakudhirera kuyuva putukuputuku dhomapadhi ghaMenye munyima dhange?"
 
 ##
-Nyime gha pirukire no gha monine Mapi kuna katjirerera muyipumbu no yitondo yendi yokutakitha mudiro. Gho gha mu tjidhire Mapi, ghaka mu kwatire no kahuka no tutondo twendi to kutakitha mudiro. Shime karo, Nyime ghembire dimbo dyendi dyoku kutanaghura.
+Nyime ghapirukire noghamonine Menye kunakatjirera muyipumbu noyitondo yendi yokutakitha mudiro. Ghamutjidhire, noghakamukwatire ghuhutha tutondo twendi tokutakitha mudiro. Shime karo, Nyime ghembire dimbo dyendi dyokukutanaghura.
 
 ##
-Munyimadhopo hanu gho ha kuhohotere. Gho ha ghambire, "Ninge twipure Dithana. Aye ne mumbiru no kutambuka wangu." "Dithana," ha ghambire, "oku Nyime kuna kukina mo kwimba netu, owe ne tjombore tutondo twendi to kutakitha mudiro gho tjire."
+Munyimadhopo hanu ghohakuhohoterire. Haghambire eshi, "Ninge twipure Mapi. Ayene mumbiru nokutambuka wangu." "Mapi," dyohaghambire, "oku Nyime kunakukina wimba netu, wakona kushimba yithiki yendi yomudiro nokutjira."
 
 ##
-Apa ha kinine ghu kunduruka mudiro, Dithana dya tjombore tutondo twa Nyime to kutakitha mudiro gho gha tjirire mu yipumbu. Ene nyime gha ghambire eshi, "Pashanye na pirera kuyuva Dithana dina kughona no kughonaghura munyima dhange yira pakutanga?" Gha pirukire no gha tjidhire Dithana edi dya tenyangere muyipumbu. Nyime ghaka di kwatire no kahuka kumudiro no tutondo twendi to kutakitha mudiro.
+Apa hakinine ghukunduruka mudiro, Mapi ghatjomborire tutondo twaNyime tokutakitha mudiro noghatjirere muyipumbu. Ene Nyime ghaghambire eshi, "Pashanye nakudhirera kuyuva Mapi ghakufudhafudha munyima dhange yira pashakare?" Ghapirukire noghatjidhire Mapi oyu ghatjirere muyipumbu. Nyime ghamukwatire nokahuka kumudiro notutondo twendi tokutakitha mudiro.
 
 ##
-Shime karo, Nyime ghembire dimbo dyendi dyoku kutanaghura. "Kwange ne mbadiko ghukukutu. Ame mbadi na kara no ghukukutu. Ame kukona ni kudye no ghuhuki ghoye, ame kukona ni kudye ngambinga mbadiko ghuhuki. Ame mbadi na kara noghukukutu. Mwaheya mwa yidya yange."
+Shimekaro, Nyime ghembire dimbo dyendi dyokukutanaghura. "Kwange 'mene mbadiko ukukutu. Ame mbadi nakara noukukutu. Kukona nikudye noghuhuki ghoye, ame kukona nikudye ngambi mbadiko ghuhuki. Mbadi nakara noukukutu. Mwaheya pano ne mwayidya kukwange."
 
 ##
-"Oh," ndani hana kaghayara hanu, "Thiyama munye sho thi tuvatere popano?" Mwe yo ghakara no maghuru ghomare thikuma kupiterera, ninge tu mwipure. "Ha tjwathanithire dighano dyagho kwa Mwe noporo ruvedhe gho gha tjombore tutondo twa Nyime tokutakitha mudiro."
+"Mawee," dyohaghambire hanu, "Thiyama munye shothitughamwene pano? Mwe yoghakara nomaghuru ghomare thikuma kupiterera, ninge tumwipure." Hatjwathanithire dighano dyawo kwaMwe oyu ghatjomborire tutondo twaNyime tokutakitha mudiro.
 
 ##
-Nyime gha ghambire, "Pashanye na piri kuyuva karo diywi dyoMwe dyokukugherera munyima dhange? Gha thetaghukire, kokumona Mwe gho gha mu tjidhire."
+Nyime ghaghambire eshi, "Pashanye nakudhirera kuyuva karo diywi dyaMwe dyokukugherera thikuma munyima dhange?" Ghathetaghukire, nokumona Mwe, ghoghamutjidhire.
 
 ##
-Munyima dho ruvedhe rorure, Nyime ghaka hukire no rupara ro kughaya, yoyishi Mwe gha tjirire thikuma kupitana ye. "Kutunda odyo diyuwa no dyarero dino," gha ghambire, "mbadi mboni pomokitha no ghofotji temba ghopakatji kenu. Ñanyi mboni mushane nokumutjidhatjidha nokumudya!" Dyoya yenda kate Nyime gha kakare munyathi wawa heya no dyo ha wahine hanu ngcamu dho mudiro.
+Munyima dhoruvedhe rorure, Nyime ghakahukire norupara rokughaya, yoyishi Mwe ghatjirire thikuma ghumupitakana. "Kutunda diyuwa dino," dyoghaghambire, "mbadi mbonipomokitha ghofotji ghopakatji kenu. Ñanyi mbonimushane nokumutjidhatjidha nokumudya!" Dyoyayenda kate dyarero dino eshi Nyime ghakare munyathi wawaheya nodyohawahine hanu ngcamu dhomudiro.
 
 ##
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Maria M. Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

@@ -1,44 +1,44 @@
 # Mahumbithero
 
 ##
-Diyuwa dimweya nawe gha kashimbire mbuyo dhodhingi.
+Diyuwa dimweya, nawe ghakashimbire mbuyo dhodhingi.
 
 ##
-"Ruvedhe munye shomu dhitupe edhi mbuyo?" Twepurire. "Ñanyi tudhi wane runguro ," gha huthire nawe.
+" Ruvedhe munye shomudhitupe edhi mbuyo?" Twepurire. "Ñanyi tudhiwane runguro," ghahuthire nawe.
 
 ##
-Minange ghomukafumughana Rahim ne kahoma. Gha yerekire mbuyo dhodhiheya. Aye kudya mbuyo dhodhingi.
+Minange ghomukafumughana Rahim ne kahoma. Ghanayereka mbuyo dhodhiheya. Ghanadi mbuyo dhodhingi.
 
 ##
-"Mumone eyi ghana tendi Rahim!" gha kughererire minange ghomumbiru ghomukafumughana. "Rahim ne ghurughuru no dihuna," nahuthire.
+"Mumone eyi ghanatendi Rahim!" Ghakugherere minange ghomukafumughana. "Rahim ne ghakununeka nodihuna," Nahutha.
 
 ##
-Nawe gha tokotire na Rahim.
+Nawe ghanatokota naRahim.
 
 ##
-Natwe karo thikadyo tuna tokota na Rahim. Ene Rahim mbadi ghana kuromba mathiyerero.
+Natwe karo tunatokota naRahim. Ene Rahim mbadi ghanakuromba mathiyerero.
 
 ##
-"Mbadi shomu mupe mahumbithe Rahim?" ghepurire minange ghomumbiru ghomukafumughana.
+" Mbadi shomumupe mahumbithero Rahim ndi?" Ghepurire minange ghomukafumughana.
 
 ##
-"Rahim, tambatamba ghukwere," gha mu konekithire nawe.
+" Rahim, tamba ghukwere," ghanakonekitha nawe.
 
 ##
-Rahim gha tangire kuyuva tjitju.
+Rahim ghanatanga kuyuva tjitju.
 
 ##
-"Tjitju mudipumba dyange." gha hohotire Rahim.
+"Tjitju mudipumba dyange," ghanahohota Rahim.
 
 ##
-Nawe gha yi dimukire eshi ñanyi yimuhokokere yo kemo. Mbuyo kuna kumuhumbitha Rahim.
+Nawe ghayidimukire eshi eyi ñanyi yihokoke. Mbuyo kunakumuhumbitha Rahim.
 
 ##
-Munyima Rahim gha rombire mathiyerero kwawakadiko dyendi. "Mbadi mboni kara kahoma karo," gha kuruperithire. No twaheya twayi tawire eyi gha ghambire.
+Munyima Rahim gharombire mathiyerero kwetu twaheya. "Mbadi mbonikara kahoma karo," dyoghanakukuruperitha. Twaheya tunayitawa eyi ghanakughamba.
 
 ##
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

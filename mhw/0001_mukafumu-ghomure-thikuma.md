@@ -1,41 +1,41 @@
 # Mukafumu ghomure thikuma
 
 ##
-Ditemo dyendi dya karire difupi thikuma.
+Ditemo dyendi dyakarire difupi thikuma.
 
 ##
-Thero dhendi dha karire dhifupi.
+Thero dhendi dhakarire dhifupi thikuma.
 
 ##
-Ghudidi wendi wa karire ghufupi.
+Ghudidi wendi wakarire ghufupi thikuma.
 
 ##
-Mbashikora wendi gha karire mufupi.
+Mbashikora wendi ghakarire mufupi thikuma.
 
 ##
-Mukafumu yu gha karire mure thikuma.
+Mukafumu 'yu ghakarire mure thikuma.
 
 ##
 Ghatendire mupondo ghoditemo ghoghure thikuma.
 
 ##
-Gha tendire thero dhendi dhodhire.
+Ghatendire mambangu ghothero ghomare thikuma.
 
 ##
-Gha tendire ghudidi ghoghure thikuma.
+Ghatendire ghudidi ghoghure thikuma.
 
 ##
-Gha ghurire mbashikora ghomure thikuma.
+Ghaghurire mbashikora ghomure thikuma.
 
 ##
-Gha hungumanine pathipura thothire. Gha dithire noforoko ghomure.
+Ghahungumanine pathipura thothire. Ghadithire noforoko ghomure thikuma.
 
 ##
-Gha thiyire ndhugho dhendi no katunga mumuthitu. Gha parire myaka dhodhingi.
+Ghathighire ndhugho dhendi nokatunga mumuthitu ghushokuru. Ghaparire myaka dhodhingi shemwa.
 
 ##
 * License: CC-BY
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Gerhalda Ndumba
+* Translation: Gerhalda Ndumba, Servasius M. Ndjunga
 * Language: mhw

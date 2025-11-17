@@ -1,32 +1,32 @@
 # Kutereka
 
 ##
-Ame kuna kuhendurura katofure.
+Ame kuhendurura katofure.
 
 ##
-Ame kuna kutetaghura makapishi.
+Ame kutetaghura makapishi.
 
 ##
-Ame kuna kutjinaghura karote.
+Ame kukeyaghura karote.
 
 ##
-Ame kuna kuyogha makunde.
+Ame kuyogha makunde.
 
 ##
-Ame kuna kuteta dingadi.
+Ame kukeyaghura dingadi.
 
 ##
-Ame kuna kutetaghura rwidhi rosipinasi.
+Ame kutetaghura rwidhi rosipinasi.
 
 ##
-Nawe kuna kutetaghura mayanga.
+Nawe kutetaghura mayanga.
 
 ##
-Ame ne kushwagha maruhodhi pa kutetaghura mayanga.
+Mayanga kunidiritha pakughatetaghura.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle, Ingrid Schechter
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

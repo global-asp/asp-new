@@ -1,68 +1,68 @@
-# Katughuru ghomushiyo
+# Katughuru ghomushigho
 
 ##
-MuMapeghu Rico kuna kuyenda kudoropa nanyina. Aye gha haka kuyenda kudoropa. Doropa ne kunyanyukitha! Yingi yinu yo kumona.
+Dyarero ne Mapeghu, Rico kunakuyenda kudoropa nanyina. Aye ghahaka kuyenda kudoropa. Doropa ne kunyanyukitha! Yingi yinu yokurorera.
 
 ##
-Rico ghana ngumata kudyoko dyanyina. Hanu hohengi hana kupitapita.
+Rico ghanangumata kudyoko dyanyina. Mbunga dhawanu kunakupitapita.
 
 ##
-Poghadi maghurithero apa ha ghurithanga yiyuwaghura yoyiwa.
+Padi thitaratara apa hanakughurithera eyi haruka nokuyuwa nonyara.
 
 ##
-Kodhidhi mvashe dhodhimbiru edhi ha yuwa noyitondo, marughongoro no mihurudhi eyi ha tenditha no ndarata no yipako ghokumarudhikumarudhi, no yifughuritho yokushupata eyi ha tenditha no yikerera yomahonyi ghomwe.
+Padi muvashe ghoghumbiru oghu hayuwa noyitondo, marughongoro nomihurughudhi edhi hatenditha nondarata noyipako yokumarudhimarudhi, pofotji noyiyengitha eyi hatenditha noyikerera yomahonyi ghomwe.
 
 ##
-Munyimadhopo kokwiya! Poghadi ghana kushiya no kaywi kokatowi 'Kutetuka ghukugha'. Ko kwimana gha tegherere. Kupi ghuna kutunderera?
+Ndani ghanakuyuva! Munu oyu ghanakushigha mumelodi ghomutowi ghodimbo dyo "Ñeke". Ghanemana ghutegherera. Kupi ghunakutunderera mushigho?
 
 ##
-"Shime ni shemwa kokuyuva munu gho kushiya ghufughuri," dyogha ghayarire papendi thinda.
+"Shime nishemwa kuyuva munu ghokushigha noghufudhi kenge," dyoghaghayarire papendi thinda.
 
 ##
-Koku konaghuka mwawanu. Munyimadhopo kokumona katughuru oyu ghana kushiyanga. Hanu kuna kutura muwayawaya muthindoha thothimburu ethi thidi kughutho dhendi. Ene... poyidi yina piri kuhungama.
+Kunakukonaghuka mwawanu. Hamono katughuru oyu ghanakushighanga. Hanu kunakutura muwayawaya muthindoha thothimburu ethi thidi paghutho dhendi. Ene… poyidi yinapiri kuhungama.
 
 ##
-Katughuru ghokushiya mbadi ghana kukenga kwawanu. Mbadi ghana kukenga masherenyi agha hana kumupa. Mbadi ghana kukenga kukehe thinu. Aye kuna kupapatera muwayawaya oghu hana mu turera muthindoha no kughutura mudirimba dyendi.
+Katughuru ghokushigha mbadi ghanakukenga hanu. Mbadi ghanakukenga masherenyi agha hanakumutaghera. Mbadi ghanakukenga kukehe thinu. Aye kunakupapatera muwayawaya oghu hanamuturera muthindoha nokughutura mudirimba dyendi.
 
 ##
-Rico gha nungurukire katughuru yu no kughayara, "Pamweya ghafa meho." Shime gha shemwa Rico ko kumona munu ghomukunga. Aye gha yapire. Gho gha ngumatire kumuthithi wanyina no kwipura ghuhohota, "Nawe, uyo katughuru ne gha fa meho ndi?"
+Rico hanunguruka oyu katughuru nokughayara eshi, "Pamweya ghafa meho." Rico shime ghashemwa kokumona munu ghomukunga. Ghanatanga kwomapa. Ghanangumata kumuthithi wanyina nokwipura ghuhohota, "Nawe, oyu katughuru ne ghafa meho ndi?"
 
 ##
-Nyina koku tumbura dyoko dyendi. "Nhii", gha mu huthire, "kemo mukunga. Mone, nomburo dhendi dhodhikenu. Hengi hanu ho hakunga hana shimbanga mburo dhodhikenu. Aye kwarughanithanga mburo dhi mu kunongonona oku kudi dikwina no yinu yimweya yo kupira kuroghera."
+Nyinamunu ghanatumbura dyoko dyendi. "Ghii" dyoghanahutha, "kemo mukunga. Mone, nomburo dhendi dhodhikenu. Hengi hanu hohakunga hanashimbanga mburo dhodhikenu. Aye kwarughanithanga edhi mburo mukushanithako makwina noyinu yimweya yokupira kuroghera."
 
 ##
-"Ene ngepi ghana neya kudoropa? Ngepi edi ghana piti hanu waheya wa?" Rico ghepure.
+"Ene ngepi edi ghaneya kudoropa? Ngepi edi ghanapoghoroka hanu waheya?" Ghepurire Rico.
 
 ##
-Nyina gha mu tongwere, "Pamweya koghadi munu oyu gha mughamwenanga mukumukoka kate na gha kume. Oyo munu kwa mutoyanga eshi muneghedhi."
+Nyina ghanamutongwera, "Pamweya koghadi munu oyu ghanamughamwenanga kumukoka kate noghakume. Oyo munu kwamutoyanga eshi mughamweni."
 
 ##
-Awo kuyenda kate ku'zoopark'. Maroboti kukutjindja gha kare thinamahako, yighaghuto ko kwimana no hanu ha tjinaghane thitavura.
+Hayendi kwawo kudyango dyokuturumuthera muñurumbara. Maroboti kunakukutjindja kughuthinamahako, yighaghuto yinemana nohanu kunakutjinaghana thitavura.
 
 ##
-"Mone kumaramba ghothinamahako. Ngeshi ghana muneka thinamahako atwe kidimuka eshi mughukungi mwene tu di kukona ngenyu kutjinaghana thitavura. Mumatunga ghamweya amo ne kawanamo thipembitho," gha ghamba nyina Rico. "Hakunga pa kuyuva diywi dyothipembitho, awo ku yi dikuka eshi mumakungero mwene hadi kukona ha tjinaghane thitavura."
+"Mone kumaramba ghothinamahako. Ngeshi ghanamuneka thinamahako atwe kudimuka eshi kukona keho tutjinaghane thitavura. Mumatunga ghamweya ne kuwanamo thipembitho," ghanaghamba nyina Rico. "Hakunga pakuyuva mughuma ghothipembitho, awo kuyidikuka eshi kukona keho hatjinaghane thitavura."
 
 ##
-Awo kuhungumana pa muhonyi ghothinamahako ghomu'zoopark' no kurorera hanu awa hana kupita. "Hakunga hamweya ha kara no mbwa ghokuneghedha," nyina gha ghambire. "Odho mbwa ne hadhi deghura mukuneghedha ha hekudyadho, ene ndhiro keho. MuNamibia ne dhipumo mbwa dhokuneghedha."
+Hanahungumana pamuhonyi ghothinamahako ghomudyango dyomaturumuthero ghurorera hanu awa hanakupita. "Hakunga hamweya hakara nombwa ghokuwayenditha," ghanaghamba nyina. "Mbwa dhapo ne hadhideghura mukuneghedha hahekudyadho, ene adhone ndhiro thikuma. Mbwa dhokemo ne dhipu muNamibia."
 
 ##
-"Oyu katughuru gho kufa meho mbadiko kurorera tivi," gha ghambire Rico.'Aye kukona kuyuva eyi hana kughamba mutivi nomuradiyo," Nyina gha mu tonwgere. "Hanu hohakunga kukona kuyuva yinu kupitakana hanu hokumona."
+"Oyu katughuru ghokufa meho ne mbadi wakurorera tivi," ghanaghamba Rico. "Aye kukona kuyuva tivi noradiyo," ghana mutongwera Nyina. "Hakunga kukona kuyuva yinu kupitakana hanu hokumona."
 
 ##
-"Ene mbadi wa kutoya mambapira endi kakorambundhi," gha ghambire Rico. "Poghadi mambapira agha ha twanga mu'Braille'. Mudyango dyo mañando agha ha twanga kumahina noingi, awo yitjangarandathana kwayi fughura notundjototundjoto.
+"Ene mbadi wakutoya mambapira endi kakorambudhi," ghanaghamba Rico. "Poghadi mambapira agha hatjanga muBraille. Mudyango dyomañando agha hatjangitha kumahina noingi, pakara tudoti tokundjumburuka otu twatendanga yitjanga yawo. Yira muhingo vene ghoghudhindo."
 
 ##
-"Ngepi edi sho gha toye ngeshi yene mbadiko kumona?" "Aye kutoya no nyara dhendi. Aye kupapatera tundjototudjoto otu ha fughura no nyara dhendi, kenge vene ghuna monanga yitjangarandathana mumeho ghoye.
+"Ngepi edi shoghatoye ngeshi ayene mbadi wakumona?" "Aye kutoya nominwe dhendi. Aye kupapatera tudoti tokundjumburuka nominwe dhendi, kenge vene ghunamonanga yitjanga nomeho ghoye."
 
 ##
-Rico gha tetukire mukughayara eshi hakunga nawo kukona ha rughane yinu yo kehe diyuwa; yinu yira kuyendaghura mudoropa, kushiyaghura membo, kutoya.
+Rico ghanatetuka pakughayara eshi hakunga nawo kukona harughane yinu yokehediyuwa; yinu yira kuyendaghura mudoropa, kushighaghura membo, ndani yira kutoya.
 
 ##
-Nyina gha mu tongwere, "Apa ngenyu mwakutjakera pakatji koye nomukunga owe ne kumona no aye ne ghafa meho mbadi wakumona." "Ame ne kumona, ene mbadi wa kukona kushiya ghufughuri yira mukunga," Rico gha menyuna.
+Nyina ghanamutongwera, "Apa ngenyu mwakutjakera koye namukunga ne pano: owe kumona, ayene mbadi wakumona." "Amene kumona, ene mbadi wakukona kushigha yira oya mukunga," ghanamenyuna Rico.
 
 ##
 * License: [CC-BY-NC-SA]
 * Text: Magda Swartz
 * Illustration: Petrus Amuthenu
-* Translation: Maria M. Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

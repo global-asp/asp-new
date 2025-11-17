@@ -1,70 +1,68 @@
-# Maturumuthero na mama ghomukamadi
+# Maturumuthero namama ghomukamadi
 
 ##
-Odongo naApiyo hatungire muñurumbara na wihagho. Hatatere maturumuthero. Mbadi yoyishi shure ne dha yandhere, ene yoyishi hayendire ha kadhingure nyakudyagho ghomukamadi. Aye gha tungire mumukunda gho pepi no rware omu nga ha roveranga thi.
+Odongo naApiyo hatungire muñurumbara nawihawo. Harumberire kuyenda mumaturumuthero. Mbadi pamurandu ghokuyandhera shure ngenyu, ene yoyishi hayendire hakadhingure nyakudyawo ghomukamadi. Aye ghatungire mumukunda ghopepi nodiviya edi ngaharoveranga thi.
 
 ##
-Odongo na Apiyo hashamberere yoyishi rwa karire ruvedhe ro kudhingura nyakudyagho karo. Ghuthiku ghu ngaghupu, harongere mandjato ghawo nokukuroyithera ruyendo ru rorure ro kumukunda. Mbadi ha rarire no ha kuvurekire ghuthiku ghoghuhe yo kuhatera ku maturumuthero.
+Odongo naApiyo hashamberere yoyishi rwakarire ruvedhe rokadhingura karo nyakudyawo. Ghuthiku oghu wapwire, harongere mandjato ghawo nokukuroghithera ruyendo 'ru rorure rokumukunda wanyakudyawo. Mbadi hararire, hakuvurekire ghuthiku ghoghuhe yokuhatera kumaturumuthero.
 
 ##
-Murughura diyuwa dyo kurandako, hafungurukire muthihaghuto tha wihagho hayende kumukunda. Hahingire kupita marundu, yiyama no yikwinino. Awo ha tarire yihaghuto no hembire membo.
+Murughura diyuwa dyokurandako, hafungurukire muthihaghuto thawihawo hayende kumukunda wanyakudyawo. Hahingire ghupitakana marundu, yiyama noyikwinino yotee. Hatarire yihaghuto nohembire membo.
 
 ##
-Kapupi kamanana, hanuke wa ha ghayire no hakothire.
+Kapupi kamanana, hanuke hatwamine nohaporokerire muturo.
 
 ##
-Tate gha pinduthire Odongo naApiyo opa hakaumine ku dighumbo. Hakawanine Nyar-Kanyada, nyakudyagho ghomukamadi ghana hungumana pa disharo muthitondo. Nyar-Kanyada mu ndimi dho Luo, kutongora eshi "mwana ghodiko dyaKanyada" Aye gha karire mbuyama gho kutanara nomuwa.
+Tate ghapinduthire Odongo naApiyo opa hakakumine kudighumbo. Hakawanine Nyar-Kanyada, nyakudyawo ghomukamadi ghanahungumana padisharo muthitondo. Nyar-Kanyada mundimi dhoLuo, kutongora eshi 'mwana ghodiko dyawaKanyada'. Aye ghakarire mukamadi ghomutanavu noghomuwa.
 
 ##
-Nyar-Kanyada gha watambure mundhugho wimba no yishamberera. Hekurwendi ha hafire mukumupa ghushwi oghu ha mupitwere. "Tange kuyandhura thange," gha ghambire Odongo." Ca, thange sho tangere!" gha ghambire Apiyo.
+Nyar-Kanyada ghawatamburire mundhugho wimba muyishamberera. Hekurwendi hashamberere ghutapa ghushwi oghu hamupitwere kuñurumbara. "Tange kuyandhurura thange," dyoghaghambire Odongo. "Caa, thange shotangerere!" Ghaghambe Apiyo.
 
 ##
-Opa gha manine kuyandhura maghushwi, Nyar-Kanyada gha fiyere no kutungeka hekurwendi mundhira dho pa thitjo.
+Opa ghamanine kuyandhurura yitapera, Nyar-Kanyada ghafiyere nokutungeka hekurwendi kukutha thitjo.
 
 ##
-Munyima Odongo naApiyo ha yendire panunda. Hatjidhatjidhire mambimbidhi no yinyunyi.
+Munyima Odongo naApiyo hayendire panunda. Hatjidhatjidhire mambimbidhi noyinyunyi.
 
 ##
-Awo ha dhinine kuyitondo no kutjavatjava meyu gho murware.
+Hadhinadhinine yitondo ghudabwana mumeyu ghomudiviya.
 
 ##
-Opa gha karire makokore hakahukire kudimbo no hadye murarero. Kughutho gho kumana kudya, awo haporokere muturo!
+Pakutokera, hahukire kudighumbo kumurarero. Kughutho ghokumana kudya, haporokere kare muturo!
 
 ##
-Diyuwa dyo kurandako, wihagho gha hingire gha huke kuñurumbara no ghawa thiyire na Nyar-Kanyada.
+Diyuwa dyokurandako, wihawo ghahingire ghathighuke kuñurumbara ghuwathigha naNyar-Kanyada.
 
 ##
-Odongo naApiyo ha ghamwene nyakudyagho no yirughana yo padimbo. Awo nga havetanga meyu no kutja yikunyi. Nga ha shimbanga mahonyi gho shushwa no kughamwena muthinyamo.
+Odongo naApiyo haghamwene nyakudyawo noyirughana yopadirapa. Awo ngahavetanga meyu nokutja yikunyi. Ngahaghongawedhanga mahonyi ghomitende nokukokora makunde muthinyamo.
 
 ##
-Nyar-Kanyada gha hongire hekurwendi kuponda dimbombo dyo kuditha no mberera. Gha wahongire ngepi gho kutereka ruvishi ro kuditha no thi dho kupona.
+Nyar-Kanyada ghahongire hekurwendi kuponda dimbombo dyokuditha nonyama ghokupandaghedha. Ghawahongire ngepi ghokutereka ruvishi rokuditha nothi dhokuyotha.
 
 ##
-Mathikuthiku ghamweya, Odongo gha shwayire ngombe dha nyakudyendi gha kadithe. Ngombe dha ngenine mudipya dyo maparaghumbo. Ndjimi yu gha patire thikuma no gha himine kukwata ngombe dhi. Kutunda diyuwa di, mungaghu yu nga konekanga no mbadi gha karire karo mumurandu.
+Mathikuthiku ghamweya, Odongo ghashwaghithire ngombe dhanyakudyendi ghakadithe. Ngombe dhengenine mudipya dyamukamaparaghumbo. Ndjimi 'yu ghapatire thikuma noghahimine kukwata edhi ngombe. Kutunda diyuwa 'di, oyu mungaghu ngatakamithanga eshi ngombe mbadi dhingene karo mumurandu.
 
 ##
-Diyuwa karo dimweya, hanuke hayendire kudyango dyo mughuro na Nyar-Kanyada.
-
-Gha ghurithire yiwarwidhi, shuka no murora. Apiyo gha hakire kutongwera haghuri maparo gho yinu. Odongo ye ne kurongera yinu eyi hana ghuru hanu.
+Diyuwa dimweya karo, hanuke hayendire kumaraka naNyar-Kanyada. Aye ghakarire nothitaratara thokughurithera rwidhi, shuka nomurora. Apiyo ghahakire kutongwera haghuri maparo ghomughuro. Odongo 'ye ne mukakurongera yinu eyi hanaghuru hanu.
 
 ##
-Kughura gho diyuwa awo kunwa koshiva pofotji. Haghamwene nyakudyagho mukutara masherenyi agha hana ghuritha.
+Kughuhura ghodiyuwa awo hanwine koshiva pofotji. Haghamwene nyakudyawo mukutara masherenyi agha ghawaninemo.
 
 ##
-Ene, muruvedhe rorufupi maturumuthero gheyire kughuhura no hanuke ha hukire ku ñuru mbara. Nyar-Kanyada gha pire Odongo hutji no Apiyo djeshi. Gha wa rongere yidya yo muruyendo.
+Ene muruvedhe rorufupi, maturumuthero ghakumine kughuhura nohanuke hadire muthighu kuñurumbara. Nyar-Kanyada ghapire Odongo hutji noApiyo ne djeshi. Ghawarongerere yidya yoñuta.
 
 ##
-Apa ghana kumine wihagho nawashimbe, mbadi hashanine kuhuka. Hanuke ha kandere Nyar-Kanyada gha yende nawo kuñurumbara. Gha hekire nokughamba eshi "Nomukuru keho me, ñanyi ni mutaterange mwa kwiye kokuno kudimbo karo."
+Apa ghanakumine wihawo noghawashimbe, mbadi hashanine kuhuka. Hanuke hakanderere Nyar-Kanyada ghayende nawo kuñurumbara. Ghahekire nokughamba eshi, "Nokakurukadhi keho 'me mukutunga muñurumbara, ñanyi nimutatererange mukwiya kokuno karo."
 
 ##
-Odongo naApiyo waheya ha ndhondhere nyakudyagho no kumuragha.
+Odongo naApiyo handhondhere nyakudyawo pofotji nokumuragha.
 
 ##
-Apa hahukire ha Odongo naApiyo hakathimwetwedhire kwawaghendhawo yo kuhutera kuyipara yokumukunda. Hanuke hamweya ha kuyuvire eshi yipara yo muñurumbara ne yiwa. Hamweya hakuyuvire eshi yipara yo kumukunda ne hasha ya piterera. Ene tho mudyo po thikuma waheya hatawire eshi Odongo naApiyo ha kara no nyakudyagho gho muwa.
+Apa hahukire kushure, haOdongo naApiyo hakathimwetwedhire kwawayendhawo yokuhutera kughuparo ghokumambo. Hanuke hamweya hakuyuvire eshi yipara yomuñurumbara ne yiwa. Hamweya hakuyuvire eshi yipara yokumambo ne hasha yapiterera. Ene thomudyopo thikuma, waheya hatawire eshi Odongo naApiyo hakara nanyakudyawo ghomuwa shemwa!
 
 ##
 * License: [CC-BY]
 * Text: Violet Otieno
 * Illustration: Catherine Groenewald
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

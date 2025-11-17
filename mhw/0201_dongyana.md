@@ -1,68 +1,68 @@
-# Dongighana
+# Dongyana
 
 ##
-Kwa karire mwanuke ghomushengeteya oyu gha tangire kumona mudhidhimbi ghushikonekera kokayenda.
+Ghakarire mwanuke ghomushengeteya oyu ghatangire kumona mudhidhimbi ghushikonekera kokayenda.
 
 ##
-Apa wa henyine mudhidhimbi popepi, aye gha monine eshi napo mbuyama ghoyirama yiwadi.
+Apa wahenyine mudhidhimbi popepi, aye ghamonine eshi napo mukamadi ghoyirama yiwadi.
 
 ##
-Honyi ene ghutjima, mukamadighana gha henyine pepi noyo mbuyama. "Atwe twa kona kukara nendi," hapa mukamadighana ha tokorire." Ñanyi tuwa ture mumakungero mwene naye namwanendi."
+Nohonyi ene ghutjimapa, mushengeteya ghahenyenine pepi nomukamadi. "Twakona kumukunga mukatji ketu," dyohatokorire hapa mushengeteya. "Mbotunawakungu thiwana naye namwanendi."
 
 ##
-Kambututu ka karire eshi kana kumu. "Kukeme!" "Rete mangugho!" "Meyu!" "Kuuuuukemeee!!!"
+Kambututu kakarire kare mundhira dhako. "Kukeme!" "Rete maghugho!" "Meyu!" "Kukemee!"
 
 ##
-Ene apa ha monine kambututu, waheya ha reyire munyima ghuyapa. "Thidongi?!"
+Ene apa hamonine kambututu, waheya hareghire munyima womapa. "Thidongi?!"
 
 ##
-Waheya ha tangire kukanyeka. "Twa ghambire eshi ñanyi mbotu kare nawo hanyinamunu namwana munu, nodyosho tu tende kemo," haghambire hamwe. "Ene ñanyi haku turetere dihudhi!" haghambire hamweya.
+Waheya hatangire kukanyeka. "Twaghambire eshi mbotunakungu nyina namwanamunu, nodyoshotutende kemo," dyohaghambire hamweya. "Ene mbohanaturetera dihudhi!" dyohaghambire hokurandako.
 
 ##
-No mbuyama yu gha karire karo pithendi. Aye gha kwipudhurire eshi yinye shogha tende koyu mwanuke ghothitetu. Aye gha kwipudhurire eshi yinye shogha kutende thinda.
+Mukamadi 'ya, ghakarire pithendi karo. Aye ghakwipudhurire eshi nye eyi shoghatende koyu mwanuke ghothitetu. Aye ghakwipudhurire eshi nye shoghakutende thinda.
 
 ##
-Ene kughuhura ghayi tamburire eshi mwanendi no aye ne yo nyina.
+Ene kughuhura ghayitamburire eshi mwanendi noyene yonyina munu.
 
 ##
-Opa no, oyo mwanuke ngo gha karire kengeyo, ghumbiru, yoyiheya pamweya ngoya kutjindjire. Ene thidongighana thakurire nokukura kate mbadi wa kukona kurikanya karo mumughongo wanyokwatho. No ngambi ngepi thakondjire, mbadi wakukara yira munu ghokupara. Nyina kehe pano nga ghayanga nokumundhanyaghuka. Maruvedhe ghamweya nyina ngamu tongweranga gha rughane yirughana eyi yina rughananga yimuna.
+Keho ne ngoyu mwanuke ngoghakarire kengeyo, mudhimba ghoghumbiru, yoyiheya pamweya ngoyakutjindjire. Ene thidongyana thakurire nokukura kate mbadi wakukona kurikanya karo mumughongo wanyokwatho. Ngambi ngepi thakondjire, mbadi thakonine kukara yira munu. Nyina kehepano ngaghayanga nokumundhanyaghuka. Maruvedhe ghamweya nyina ngamutongweranga gharughane yirughana eyi yaroghera yiyama.
 
 ##
-Thidongi tha tangire kupimbana notokotoko dha tangire kukura mu mwatho. Mbadi nga thi rughananga yi noyiya temba. Mbadiko kukona thikare kenge. Tha tokotire thikuma, diyuwa dimwe, thathitire nyokwatho kate kuwera pamuve.
+Thidongi thatangire kupambana notokotoko dhatangire kukura mumwatho. Mbadi ngathirughananga eyi noyiya temba. Mbadiko kukona thikare kenge. Thatokotire thikuma kare, diyuwa dimweya, thathitire nyokwatho ghawere pamuve.
 
 ##
-Thidongi thakufire honyi. Ghotha tjirere kokayenda thikuma.
+Thidongi thafire honyi. Thatjirire thikuma kokayenda shemwa.
 
 ##
-Opa tha ka shayekire kutjira, ne ghuthiku, nothayongarire. "Oioi?" thahohotire mumakokore. "Oioi?" Tha kuyuvire thatinda. Pithatho thakarire. Thakuhengaghurire thathinda nokukupeterera yira dikosho, ghotha porokerire muturo.
+Opa thakashaghekire kutjira ne ghuthiku, nothayongarire. "Oiioii?" dyothahohotire mumakokore. "Oiioii?" dyokahukire karungurungu katho. Thakarire pithatho. Thakuhengaghurire thathinda nokukupeterera yira dikosho, ghothaporokerire muturo totokotoko.
 
 ##
-Apa tha pindukire thidongi tha momine katughuru ghomukurupe ghana kuthinunguruka. Tha nungurukire natho katughuru ghomukurupe mumeho notha tangire kukuyuva eshi thina kushutuka.
+Apa thapindukire, Thidongyana thamomine kakurukadhi kokarume kanakuthinunguruka. Thanungurukire natho mumeho ghakakurukadhi nothatangire kuyuva makurupero.
 
 ##
-Thidongi tha yendire thikatunge namukurupe ghokatughuru, oyu gha mu hongire mandhira ghomengi ghokupara. Dongi gha tegherere noghakuhongire, nothikadyo naye katughuru ghomukurupe. Nga ha kughamwenanga, no ngaha hekanga pofotji.
+Thidongyana thayendire thikatunge nokakurukadhi, oka kamuhongire mayira ghomengi ghoghuparo. Dongyana ghategherere noghakuhongire, nokakurukadhi nako kemo. Ngahakughamwenanga, nongahahekanga pofotji.
 
 ##
-Mathikuthiku ghamweya, katughuru ghomukurupe ghakumberire Thidongi thi mutware kumutuya ghodirundu.
+Mathikuthiku ghamweya, kakurukadhi kakumberire Thidongyana thimutware kumutuya ghodirundu dimweya.
 
 ##
-Haka porokere muturo kumutuya ghodirundu pepi nomavuyi. Thidongi tharotire eshi nyokwatho ne kuna kukorwa noghamwithire. no apa tha pindukire...
+Oku kundaghandagha dhodirundu, mukatji komavuyi hakaporokere muturo. Thidongyana tharotire eshi nyokwatho ne kunakukorwa noghamwithire. Apa thapindukire...
 
 ##
-... mavuyi gha dhongonokire pofotji namushere wendi, katughuru ghomukurupe.
+... mavuyi ghadhongonokire pofotji namushere wendi, kakurukadhi kokakarume.
 
 ##
-Kughuhura thidongi tha dimukire eshi yipi sho thi tende.
+Kughuhura Dongyana ghadimukire eyi shoghatende.
 
 ##
-Thidongi thaka wanine nyokwatho, pithendi nokuna kudira ghuthiyana ghokuyongaritha mwanendi. Ha tangire kukununguruka rure. Munyimadhopo ghoha kundhondhere.
+Thidongyana thakawanine nyokwatho, pithendi nokunakudira ghuthighana ghokuyongaritha mwanendi. Hatangire kukununguruka rure. Munyimadhopo ghohakundhondhere.
 
 ##
-Dongighana nanyina hakurire pofotji nohawanine mandhira ghomengi ghoruparitho. Kate kandhi- kate kandhi, hakama paraghumbo ghamwe nawo ha tangire kutunga.
+Dongyana nanyina hakurire pofotji nohawanine mayira ghomengi ghoruparitho. Katekandhi, katekandhi, hakamaparaghumbo ghamwe nawo hatangire kuwatambura.
 
 ##
 * License: [CC-BY]
 * Text: Lindiwe Matshikiza
 * Illustration: Meghan Judge
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

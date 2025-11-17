@@ -1,32 +1,32 @@
-# Yiyama nomughuma wayo
+# Kenge eyi yiyama
 
 ##
-Kenge kuyimuna eyi twa munanga mudighumbo.
+Kenge eyi yiyama.
 
 ##
-Ngombe kutupa manhwe.
+Ngombe kukumbura eshi, "Buu."
 
 ##
-Tudimba notuthe twa kara noghukaro ghoghuwa nawanu.
+Ñombo kudira eshi, "Mee, mee."
 
 ##
-Kakambe kuhumwerera eshi "Riririri."
+Kakambe kuhumwerera eshi, "Hiririri."
 
 ##
-Ngombe kumutapa kuyighonda muNamibia.
+Nguru kutokoma eshi, "Ngurunguru."
 
 ##
-Mutende kukeka eshi, "Kekekeke."
+Mutende kukeka eshi, "Kerekekeke."
 
 ##
-Mbwa ne mukungi ghomaghumbo ghetu.
+Mbwa kudha eshi, "Bubu."
 
 ##
-Ndjimi kuyikunga yoyihe thiwana.
+Ndjimi kughamba eshi, "Shh!"
 
 ##
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell, Wiehan de Jager and Rob Owen
-* Translation: Gerhalda Ndumba
+* Translation: Gerhalda Ndumba, Servasius M. Ndjunga
 * Language: mhw

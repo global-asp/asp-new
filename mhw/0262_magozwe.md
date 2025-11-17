@@ -1,56 +1,56 @@
 # Magozwe
 
 ##
-Muñurumbara dhaNairobi, Kayenda no mayimbo, hatungire mbunga dho hangaghu awa hapirire maghumbo. Ha tamburire kehe diyuwa edi dya vire. Mathikuthiku ghamweya, hangaghu wa harongere masharo ghawo gho kurara munyima dho kurara po no ghutenda. Mukutjidha ghutenda ha tumekire yitjoro. Mukatji ka wangaghu wa mwa karire mwanuke gho dina Magozwe. Aye gha karire yodiye gho mwanuke thikuma.
+Muñurumbara dhomuthitu waNairobi, oghu wakarire kayenda nomaghumbo, mwatungire mbunga dhohangaghu hashipiri maghumbo. Hatamburire kehediyuwa thika edi dyavire. Mathikuthiku ghamweya, hangaghu harongerire masharo ghawo munyima dhokurara parundanda rorutenda kumbadi dhothitavura. Mukutjidha ghutenda hatumekire yitjoro. Mukatji kawangaghu 'wa mwakarire mungaghu ghodina Magozwe. Aye ghakarire yomumbiru pakatji kawo.
 
 ##
-Apa hafire hakuru wa Magozwe, aye gha karire no myaka kwoko ngenyu. Gha yendire gha ka tunge na mwedyendi. Katughuru yu mbadi gha karire no thinga tho kwa mwanuke. Mbadi nga mupanga Magozwe yidya yokurikanya. Aye nga mupanga yirughana yoyingi.
+Apa hafire hakuru waMagozwe, oku ayene myaka kwoko ngenyu. Ghayendire ghakatunge namwedyendi. Oyu katughuru mbadi ghakarire nothinga thokwamwependi. Mbadi ngatapanga yidya yokurikanya kwaMagozwe. Aye ngapanga yirughana yoyingi koyu mungawana.
 
 ##
-Ngeshi Magozwe kwipurako ngambi nga kushivana ne ku mupumura. Apa ghepure Magozwe, ngeshi ukona gha yende kushure, mwedyendi gha mupumure no kughamba eshi, "Ghomuyero thikuma we mbadi wakakona yikuhonga." Papitire myaka dhihatu dho ghukaru ghu no Magozwe gha tjwayukire mwedyendi no gha tangire kurendarenda.
+Ngeshi Magozwe hepura ngambi kushivanako, mwedyendi ngamupumuranga. Apa ghepurire Magozwe ngeshi kukona ghayende kushure, mwedyendi ghamupumure nokughamba eshi, "Ghomuyero thikuma 'we mukukona kukuhonga keheyino." Munyima dhomyaka dhihatu dhoghukaru 'ghu, Magozwe ghatjwayukire mwedyendi. Ghatangire kurendarenda muthitavura.
 
 ##
-Yipara yo kurendarenda ne yikukutu no thingi tho hangaghu nga ha nyandanga kehe diyuwa mu kuwana yokudya. Maruvedhe ghamweya nga ha wakwatanga mudorongo, maruvedhe ghamwe ne kuwa puma. Opa nga ha korwanga, mbadiko yu oku wa ghamwena. Mbunga dhi dha kurupere tusherenyi otu nga ha wananga mukurombaromba kohanu no kughuritha yipapero. Yipara ya kukutire pamurandu gho yirwa no mambunga ghamweya gha wanyathi wagho awa ha shanine kuthighura mitara dho ñurumbara.
+Yipara yokurendarenda ne yikukutu nothingi thohangaghu ngahanyandanga kehediyuwa mukuwana yokudya. Pamweya ngahawakwatanga mudorongo, pamweya ne kuwapumura. Apa ngahakorwanga, mbadiko oyu ghawaghamwenine. Mbunga dhomungawana 'yu dhaghugapire patusherenyi otu ngahawananga pakurombaromba kwawanu, nopakughuritha yipulasitiki noyimweya yokughuruthurura. Yipara yakukutire pamurandu ghoyirwaghura nomambunga ghamweya ghawanyathi wawo agha ghashanine kushingeka mitara dhimweya dhoñurumbara.
 
 ##
-Diyuwa dimweya oku Magozwe ne pakurerarera muthingongoro tho kumwayera, gha wanine mbapira dho yithimwa dho kukurupara. Gha dhi shwayithire didhiro no ku dhi tura mushaka wendi. Kehe diyuwa nga shwayithanga mbapira no kurorera yiperende mu mbapira dhi. Aye mbadi gha dimukire kutoya mañando.
+Diyuwa dimweya oku Magozwe kunakurerarera muthingongoro thokumwayera yitjoro, ghawanine mbapira dhokukurupara dhoyithimwa. Ghadhikuyurire didhiro nokudhitura mushaka wendi. Kehediyuwa ngashwaghithanga mbapira nokurorera yiperende mumbapira 'dhi. Aye mbadi ghadimukire kutoya mañando ghapo.
 
 ##
-Yiperende yi ya thimwetwedhire yipara ya mungaghu yu gha karire muhingi gho manyunyi. Magozwe nga rotanga kukara muhingi gho manyunyi. Maruvedhe ghamweya, nga ghayaranga no kukuyuva yira yediye yu mungaghu muthithimwetwedhatjanga.
+Yiperende yathimwetwedhire yipara yamungaghu oyu ghakarire muhingi ghomanyunyi. Magozwe ngarotanga mukukara muhingi ghomanyunyi. Parumweya, ngaghayaranga nokukuyuva yira yodiye oyu mungaghu muthithimwetwedhatjanga.
 
 ##
-Kwa karire ghutenda no Magozwe ghemanine kuthitavura ghurombaghura. Katughuru ghumwe gheyire kukwendi. "Moro, yame Thomas. Kwarughananga pepi no pano, kudyango dyokukona ghuwane yokudya," gha ghambire. Gha neyire ndhugho dho thina dihenga no yipereki yo thina diwuru. "Nakurupera shi kukona ghuyende ko ghukashimbe yokudya?" ghepurire. Magozwe gha kengire Katughuru yu no kukenga ndhugho dhi. "Ngwa kukona," gha huthire mogha yenda.
+Kwakarire ghutenda noMagozwe ghemanine kuthitavura ghurombaghura. Katughuru ghumwe gheyire kwendi. "Moro, yame Thomas. Narughanenanga pepi nopano, kudyango dyokukona ghuwane yokudya," ghaghambire. Ghaneghire ndhugho dhothinadihenga noyipereki yothinadiwiru. "Nakurupera eshi kukona ghuyendeko ghukashimbe yokudya?" dyoghepurire. Magozwe ghakengire katughuru 'yu nokukenga ndhugho 'dhi. "Pamwe," dyoghahuthire, nokayenda.
 
 ##
-Mutughonda tokurandako, hangaghu wa ha shipiri maghumbo ha twayere kumonaghura Thomas. Gha hakire kughambaghura no hanu, thikumenena awa hatungire muyitarata. Thomas nga tereranga yithimwetwedha yoyipara yawanu. Aye gha karire no ghukaro gho ghuwa, dikuto no kupira kukununeka. Hangaghu hamweya hatangire kuyenda kundhugho dhi dhothina diwiru no thina dihenga hakashimbe yidya pa metaha.
+Mutughonda tokurandako, hangaghu 'wa hashipiri maghumbo hatwagherire kukumonaghura naThomas. Aye ghahakire kughambaghura nohanu, thikumenena awa hatungire muyitarata. Thomas ngateghereranga yithimwetwedha yoyipara yawanu. Aye ghakarire noghukaro ghoghuwa, ghodikuto ghushikununeka. Hangaghu hamweya hatangire kuyenda kundhugho 'dhi dhothinadiwiru nothinadihenga hakashimbe yidya pametaha.
 
 ##
-Magozwe gha hungumanine kumbadi dho thitavura ghurorera mbapira dhendi dho yiperende apa gheyire Thomas na hungumane pepi nendi. "Kupi tha hatera tho thithimwetwedhatjanga?" ghepure Thomas. "Tho kuhatera kwa mungaghu ghokuhinga manyunyi," gha huthire Magozwe. "Yidye dina dyendi mungaghu yu?" ghepure Thomas. "Tjani, mbadi nadimuka kutoya," ghahuthire Magozwe muthipore.
+Magozwe ghahungumanine kumbadi dhothitavura ghurorera mbapira dhendi dhoyiperende apa gheyire Thomas noghahungumane pepi nendi. "Kupi thahatera otho thithimwetwedhatjanga?" dyoghepurire Thomas. "Thokuhatera kwamungaghu ghokuhinga manyunyi," ame waMagozwe. "Yidye dina dyendi oyo mungaghu?" ghepure Thomas. "Tjani, mbadi nadimuka kutoya," dyoghahuthire Magozwe muthipore.
 
 ##
-Apa ha kuwanine, Magozwe gha tamekire kuthimwetwedha yo kuhatera ku rupetho rwa mwedyendi oru rwa mutjwayurire mudimbo. Thomas mbadi gha ghambire yoyingi, no mbadi gha tongwere Magozwe eyi sho ghakone kutenda ene kehepa nga tereranga thiwana. Maruvedhe ghamwe nga ha kuvurekanga oku wo pakudya mundhugho dhi dho thina diwiru.
+Apa hakuwanine, Magozwe ghatamekire kuthimwetwedha yokuhatera kurupetho rwamwedyendi oru rwamutjwayurire mudighumbo. Thomas mbadi ghaghambire yoyingi, nombadi ghatongwere Magozwe eyi shoghakone kutenda ene kehepa ngateghereranga thiwana. Maruvedhe ghamweya ngahakuvurekanga oku awo pakudyera mundhugho dhiya dhothinadiwiru.
 
 ##
-Pepi no mayuwa gho mushamurukero gho dikumi gha Magozwe, Thomas gha mupire mbapira dho dhipya dhothithimwedhatjanga. Mbapira dhi kwa hatere kwa mungaghu ghumwe oyu gha karire mupepi pari no thingi tho hanu ha mudimukire. Thomas nga toyeranga Magozwe thithimwetwedha thi rorwingi, kate diyuwa dimweya, gha ghambire, "Naghayara eshi wa kona kuyenda kushure wa kakuhonge kutoya. Ngepi wa kughayara ko?" Thomas gha tjwathanithire eshi gha dimuka dyango dyo kukona hakare hanuke no kuyendanga kushure.
+Pepi nomayuwa ghomushamurukero ghomyaka dikumi dhaMagozwe, Thomas ghamupire mbapira dhodhipya dhothithimwedhatjanga. Edhi mbapira dhahaterire kwamungaghu ghumweya oyu ghakarire mupepi pari noghayukire thikuma. Thomas ngatoyeranga Magozwe thithimwetwedha 'thi rorwingi, kate diyuwa dimweya, ghaghambire eshi, "Nakurupera eshi wakona keho kuyenda kushure wakakuhonge kutoya. Ngepi edi ghunakughayarako?" Thomas ghatjwathanithire eshi ghadimuka dyango dyokukona hakare hanuke nokuyendanga kushure.
 
 ##
-Magozwe ghaghayarire dyango di dyodipya, no yo kuyenda kushure. Ngepi keho ngeshi mwedyendi ne yoshemwa yiya gha ghambire eshi aye ne muyero thikuma no mbadiko kukona yikuhonga? Ngepi keho ngeshi ha ka mupume ku kudyango di dyodipya? Ghomapire. "Ngwa, hasha vene kukara muthitarata gha rendarende." gha ghayare.
+Magozwe ghaghayarire yokuhatera kodi dyango dyodipya, noyokuyenda kushure. Ngepi keho ngeshi mwedyendi ne mughushemwa ghakarire apa ghaghambire eshi amene nomuyero thikuma nombadi wakukona nitwethe yikuhonga? Ngepi keho ngeshi hakamupume oku kudyango dyodipya? Ghomapire. "Ngwa, hasha vene kukara muthitarata ghurendarenda," dyoghaghayare.
 
 ##
-Ghayarekire woma wendi na Thomas. Papitire ruvedhe katughuru yu gha mu kuruperithire mungaghu yu eshi yipara ñanyi yakakare hasha oko kudyango dyodipya.
+Ghayarekire woma wendi kwaThomas. Papitire ruvedhe rongandji, oyu katughuru ghamukuruperithire mungaghu oyu eshi yipara ñanyi yakakare hasha kudyango dyodipya.
 
 ##
-No kemo Magozwe gha dhirukere mu ngonda dho ndhungo dho thina mahako. Ndhugho dhi gha dhikuyarekere no hangaghu hamwe hawadi. Kuwapakera waheya hanuke awa hatungire mundhugho dhiya ne ha dikumi. Pofotji na nyokwaghoghana Cissy na mundambowendi, mbwa dhihatu, kathe noñombo ghokukurupara.
+NaMagozwe ghadhirukere mungonda dhondhugho dhothinamahako. Ndhugho 'dhi ghadhikuyarekere nohangaghu hamwe hawadi. Kuwapakerera hanuke waheya awa hatungire mundhugho dhiya ne dikumi dyawo. Pofotji naNgumweno Cissy namundambo wendi, mbwa dhihatu, kathe, noñombo ghodikurukadhi.
 
 ##
-Magozwe gha tangire kuyenda kushure no ya mukarere ghukukutu. Gha karire no yinu yo yingi eyi gha nyandire kudimuka. Maruvudhe ghamweya nga shananga kuhupura. Ene gha ghayare ya muhingi manyunyi na mupepi gho pari mumambira ghaya. Yira hodiyo, mbadi gha shayekire.
+Magozwe ghatangire kuyenda kushure noyamukarere ukukutu. Ghakarire noyinu yoyingi eyi ghanyandire kudimuka. Maruvudhe ghamweya ngashananga kukuhupwera. Ene ghaghayarire oya muhingi manyunyi namupepi ghopari mumambapira ghaya. Thika 'wo, mbadi ghakuhupwerire.
 
 ##
-Magozwe gha hungumanine mudirapa ku ndhugho dhi dho thina mahako, ghutoya thithimwetwedhatjanga tho kushure. Thomas gheyire no kuna hungumana pepi nendi. "Kupi thina hatera tho thithimwetwedha?" ghepure Thomas. Tho kuhatera kwa mungaghu oyu gha gha karire mitiri," gha huthire Magozwe. "Yidye dina dyendi mungaghu yu?" ghepure Thomas. "Dina dyendi ne Magozwe," gha huthire Magozwe ghu menya-menya.
+Magozwe ghahungumanine muditete kundhugho edhi dhothinamahako, ghutoya thithimwetwedhatjanga thokushure. Thomas gheyire nokunahungumanena popepi. "Kupi thinahatera ethi thithimwetwedha?" dyoghepurire Thomas. "Thokuhatera kwamungaghu oyu ghakarire mitiri," dyoghahuthire Magozwe. "Yidye dina dyendi oyu mungaghu?" dyoghepurire Thomas. "Dina dyendi ne Magozwe," dyoghahuthire Magozwe ghumenyamenya.
 
 ##
 * License: [CC-BY]
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

@@ -1,32 +1,32 @@
 # Kutara yiyama
 
 ##
-Ndhovu ghofotji kuna kuyenda gha kanwe meyu.
+Ndhovu ghofotji kunakuyenda ghakanwe meyu.
 
 ##
-Mvashe dhiwadi kuna kuyenda dhi kanwe meyu.
+Mvashe dhiwadi kunakuyenda dhikanwe meyu.
 
 ##
-Nyatji dhinne no yinyunyi yinne nayo karo kuna kuyenda yi kanwe meyu.
+Nyatji dhihatu noyinyunyi yinne nayo karo kunakuyenda yikanwe meyu.
 
 ##
-Mara dhikwoko nongidi kwokofotji kuna kuyenda ku meyu.
+Mara kwoko nongidi kwokofotji kunakuyenda kumeyu.
 
 ##
-Mbii kwokowadi kuna kutjirera ku meyu.
+Mbi kwokowadi kunakutjirera kumeyu.
 
 ##
-Manyudya kwokohatu no thi kwokonne kuna kuyogha mu meyu.
+Manyudya kwokohatu nothi kwokonne kunakuyogha mumeyu.
 
 ##
-Nyime ghofotji kuna kuvuma. Naye kuna kushana gha nwe meyu. Yidye gha yapa nyime?
+Nyime ghofotji kunakuvuma. Naye ghanashana kunwa meyu. Yidye ghayapa nyime?
 
 ##
-Ndhovu ghofotji kuna kunwa meyu pofotji no nyime.
+Ndhovu ghofotji kunakunwa meyu pofotji nonyime.
 
 ##
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

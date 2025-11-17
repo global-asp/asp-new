@@ -1,38 +1,38 @@
 # Thinyunyi Pam-Pam
 
 ##
-Pensa gha karire mushani shokuru muMamboreya gho maheya ghaKalahari. Nga karetanga maghadhi gho yiyama mukukorera didhiko dyendi. Pothidi thinyunyi tha karire, thinyunyi Pam-Pam, othi gha shanine Pensa kukwata. Muthira ghothinyunyi thi wakarire ghuwa thikuma mukutenditha maghonga ghendi. Ene ghukukutu wakarire, mbadi ngakonanga kuteya ngambi nga kukondha Pam-Pam. Maghonga gha Pensa nga gha tukanga vene mumupepo yira thinyunyi - ngo gha kukwate ngenyu Pam-Pam no kudjupa muthira wendi!
+Pensa ghakarire mushanishokuru muMamboreya ghomaheya ghaKalahari. Ngakaretanga yiyama yokununa mukukorera didhiko dyendi. Pakarire thinyunyi thimweya, thinyunyi thoPam-Pam, ethi ghashanine kukwata Pensa. Tushako tomuthira ghothinyunyi 'thi twakarire tuwa thikuma mukutendithako masho ghendi. Ukukutu oghu wakarirepo ne mbadi ngakonanga kuteghura ngambi kukondha Pam-Pam. Maghonga ghaPensa ngaghatukanga vene mumupepo yira thinyunyi – mawee, ngoghakonine kukwata Pam-Pam nokudjupako tushako tomuthira wendi!
 
 ##
-Pensa gha yendire kwa nganga, mwiruri wawo. Aye gha rombire maghamweno. "Nakanderera nighamwene mukukwata thinyunyi Pam-Pam. Nanyanda ghuhuki wendi nakutenditheko ndamba no maghonga ghange. Yinu munye sho nitende ni mukwate. Nganga gha huthire, "Yende ghu kakonyere mudiro. Apa sho yi keye yimbumburu kumudiro, wakona kukwata totumbirupo. Katende thiraha no kutura tumbumburu tu muthiraha. Ato mbo tuna yereka thinyunyi Pam-Pam.
+Pensa ghayendire kwanganga, mwirukithi wawo. Aye gharombire maghamweno. "Nakanderera, nighamwene mukukwata thinyunyi Pam-Pam. Nanyanda tushako twendi nakutenditheko ngcunu nomasho ghange. Yinu munye shonitende nimukwate? Nganga ghahuthire eshi, "Yende ghukakoñere mudiro. Apa shoyikeye yimbumburu kumudiro, wakona kukwatapo totumbiru. Katende thiraha nokutura tumbumburu 'tu muthiraha. Ato mbotunayereka thinyunyi Pam-Pam.
 
 ##
-Pensa mbadi gha dimukire eshi nganga yu nathinyunyi Pam-Pam ne haka ghushere. Awo nga ha vukurekanga. "Kuna kukukonekitha," gha ghambire nganga apa tha ka mudhingure thinyunyi Pam-Pam, Natongwera thiyambi edi gho kukukwata. Opa wa kumona mudiro mumapembe ne wakutuke wakutjire. Nashana kumona eshi yidye gha kuwina pakatji kenu."
+Pensa mbadi ghadimukire eshi oyu nganga nathinyunyi Pam-Pam ne hakaghushere. Awo ngahavukurekanga. "Kuna kukukonekitha," ghaghambire nganga apa ghakamudhingure thinyunyi Pam-Pam, "Natongwera thiyambi edi ghokukukwata. Opa wakumona mudiro mumuthitu ne wakutuke kokayenda. Nashana kumona eshi yidye ghakuwina pakatji kenu."
 
 ##
-Muruvedhe rorufupi, Pensa gha tangire kushana thinyunyi Pam-Pam. Gha hungumanine mumapembe no ghatakire nokutaka tutondo twendi to mudiro. Apa wa monekire mwithi, gha fudherire muhonyi kututondo tu to muhonyi, kate wa tumbukire mudiro. Yimbumburu eyi ya karire mumuhonyi ya tukire, ene Pensa kwa konine ngenyu kukwata ka mbathi-mbathi kokambiru. Gha katurire muthiraha thendi.
+Muruvedhe rorufupi, Pensa ghatangire kushana thinyunyi Pam-Pam. Ghahungumanine mumuthitu noghatakire tutondo twendi tomudiro. Apa wamonekire mwithi, ghafudherire muhonyi kututondo tomuhonyi, kate watumbukire. Yimbumburu eyi yakarire mumuhonyi yatukire, ene Pensa kwakonine ngenyu kukwata kambathimbathi kokambiru. Ghakaturire muthiraha thendi.
 
 ##
-Thinyunyi Pam-Pam mbadi tha konine konine kushwena kambathimbathighana koghutowi muthiraha tha Pensa. Aye gha tokore mukutukera pamuve no kuna katjombora wanguwangu no muromowendi gho kundjumburuka. Pensa gha yuvirediywi dya Pam-Pam gha kudira. "Pam-pam, pam-pam, pam-pam." Pensa gha tjirere kuthiraha thendi. Thinyunyi tha rwire muthiraha!
+Thinyunyi Pam-Pam mbadi thakonine kushwena kambathimbathighana kashaghutowi muthiraha thaPensa. Aye ghatokorire mukutukera pamuve nokunakatjombora wanguwangu nomuromo wendi ghokundjumburuka. Pensa ghayuvire diywi dyaPam-Pam ghanakudira. "Pam-pam, pam-pam, pam-pam." Pensa ghatjirere kuthiraha thendi. Thinyunyi tharwire muthiraha!
 
 ##
-Pam-pam gha kanderere Pensa ghasa gha mushuture. "Aghu ca," gha ghambire Pensa, "karekare natanga kushana kukukwata. Dyarero ne gho wange "Ghuhuki ghoye ṅanyi wakutendethe maghonga ghange gha tukange mumupepo, yira yowe.
+Pam-pam ghakanderere Pensa eshi ghamushuture. "Caa," dyoghaghambire Pensa, "Karekare natanga kushana kukukwata. Dyarero ne ghowange. Tushako toye mbotunatendi masho ghange ghatukange mumupepo, thika 'we."
 
 ##
-Pam-Pam gha kugherire ghughamba, "Ngeshi ghunipaye mbadi wakukara karo no ghu ghuhuki gho maghonga ghoye opa gha kudjovoka, yoyishi ṅanyi nife. Nishuture no kuna kukukuruperitha eshi nikupange ghuhuki ghoghupya kehe kaghonda.
+Pam-Pam ghakughererire ghughamba, "Ngeshi ghunipaghe mbadi wakukara karo notushako tomasho ghoye opa ghakudjovoka, yoyishi ñanyi nife. Nishuture nonakutoyedhera eshi ñanyi nikupange tushako totupya pakuterama kehe kaghonda."
 
 ##
-Pensa gha shuturire Pam-Pam. Opa gha yendire Pam-Pam kokayenda, gha ghayarire, "Nashutuka me yoshemwa ndi?"
+Pensa ghashuturire Pam-Pam. Opa ghayendire Pam-Pam kokayenda, ghaghayarire, "Nashutuka 'me youshemwa ndi?"
 
 ##
-Pensa gha yendire kudimbo no katenda maghonga ghomapya. Apa hamonine hanu maghonga ghendi ha kugherire: Mawe, mone koyu thiyambi! Aye kutenditha ghuhuki gho Pam-Pam maghonga ghendi. Kenge ṅanyi twa kashane thiwana no kareta yidya yoyiwa. Ṅanyi twa kukare nomukandi!"
+Pensa ghayendire kudighumbo nokatenda masho ghomapya. Apa hamonine hanu masho ghendi hakugherire eshi: "Mawee, mone koyu thiyambi! Aye kutenditha tushako twaPam-Pam masho ghendi. Kutunda pano mboghanashana keho thiwana nokatureteranga yidya yoyiwa. Twakona kughumbeka mukandi!"
 
 ##
-Ghuthiku ghu, nganga gha turithirepo yikina yo kumudiro mukushamberera yitombora ya thiyambi no yishutura ya Pam-Pam. Kutunda diyuwa diya, yiyambi yoyiwa kuvuruka thithimwa tha Pam-Pam, mukuthimwetwedha hanawo mumavurukero gho mayuwa ghana kapita.
+Oghu ghuthiku, nganga ghaturithirepo yikina yomudiro mukushamberera yitombora yathiyambi nomashutwero ghaPam-Pam. Kutunda diyuwa diya, yiyambi mwene kuvuruka thithimwa thaPam-Pam, mukuthimwetwedha hanawo mumavurukero ghomayuwa agha ghanakapita.
 
 ##
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust, Pensa Limungu, Kapilolo Mahongo, Marlene Winberg
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

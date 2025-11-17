@@ -4,20 +4,20 @@
 Pakarire ngandu ghondhara.
 
 ##
-Gha shanine yidya ghunyoma thipore. Munyima dho po...
+Ghashanine yidya ghunyoma thipore. Munyima dhopo...
 
 ##
-Mbakwa! Ngandu ghana kwata.
+Mbakwa! Ngandu ghanakwata!
 
 ##
-Munyima dho po mbadi gha fire karo ndhara, no gha shambererire.
+Kutundapo mbadi ghafire ndhara, noghashambererire.
 
 ##
-Kate gha fe ndhara karo.
+Kate apa mboghafa ndhara karo.
 
 ##
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

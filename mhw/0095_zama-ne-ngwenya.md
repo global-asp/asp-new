@@ -1,44 +1,44 @@
-# Zama ngwenya
+# Zama ne ngwenya!
 
 ##
-Minange gho mungaghu mbadi ghararanga wangu. Ame kupinduka wangu yoyishi, ame ne no ngwenya.
+Minange ghomungaghu mbadi ghararanga wangu. Amene kupinduka wangu yoyishi nongwenya 'me!
 
 ##
 Ame yame mutokerithi diyuwa.
 
 ##
-"Yowe katumwedhi kange", ame wa nawe.
+"Yowe nota wange," ame waNaa.
 
 ##
 Ame kukuyogha nothinda, mbadi nanyanda maghamweno.
 
 ##
-Mbadi nayapa meyu gho matenda ngambi murora gho kunuka.
+Mbadi nayapa meyu ghomatenda ngambi murora ghothinadiwiru ghokunuka ndhanyi.
 
 ##
-Nawe kuni vurukitha, "Wa vurama mayegho." Ame ko kuhutha eshi, "Norofotji temba, ngwa mbadi yame!"
+Naa kunivurukitha, "Wavurama mayegho." Ame kokuhutha eshi, "Kukya, mbadi yame!"
 
 ##
-Pa kumana kuyoghana, ame kumorora mama ghomukafumu na naweghana no kuwa fiyera diyuwa dyo diwa.
+Pakumana kukuyogha, ame kumorora Mama ghomukafumu na Naweghana nokuwa fiyera diyuwa dyodiwa.
 
 ##
-Munyima kokuvata nothinda, no kughamba eshi "Nomukuru keho me nawe."
+Munyima kokushupata nothinda nokughamba eshi "Nomukuru keho 'me, Naa."
 
 ##
-Kukona nikukopere mancanu ghange no kukughanga tukanda twange.
+Kukona nikukopere mancanu ghange nokughanga tukanda tomakuha ghange.
 
 ##
-Kehepa nakonekanga eshi minange ghomumbiru gha dimuke mbudhi dhodhihe dho kushure.
+Kehepa nakonekanga eshi minange ghomumbiru ghadimuke mbudhi dhodhihe dhokushure.
 
 ##
-Mu ngonda ne kehepa kukondja nirughane thikuma mu kehe thirughana.
+Mungonda, ame kukondja nirughane thikuma mukehe thirughana.
 
 ##
-Ame kutenda eyi yinu yoyiwa kehe diyuwa. Ene thinu ethi na haka thikumenena ne kupepa!
+Ame kutenda yinu 'yi yoyiwa kehediyuwa. Ene thinu ethi nahaka thikumenenapo ne, kupepa nokupepa!
 
 ##
 * License: [CC-BY]
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

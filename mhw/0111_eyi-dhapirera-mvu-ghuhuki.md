@@ -1,32 +1,32 @@
-# Eyi dha pirera mvu ghuhuki
+# Eyi dhapirera mvu ghuhuki
 
 ##
-Diyuwa dimweya, Kadimba gha yendaghure kumbadi dho rware.
+Diyuwa dimweya, Kadimba ghayendaghurire kumbombwa dhorware.
 
 ##
-Mvu ko gha karire naye koko, ghayendaghurire ghudya muhonyi gho ghutowi.
+Mvu naye koko, ghayendaghurire ghudya muhonyi ghoghutowi ghothinamahako.
 
 ##
-Mvu mbadi gha monine eshi Kadimba naye ko gha karire no pa dihudhi gha djatire pa dipadhi dyaKadimba. Kadimba gha kugherire kwa Mvu, "Owe Mvu! Mbadi wa kumona eshi padipadhi dyange ghuna djata?"
+Mvu mbadi ghamonine eshi Kadimba naye koghakarire nopadihudhi ghadjatire padipadhi dyaKadimba. Kadimba ghakugherire kwaMvu, "Owe Mvu! Mbadi ghunakumona eshi padipadhi dyange ghunadjata ndi?"
 
 ##
-Mvu gha rombire mathiyerero kwaKadimba, "Dishesha. Mbadi na kumono. Nakanderera nithiyererepo!" Ene Kadimba mbadi gha tegherere kwaMvu nogha ghakugherere kwaMvu, "Wina ghuna yitendera! Diyuwa dimweya, ṅanyi wa kumone! Ṅanyi wa kuyifute!"
+Mvu gharombire mathigherero kwaKadimba, "Dishesha shemwa. Mbadi nakumono. Nakanderera nithighererepo!" Ene Kadimba mbadi ghategherere kwaMvu noghakugherere kwaMvu, "Wina ghunayitendera! Diyuwa dimweya, ñanyi wakumone! Ñanyi wakuyiruwere!"
 
 ##
-Kadimba gha yendire mukushana Mudiro no gha mutongwere, "Yende ghu katumeke Mvu apa sho gha shwaye mumeyu no ghadye muhonyi. Ghana nidjata!" Mudiro gha huthire, Mbadipo ghukukutu, Kadimba mushere wange. Ṅanyi nitende eyi ghuna nikumbera."
+Kadimba ghayendire ghakawane Mudiro nokamutongwera eshi, "Yende, katumeke Mvu apa shoghashwaghe mumeyu ghakadye muhonyi. Ghananidjata!" Mudiro ghahuthire eshi, "Mbadipo ukukutu, Kadimba, mushere wange. Ñanyi nitende eyi ghunanikumbera."
 
 ##
-Munyima, Mvu gha ka dyerere muhonyi kokayenda norware. Mudiro weyire no kutumeka huki dhaMvu.
+Munyima, Mvu ghadyerere muhonyi ghokayenda norware apa wamuvavurire eshi, "Vaa!" Mudiro wahekere mudirara. Mudiro watumekire huki dhaMvu.
 
 ##
-Mvu gha dirire no gha tjirere mumeyu. Ghuhuki wendi dhodhiheya dha pire kumudiro. Mvu gha dirire, "Ghuhuki dhange dhina pi kumudiro! Ghuhuki wange ghuna piti! Ghuhuki wange ghu shaghuwa!"
+Mvu ghatamekire kudira nokutjirera kumeyu. Ghuhuki wendi ghoghuheya wapire kumudiro. Mvu ghadirire, "Huki dhange dhinapi kumudiro! Huki dhange dhinapiti! Huki dhange dhishaghuwa!"
 
 ##
-Kadimba gha shamberere eshi ghuhuki waMvu wa pire. Kate no dyarero, pamurandu gho woma no mudiro, Mvu mbadi gha yendanga kokayenda no meyu.
+Kadimba ghashamberere eshi huki dhaMvu dhapire. Kate nodyarero, pamurandu ghowoma nomudiro, Mvu mbadi ghanyangutukanga kokayenda nomeyu.
 
 ##
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

@@ -1,7 +1,7 @@
-# Minange gho mungaghu gho muva
+# Minange ghomungaghu ghomuva
 
 ##
-Ame kupinduka nikonyere mudiro.
+Ame kupinduka nokukoñera mudiro.
 
 ##
 Ame kuyenyeka meyu.
@@ -10,20 +10,20 @@ Ame kuyenyeka meyu.
 Ame kupayaghura yikunyi.
 
 ##
-Ame ku dhora mu poto.
+Ame kudhora mupoto.
 
 ##
-Ame kukomba.
+Ame kukomba rundanda.
 
 ##
 Ame kuyogha turonga.
 
 ##
-Pashanye na ruwanenanga thikuma... ... oku minange ye ne pakupepa?
+Pashanye narughanenanga thikuma... ... oku minange 'ye ne pakupepaghura?
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Ingrid Schechter
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

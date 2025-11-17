@@ -1,41 +1,41 @@
-# Hana ho yindana yo muka
+# Hanuke hodinongo
 
 ##
-Pakarekare, pakarire didhiko dyo kuhafa.
+Pakarekare, pakarire didhiko dyokushamberera.
 
 ##
-Mbadi ha kurwithangire. Ha ghamwenine hakuru wawo mudighumbo no mumapya.
+Mbadi hakurwithangire. Haghamwenine hakuru wawo mudighumbo nomumapya.
 
 ##
-Ene, mbadi ha wa tawedhere kuhenyena pepi no mudiro.
+Ene mbadi hawafundhwerire kuhenyena pepi nomudiro.
 
 ##
-Nga harughananga yirughana yawo ghuthiku. Yoyishi, awo kwa wa tendithire ku yindana!
+Ngaharughananga yirughana yawo ghuthiku. Yoyishi, awo kwawatendithire kudinongo!
 
 ##
-Ene, mungaghu yofotji gha karire no dirura dyo kushwagha pa nunda ku thishe.
+Ene mungaghu yofotji gharurire kushwagha panunda kuthishe.
 
 ##
-Diyuwa dimweya dirura di dya kuwedherire. Hakurwendi ha mu konekithire...
+Diyuwa dimweya dirura dyakurire thikuma. Hakurwendi hamukonekithire...
 
 ##
-Ene, ha karire maranga! Gha yenyumukire ku ghughenyu gho diyuwa.
+Ene yakarire maranga! Ghayenyumukire kughuyenyu ghodiyuwa.
 
 ##
-Hana ho yindana ha tokotire thikuma mukumona minagho gha kuyenyumuka.
+Hana hodinongo hatokotire thikuma pakumona minagho ghanakuyenyumuka.
 
 ##
-Ene, ha karire no dighano. Hombire thindana thi tho kuyenyumuka mu thishwi tho thinyunyi.
+Ene haturithirepo dighano. Hombire dinongo muthishwi thothinyunyi.
 
 ##
-Ha twarire minagho gho thinyunyi kudirundu dyo dire.
+Hatwarire minagho ghothinyunyi kudirundu dyodire.
 
 ##
-Apa dya vire diyuwa, gha tukire kokayenda wimba mu thishe tho diyuwa.
+Apa dyavire diyuwa, ghatukire kokayenda wimba muthishe thodiyuwa.
 
 ##
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

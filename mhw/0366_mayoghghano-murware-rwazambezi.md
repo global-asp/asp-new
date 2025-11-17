@@ -1,92 +1,92 @@
-# Mayowano murware rwaZambezi
+# Mayoghghano murware rwaZambezi
 
 ##
-Dya karire diyuwa dyo ghughenyu dyoShundaha. Hashengeteya ho muLusese ha pongire muthitondo thothikuru thoMusikili muCaprivi.
+Dyakarire diyuwa dyoShundaha dyoghuyenyu pathitengeyuwa. Hashengeteya homuLusese hapongire mwimi thothitondo thothikuru thoMusikili muCaprivi.
 
 ##
-Mavunguvungu ghawo gho yishamberera gha yuvekire mukunda ghoghuheya. Hethire hashere wagho. "Nakamwu, yowe nakutaterera. "Tambukeko, Chaze. "Silume! Wiye te!"
+Kayoghototo kawo koyishamberera kayuvekire mumukunda ghoghuheya. Hethire hashere wawo. "Nakamwu, yowe nakutaterera." "Tambukeko, Chaze." "Silume! Wiye te!"
 
 ##
-Maria gha shanashanine Ntwala. Ntwala nga ha twaranga kurware kehe Shundaha ha ka yoghane. "Ntwala! Ntwalee! Ntwalaaa! Ntwaloo!" ghethire.
+Maria ghashanashanine Ntwala. Ntwala ngawawatwaranga kurware kehe Shundaha hakayoghane. "Ntwala! Ntwalee! Ntwala! Ntwala wee!" dyoghethire.
 
 ##
-Ntwala gha kugherire kumutara ghumweya gho mukunda, "Yame no! Yamwe nakutaterera." Hashengeteya waheya hatjirere kwendi.
+Ntwala ghakugherire kumutara ghumweya eshi, "Yame yuno! Yamwe nakutaterera." Hashengeteya waheya hatjirire hakamuwane.
 
 ##
-"Muna kuroyithera mukuyenda kukuyowana dyarero?" Ntwala gha wepure. "Yii," hahuthire noyishamberera ghu regharegha.
+"Munakuroghithera kayoghana dyarero ndi?" Dyoghawepurire Ntwala. "Ghii," dyohahuthire ghuregharegha muyishamberera.
 
 ##
-Mundhira dhawo dho kurware Ntwala gha wathimwetwedhire yithimwa. "Tuthimwetwedhe yo kuhatera kumukunda wetu apa wa handjere," ha ghambire. "Tuthimwetwedhe yo kuhatera kwaMbwawa naNguya."
+Mundhira dhawo dhokurware Ntwala ghawatongwerire yithimwa. "Tuthimwetwedhere yokuhatera kumukunda wetu apa wahandjere," dyohaghambire. "Tuthimwetwedhere yokuhatera kwaMbwawa naNguya."
 
 ##
-Kumbombwa dho rware kwa karire Ghumurwa gho ghukuru thikuma. Hashengeteya hashanine murwa dho dhikuru thikuma dhaNtwala.
+Kumbombwa dhorware kwakarire thitondo thishokuru thoghumurwa. Hashengeteya hashanine murwa dhodhikuru thikuma hatape kwaNtwala.
 
 ##
-"Nawana dyodikuru," gha kuyerire Joy. Gha tapire dimurwa dyendi kwaNtwala.
+"Nawana dyodikuru," dyoghakughghererire Joy. Ghatapire dimurwa dyendi kwaNtwala.
 
 ##
-"Muyende mukayowane," gha ghambire Ntwala ko hashengeteya. Waheya hatjirere mumeyu, hakugherire ghu tutuma kughutenda gho meyu gho murware rwaZambezi.
+"Muyende mukayoghane," ghaghambire Ntwala kwawashengeteya. Waheya hatjirere mumeyu, hakugherire ghututuma kughutenda ghomeyu ghoRware rwaZambezi.
 
 ##
-Ntwala ghemanine kumbombwa. Gha kaverere ngeshi kodhidi ngandu. Gha rorere hashengeteya hohakuru hakukutangawera kuyowana no kuvera. Gha rorere hakamadighana ha kukuhonga kuyowana ghutjakaghura meyu.
+Ntwala ghemanine kumbombwa. Ghakevererire ghurera eshi pamwe ngandu. Gharorere hashengeteya hohakurughana edi hanakukutangawera kuyogha nokuvera. Gharorere hakamadighana hohambiru edi hanakukutjakaghera meyu.
 
 ##
-"Ruvedhe ro mutangu," gha kugherire paghuhura. "Mwimane mumuyira." Gha shimbire dimurwa dyodikuru no kudivukuma murware.
+"Ruvedhe romutangu," dyoghakughererire paghuhura. "Mwimane mumuyira." Aye ghadhamunine dimurwa dyodikuru nokudivukuma pakahandha.
 
 ##
-"Fotji, wadi, hatu. MUYENDE!" ghethire. Hanuke hatjirere mumeyu ghuyogha kudimurwa. Ntwala gha wa rorere.
+"Fotji, wadi, hatu. MUYENDE!" Dyoghaghambire. Hanuke hatjirere mumeyu ghuyogha kudimurwa. Ntwala ghawarorere.
 
 ##
-"Yame gho kutangerera!" gha kughere Maria naCaze paruvedhe rofotji. "Mwaheya yamwe ghokutangerera," gha ghambire Ntwala.
+"Yame mukamiti!" Dyoghakughererire Maria naChaze paruvedhe rofotji. "Mwaheya yamwe mwakamiti," ame waNtwala.
 
 ##
-"Nashana kukutangawera karo," gha ghambire Maria. "Ewa!" gha ghambire Chaze. "Kukona ndi Ntwala?" hepure hashengeteya hamweya.
+"Nashana kukutangawera karo," ame waMaria. "Uhunga!" Ghahuthirehuthe Chaze. "Ntwala, kukona ndi?" Dyohepurire hashengeteya hamweya.
 
 ##
-"Mwimane karo mumuyira," gha wa tongwere Ntwala. Gha shimbire dimurwa no kudivukumena kukayenda thikuma.
+"Mwimane karo mumutete," Dyoghaghambire Ntwala. Ghashimbire dimurwa nokudivukumena thikuma kokayenda popa dhahurera ngcamu dhendi.
 
 ##
-"Fotji, wadi, hatu. MUYENDE!" gha kugherire. Hanuke hatjirere murware ghuyogha kudimurwa. Ntwala gha wa rorere.
+"Fotji, wadi, hatu. MUYENDE!" Dyodyoghakugherire. Hanuke hatjirere murware ghuyogha kudimurwa. Ntwala ghawarorere.
 
 ##
-"Yame gho kutangerera!" gha kugherire Chaze. Maria gha shayekire kuyogha. "Chaze yodiye muwini," gha ghambire Ntwala. Ghuna rughana thiwana, Chaze. Mutuyende keho kudighumbo."
+"Yame ghokutangerera!" Ghakugherire Chaze. Maria ghashaghekire kuyogha. "Mumyaghedhi ne Chaze, dyoGhaghambe Ntwala. "Ghunarughana thiwana, Chaze. Tuyende keho kudighumbo."
 
 ##
-Hanuke hayendire kudimbo naNtwala. "Tuthimwetwedhe thithimwa, Ntwala," ha rombire. Awo ha hakire kutegherera yithimwa yendi.
+Hanuke hayendire kudighughumbo naNtwala. "Tuthimwetwedhere thithimwa, Ntwala," dyoDyoharombire. Awo hahakire kutegherera yithimwa yendi.
 
 ##
-Maria gha karire mumughongo wa Chaze no gha muthindekire pamuve.Chaze gha tangire kudira." Ṅanyi gha ka kupume nyina Chaze, gha gambire Joy kwaMaria.
+Maria ghahondaghedhirehondaghedhire mumughongo waChaze nokumuthindeka pamuve. Chaze ghatangire kudira. "Ñanyi ghakakupumure nyina Chaze," dyoghaghambire Joy kwaMaria.
 
 ##
-"Maria! Yinye ghuna pumwera Chaze?" ghepure Ntwala. Ghana wini mutangu gho kuyomana. Mbadi ghuwa kenge," Maria gha ghambirere.
+"Maria! Nye ghunapumwera Chaze?" Ghepure Ntwala. "Ghanawini mutangu ghokuyoghana. Mbadi thiwana," ghaghambire Maria.
 
 ##
-Ntwala ghepure hashengeteya waheya hatende dikandero ghuhungumana. "Ngepi gha tutongwere mukuru gho shure?" ghepure. "Kurwa ne kumango. Hanu hokurwa ne hakona kuwana mahumbithero." gha ghambire Nakamwu.
+Ntwala gharawerire hashengeteya waheya hahungumane mudikandero. "Ngepi ghatutongwerire muyendithishure?" Dyoghepuririre. "Kurwa ne kumango. Hanu hokurwa hakona kuwana mahumbithero." Ghahuthe Nakamwu.
 
 ##
-"Maria rombe mathigherero," gha ghambire Namasiku. "Chaze naye gha muhuthe, gha ghambire Joy. "Ca, mbadi ghuhunga kukupumaghura," gha ghambire Ntwala.
+"Maria ghakona kuromba mathigherero," ame waNamasiku." "Chaze naye ghamuhuthe nyara," dyo ghaghambe Joy. "Caaa, mbadi uhunga kukupumaghura," ame waNtwala.
 
 ##
-Ntwala gha ghambire, "Nakughayara eshi Maria ne gha kuvumwe kuyowana Shundaha gho kurandako." Maria gha dirire shemwa. "Ni... Ni... Nithiyererepo Chaze. Dishesha nakupumura. Mbadi na kupura karo munu," gha rombire.
+Ntwala ghaghambire eshi, "Namono eshi Maria ghakona kuvumwa kumayoghano Shundaha ghokurandako." Maria ghadirire thikuma shemwa. "Ni… Ni… Nithiyererepo, Chaze. Dishesha eshi nakupumura. Mbadi mbonipumura karo kehe munu," dyoghakuthighonokithire.
 
 ##
-"Nakuthiyerera," gha ghambire Chaze no gha turire moko ghendi ghundhondhera Maria. "Name naMaria ne ṅanyi tuyende noye, gha ghambire Ntwala kwaChaze. "Maria ṅanyi gha karombe mathiyerero kwa nyoko nako."
+"Nakuthigherera," dyoghaghambire Chaze noghakambekire dyoko dyendi padipeghe dyaMaria. "Maria name ñanyi tuyende noye," ghaghambire Ntwala kwaChaze. "Maria ñanyi ghakarombe mathigherero nokwanyoko."
 
 ##
-Maria gha tongwere nyina Chaze, "Napumura Chaze yoyishi ghana wini mutangu. Munithiyererepo. Chaze ne muyendhange, yimango eyi na mupumura."
+Maria ghatongweririre nyina Chaze eshi, "Napumura Chaze yoyishi ghanawini mutangu. Munithighererepo. Chaze ne muyendhange, yimango eyi namupumura."
 
 ##
-Nyokwetu Sibungo gha tegherere kwaMaria. "Oyo ne mbadi ghuhunga Maria, yimango yokupumura hanu. Natumera koyi ghuna rombo mathiyerero. Nakuthiyerera." Nyokwetu Sibungo gha tongwere Ntwala, "Gho mupiterithi gho muwa."
+Mukadikuto munaMukadikutoSibungo ghateghererire kwaMaria. "Maria, eyi ghunatendi ne yimango, yiyi yokupumura hanu. Natumera eshi ghunanirombo mathigherero. Nakuthigherera." Mukadikuto munaMukadikuto Sibungo ghatongweririre Ntwala eshi, "Owene ghomupiterithi mwene."
 
 ##
-Nyokwetu Sibungo gha ghambithire hanuke waheya. "Ntwala ghana ghayara thiwana mahumbithero gho kumuroghera Maria. Ghana pumura Chaze yoyishi ghana yongaritha mutangu. Kenge keho ne mbadi gha kukutangawera kuyogha karo."
+Mukadikuto muna Muna MukadikutoSibungo ghaghambithire hanuke waheya. "Ntwala ghanaghayara thiwana mahumbithero ghokumuroghera Maria. Ghanapumura Chaze yoyishi ghanayongaritha mutangu. Kenge keho ne mbadi ghakukutangawera kuyogha karo."
 
 ##
-"Ene nawe," Chaze gha menyamenyine, mbadi nakushana Maria gha kukare kudimbo Shundaha gho kurandako. Nashana ka kutangawera nendi naye thivike thokurandako!
+"Ene Nawe," dyoghamenyamenyine Chaze, "Mbadi "nakushana eshi Maria ghakukare kudighumbo Shundaha ghokurandako. Nashana shime kakutangawera nendi karothivike thokurandako!"
 
 ##
 * License: [CC-BY-NC-SA]
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga , Servasius M. Ndjunga
 * Language: mhw

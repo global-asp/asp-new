@@ -1,32 +1,32 @@
-# Mbapira dho mapumbero mupepo
+# Mbapira dhomapumbero mupepo
 
 ##
-Kuna kukuta.
+Kunakukuta.
 
 ##
-Diyuwa dina ghenyi.
+Diyuwa dinayenyi.
 
 ##
-Kuna kupunga.
+Kunakupunga.
 
 ##
-Kuna kapwera mavuyi.
+Kunakapwera.
 
 ##
-Ghutenda ghu di ko.
+Ghutenda ghudiko.
 
 ##
-Mvura kuna kuroka.
+Kunakuroka.
 
 ##
-Mushoro ghu di ko.
+Mushoro ghudiko.
 
 ##
-Ame kuna kumona mutoghomvura.
+Ame kunakumona mutoghomvura.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

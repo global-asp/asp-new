@@ -4,20 +4,20 @@
 Mutjima wange kuyuva yinu yoyingi.
 
 ##
-Ame kukuyuva yishamberera pa ku tuthimwetwedha mama runguro yithimwa.
+Ame kukuyuva yishamberera pakututhimwetwedha yithimwa mama parunguro.
 
 ##
-Ame kukuyuva wanuke pa kupepa na muyendhange.
+Ame kukuyuva wanuke pakupepa namuyendhange.
 
 ##
-Ame kukuyuva ghumango pa kughamba tate eshi mbadi gha di no masherenyi.
+Ame kukuyuva ghumango pakughamba tate eshi mbadi ghadi nomasherenyi.
 
 ##
-Ame kukuyuva eshi hani haka apa gha ni ndhondheranga nawe.
+Ame kukuyuva eshi nahakiwa apa ghanindhondheranga nawe.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle, Ingrid Schechter
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

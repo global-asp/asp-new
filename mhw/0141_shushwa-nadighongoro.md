@@ -1,44 +1,44 @@
-# Shushwa no Dighongoro
+# Shushwa naDighongoro
 
 ##
-Shushwa no Dighongoro hakarire haka ghushere. Ene kehe pano ngaha kutangaweranga. Diyuwa dimweya hatokorire hapepe pari ghokuthiwa, hanongonone eshi yidye mupepi shokuru pakatji kawo.
+Shushwa naDighongoro hakarire hakaghushere. Ene kehepano ngahakutangaweranga. Diyuwa dimweya hatokorire hapepe pari ghokuthita hanongonone eshi yidye mupepishokuru pakatjikawo.
 
 ##
-Hayendire kukapare kopari ghokuthita no hakatangire no marumbathano wagho. Shushwa gha tambukire, ene Dighongoro dya tambukire thikuma. Shushwa gha thitere ko kayenda, ene Dighongo dya thitere ko kayenda thikuma. Shushwa yamu yedhaghukire.
+Hayendire kukapare kopari ghokuthita nohakatangire no mutangu wawo. Shushwa ghatambukire, ene Dighongoro dyatambukire thikuma. Shushwa ghathitere kokayenda, ene Dighongoro dyathitere kokayenda thikuma. Shushwa yamuyedhaghukire.
 
 ##
-Ghoha tokorire eshi hakuthiterange mapari. Pamutango Dighongoro yogha karire mukwati. Shushwa gha ngenekire dipari dyofotji. Munyimandhopo rwakarire ruvedhe rwa shushwa rokukwata.
+Hatokorire eshi hakuthitere mapari. Pakutanga Dighongoro dyakarire dyodigho dinakuwata. Shushwa ghengenekire pari ghofotji. Munyimandhopo rwakarire rufo rwaShushwa rokukwata.
 
 ##
-Dighongoro gha thitire pari no gha ngenekire. Dighongoro gha lungire pari no gha ngenekire. Dighongoro gha pumurire pari no mutwi ghogha ngenekire. Dighongoro gha ngenekire mapari makwoko.
+Dighongoro dyathitire pari nodyengenekire. Dighongoro dyadhoringire pari nodyengenekire. Dighongoro dyapumurire pari nomutwi nokwingeneka. Dighongoro dyengenekire mapari kwoko.
 
 ##
-Shushwa gha tokotire yoyishi mbadi gha tomborire mumutangu ghu. Aye gha yongarithire. Dighongoro gha tangire kuheka musherewendi kughukaro oghu gha karithire.
+Shushwa ghatokotire yoyishi mbadi ghatomborire mumutangu 'ghu. Aye ghayongarithire. Dighongoro dyatamekire kusherera mushere wadyo kughukaro oghu.
 
 ##
-Shushwa gha tokotire thikuma eyi yamuningithire kate gha yahamine no gha minine dighongoro.
+Shushwa ghatokotire thikuma kate ghayahamine miromo dhendi noghaminine Dighongoro.
 
 ##
-Mundhira dhendi shushwa dho kuyenda kudighumbo, hakuwanine na nyina Dighongoro. Nyina Dighongoro ghepurire eshi, "Mbadi ghuna mono ko mwanange ndi?" Shushwa yene no ñumbu temba. Nyina Dighingoro gha tangire kukudhekera.
+Mundhira dhendi dhokudighumboShushwa, ghakuhanganine nanyina Dighongoro. Nyina Dighongoro ghepurire eshi, "Mbadi ghunamonoko mwanange ndi?" Shushwa ne noñumbu temba. Nyina Dighingoro ghatangire kukudhekera.
 
 ##
-Munyinadhopo Nyina Dighongoro gha yuvire kaywi kokambiru. "Nighamwe nawe!" Nyina Dighongoro gha kengakengire no kudheghetera thiwana. Diywi di kwashwaghere mushushwa.
+Munyinadhopo Nyina Dighongoro ghayuvire kaywi kokambiru. "Nighamwene nawe!" Nyina Dighongoro ghakengakengire nokudheghetera thiwana. Diywi 'di dyashwaghire mwaShushwa.
 
 ##
-Nyina Dighongoro gha kughererire, "Rughanithe ngcamu dhoye mwanange!" Dighongoro ne kunuka ghumango no kukuyuva ghumangomango mukanwa . Shushwa gha tangire kukorwa.
+Nyina Dighongoro ghakughererire, "Rughanithe ngcamu dhoye dhothitetu mwanange!" Maghongoro ne kunuka ghumango nomayi pakughayereka mukanwa. Shushwa ghatangire kuyedha.
 
 ##
-Shushwa gha dokorire. Munyimadhopo gha minine no kuthipa. Munyimadhopo gha yathimithire no kukohora. No kukohora. Dighongoro ne kuyedhitha!
+Shushwa ghadokorire. Ghaminine nokuthipa. Ghayathimithire nokukohora. Nokukohora. Dighongoro dyamuyedhithire!
 
 ##
-Shushwa gha kohorire kate kudikohora mo dighongoro edi dya karire mudipumba. Nyina Dighongoro na mwanendi hakokawire kate kuthitondo hakonde.
+Shushwa ghakohorire kate kudikohoramo Dighongoro edi dyakarire mudipumba. Nyina Dighongoro namwanendi hakokawire kate kuthitondo hakonde.
 
 ##
-Kutundapo, shushwa no maghongoro ne haka ghunyathi.
+Kutundapo, shushwa nomaghongoro hakarire hakaghukore.
 
 ##
 * License: [CC-BY]
 * Text: Winny Asara
 * Illustration: Magriet Brink
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

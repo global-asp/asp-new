@@ -1,56 +1,56 @@
 # Matokwero
 
 ##
-Mukunda wange wa karire no maghukukutu gho mengi. Nga tukaranga mumuyira ghoghure tuvete meyu kupomba.
+Mukunda wange wakarire nomaghukukutu ghomengi. Ngatukaranga mumutete ghoghure tuvete meyu kupomba ghofotji.
 
 ##
-Nga tutatereranga yidya eyi hana tupa hamweya.
+Ngatutatereranga yidya eyi ngahatupanga hamweya.
 
 ##
-Nga tukutjaperanga wangu pamurandu gho haka widhi.
+Ngatukutjaperanga wangu mayugho ghetu pamurandu ghohakawidhi.
 
 ##
-Hanuke hohengi hashwayire mushure.
+Hanuke hohengi hashaghekire shure.
 
 ##
-Hakamadighana nga gha rughananga mumayimbo mumikunda dhimweya.
+Hakamadighana ngarughananga mumaghumbo ghomikunda dhimweya.
 
 ##
-Hakafumughana nga ha rendarendanga mumukunda no hamwe haruwanine kumafarama.
+Hakafumughana ngaharendarendanga mumukunda nohamwe harughanine kumafarama.
 
 ##
-Apa wa pungire mupepo, yipepa ya tukere kuyitundo no kundarata.
+Apa wapungire mupepo, yipepa yodidhiro yakuramine kuyitundo nokundarata.
 
 ##
-Hanu nga haremananga kumakende gho kupayuka agha hamwayire hanu kehemu hakukuyuvera.
+Hanu ngaharemananga kumakende ghokupayuka agha hamwaghire hanu kehedi hakuyuvire.
 
 ##
-Diyuwa dimweya, pomba gha shayekire kupita meyu no gha kukutire. Mandini ghetu gha karire mukunguru.
+Diyuwa dimweya, pomba ghashaghekire kupita meyu noghakukutire. Mandini ghetu ghakarire mukunguru.
 
 ##
-Tate ghayendire tunda dimbo yenda dimbo ghatongwere hanu hakuyende kuthigongi.
+Tate ghayendire tunda dighumbo yenda dighumbo ghatongwere hanu hakuyende kuthigongi.
 
 ##
-Hanu ha hungumanine muthitondo thothikuru no haterere.
+Hanu hahungumanine muthitondo thothikuru nohategherere.
 
 ##
-Tate ghemanine no kughamba, "Twa nyanda kuruwana pofotji mukukoshonona maghukukutu ghetu."
+Tate ghemanine nokughamba eshi, "Twanyanda kurughana pofotji mukukoshonona maghukukutu ghetu."
 
 ##
-Juma gho myaka kwokohatu, oyu gha hungumanine kuthitondo gha kugherire, "Kukona nighamwene kukenitha."
+Juma ghomyaka kwokohatu, oyu ghahungumanine padighowa ghakugherire eshi, "Kukona nighamwene kukenitha."
 
 ##
-Mbuyama ghofotji gha ghambire, "Hambuyama kukona tukupakerere tu kune yidya."
+Mbuyama ghofotji ghaghambire eshi, "Hambuyama kukona tukupakerere tukune yidya."
 
 ##
-Katughuru ghumwe ghemanine no kughamba, "Hatutughuru ṅanyi ha kuthime dithima."
+Katughuru ghumwe ghemanine nokughamba, "Hatutughuru ñanyi hakuthime dithima."
 
 ##
-Twaheya twa kuyere no diywi dyofotji, "Twakona kutjindja ghukaro wetu." Kutunda diyuwa di twa ruwanine pofotji mu kukoshonona maghukukutu ghetu.
+Twaheya twakugherere nodiywi dyofotji, "Twakona kutjindja ghukaro wetu." Kutunda diyuwa 'di twarughanine pofotji mukukoshonona maghukukutu ghetu.
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

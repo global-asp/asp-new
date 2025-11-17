@@ -10,7 +10,7 @@ Mudiro ne kutumeka.
 Mudiro ne kutereka.
 
 ##
-Mudiro ne kutapa ghughenyu.
+Mudiro ne kutapa ghuyenyu.
 
 ##
 Mudiro kutapa thishe.
@@ -22,11 +22,11 @@ Mone, mudiro!
 Mudiro ne kutetukitha.
 
 ##
-Awo ne ngcamu.
+Aghone ngcamu thikuma.
 
 ##
 * License: [CC-BY]
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga , Servasius M. Ndjunga
 * Language: mhw

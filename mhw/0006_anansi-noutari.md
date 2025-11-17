@@ -1,26 +1,26 @@
-# Anansi noGhudimuki
+# Anansi noUtari
 
 ##
-Pakarekare hanu mbadi hadimukire kehe yino. Mbadi hadimukire kukuna mbuto, ngambi kufuma yitere, ngambi kufura yirughanitha yo yikuvo. Nyambi Nyame ghokuwiru gha karire no ghudimuki ghoghuhe mukaye. Gha turire ghudimuki ghu mukandimbe koghuma.
+Pakarekare hanu mbadi hadimukire keheyino. Mbadi hadimukire kukuna mbuto, ngambi kufuma yitere, ngambi kufura maghondo. Nyambi Nyame ghokuwiru ghakarire noutari ghoghuhe ghomukaye. Aye ghaghupungurire mukandimbe koghuma.
 
 ##
-Diyuwa dimweya, Nyame gha tokore eshi gha kona kutapa kandimbe ko ghudimuki kwaAnansi. Kehe ruvedhe nga kenganga Anansi mukandimbe ka, aye nga dimukanga thinu thothipya. Nga yi mushambererithanga thikuma!
+Diyuwa dimweya, Nyame ghatokorire eshi ghakona kutapa kandimbe koutari kwaAnansi. Kehe ruvedhe ngakenganga Anansi mukandimbe 'ka, aye ngadimukanga thinu thothipya. Ngayimushambererithanga thikuma!
 
 ##
-Anansi gho ghumu gha ghayarire, "Ṅanyi niture kandimbe ka kuwiru dho thitondo tho thire. Podiyo eshi ka kukare kange pithange!" Gha dhingumutwedhire wanda gho ghure ku kandimbe, no gha kuwangerere kandimbe mudipumba dyendi. Gha dhinine thitondo. Ene ya mukarere ghukukutu kudhina thitondo no kandimbe ghu mugunda pa manwi ruvedhe roruhe.
+Anansi ghokahoma ghaghayarire, "Ñanyi niture kandimbe 'ka kuwiru dhothitondo thothire. Podigho eshi kakukare kange pithange!" Ghadhingumwetwedhire wanda ghoghure kukandimbe, noghakughangire kandimbe mudipumba dyendi. Ghatangire kudhina kuthitondo. Ene yamukarere ukukutu kudhina thitondo nokandimbe 'ka kamugundagundire pamanwi nako dhodhihe.
 
 ##
-Ruvedhe roruhe mwana Anonsi gho mungaghu ghemanine pamuve dho thitondo ghurorera. Gha ghambire, "Ngo mbadi ghuredhu ngo ghuna kuwangera kandimbe kumughongo ghoye?" Anansi gha yerekire ku kuwangera kandimbe ka kokuyara ghudimuki ku mughongo wendi, shemwa ya mukarere ghuredhu.
+Ruvedhe roruhe 'ru mwana Anansi ghomurumyana ghemanine mwimi dhothitondo ghurorera. Ghaghambire eshi, "Ngombadi shoyikare ghuredhu ngeshi ghukughangerere kandimbe kumughongo ghoye ndi?" Anansi ghayerekire kukughangerera kandimbe 'ka kokuyara utari kumughongo wendi, noshemwa yamukarere ghuredhu.
 
 ##
-Muruvedhe ro rufupi gha ka kumine kundaghandagha dho thitondo. Ene ghemane no gha ghayarire, "Yame naroghera kukara no ghudimuki ghoghuhe, ene mwanange pano ne ghana ghayara thikuma kunipitakana!" Anansi gha patire thikuma no gha vukumine kandimbe ka koghuma pamuve.
+Muthikandho, ghakakumine kundaghandagha dhothitondo. Ene ghemaniine noghaghayarire, "Yame naroghera kukara noutari ghoghuheya, ene mwanange pano ne ghanaghayara thikuma kunipitakana!" Yinu 'yi yapatithire thikuma Anansi noghavukumine kandimbe koghuma pamuve.
 
 ##
-Kandimbe ka koghuma kapayukire. Ghudimuki wa karire gho nyaranyara kwa kehe yu. No kengeyo dyo ha kuhongire hanu kudima, kufuma yitere, no kufura yirughanitha yo yikuvo no yinu yimweya eyi hadimuka kutenda hanu.
+Kandimbe koghuma kapayukire. Utari wakarire keho ghonyaranyara kwakeheyu. Kemo dyohakuhongire hanu kudima, kufuma yitere, nokufura yirughanitha yomaghondo noyinu yimweya eyi hatwetha kutenda hanu.
 
 ##
 * License: [CC-BY]
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

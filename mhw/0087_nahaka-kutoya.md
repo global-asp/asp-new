@@ -1,32 +1,32 @@
 # Nahaka kutoya!
 
 ##
-Ame na haka kutoya.
+Ame nahaka kutoya.
 
 ##
-Yidye shoni toyere po?
+Yidye shonitoyerepo?
 
 ##
-Minange ghomukamadighana ne ghana rara.
+Minange ghomukamadighana ne ghanarara.
 
 ##
-Yidye shoni toyere po?
+Yidye shonitoyerepo?
 
 ##
-Nawe na mama ghomukamadi ne kuna kurughana.
+Nawe namama ghomukamadi ne hanapaghama.
 
 ##
-Yidye shoni toyere po?
+Yidye shonitoyerepo?
 
 ##
-Tate na mama ghomukafumu ne kuna kurughana.
+Tate namama ghomukafumu ne hanapaghama.
 
 ##
-Yidye shoni toyere po? Ñanyi ni kutoyere no thinda!
+Yidye shonitoyerepo? Kukona nikutoyere nothinda!
 
 ##
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Maria M Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

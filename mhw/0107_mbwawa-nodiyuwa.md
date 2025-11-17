@@ -1,35 +1,35 @@
-# Mbwawa nodiyuwa
+# Mbwawa noDiyuwa
 
 ##
-Pakarekare, kwa karire mbwawa ghomuyero ghomuva. Gha tungire na wihe ghokukurupara mumuthutu waKalahari.
+Pakarekare, kwakarire mbwawa ghomuyero nouva thikuma. Ghatungire nawihe ghokukurupara mumuthitu waKalahari.
 
 ##
-Mathikuthiku ghamweya mbwawa ghomukuru gha pindukire kokuwana mwanendi ghana rara pamutenya. Yidya mbadi yi napi shime noñombo ne shime dha karera muthikora! "Mwanuke gho katughuru, ghomuva shemwa! Yende ghu kashane mbuyama ghokuyeka. Ame ne na kurupara keho mbadi shoni kone karo kukupakera thinga," gha ghambire wiha mbwawa. Mbwawa gha reghire no kuyenda ghaka shwaghithe ñombo ghaka dhi dithe.
+Mathikuthiku ghamweya Mbwawashokuru ghapindukire nokuwana mwanendi ghanagharama pamutenya. Yidya mbadi yinapi shime noñombo ne shime dhakarera muthikora! "Murumyana, ghomuva thikuma! Yende ghukashane mukamadi ghokuyeka. Amene nakurupara keho mbadi shonikone karo kukupakera thinga," ghaghambire wiha Mbwawa. Mbwawa ghareghire nokuyenda ghakashwaghithe ñombo dhikadye.
 
 ##
-Mumuthitu, gha monine thinu thina kutwedhima padiwe. Gho gha henyine popepi ko kuhenya karo. Dyodi gha henyine popepi, ghuwa ghotho thinu nagho dyowa twedhimine. Pamweya yo munuwendi yoyu?!
+Mumuthitu, ghamonine thinu thinakutwedhima padiwe. Ghanyomine kamananakamanana ghutamba kudiwe. Dyodi ghahenyine popepi, uwa ghothinu thapo nagho dyowatwedhimine. Pamweya yomunu wendi yoyu?
 
 ##
-"Gho muwa shemwa," dyo gha ghambire mbwawa kothi thinu tha twedhimine." Ene yowe dye? Pashanye ghuna kukarera pithoye?" "Ame ne yame diyuwa" dyo tha huthire thishe. "Hakadiko dyange hani thiyire popa apa ha dhirukire. Mbadi ha shanine kuni shimba. Ame ne nomughenyu thikuma."
+"Ghomuwa shemwa," dyoghaghambire Mbwawa kuthinu thokutwedhima. "Ene yowe dye? Pashanye ghunakarera pithoye?" "Amene yame diyuwa" dyothahuthire thishe. "Hakadiko dyange hanithighire popa apa hadhirukire. Mbadi hashanine kunishimba. Amene nomuyenyu thikuma."
 
 ##
-Mbwawa gha ghambire, "Ene gho muwa shemwa! Ame ne ñanyi ni kushimbe. Ame ñanyi ni kutware kudighumbo dyetu ghu kawane tate." "Ghuhunga, kukona ngenyu ghuni shimbe. Ene mbadi ghu nyeghenye apa shoni tange kughenya thikuma," dya ghambire diyuwa.
+Mbwawa ghaghambire eshi, "Ene ghomuwa shemwa te! Ñanyi nikushimbe. Ñanyi nikutware kudighumbo dyetu ghukamone tate." "Uhunga, kukona ngenyu ghunishimbe. Ene mbadi ghunyeghenye apa shonitange kuyenya thikuma," dyodyaghambire diyuwa.
 
 ##
-Mbwawa gherekire diyuwa mumughongo wendi no gha tangire no ruyendo rwendi ro kuyenda kudighumbo. Nokapupikamanana temba diyuwa dya tangire kutumeka ghuhuki wa mbwawa. "Nakukanderera kukona ghu shuruke mumughongo wange ndi? Na shana ni turumutheko," gha ghambire mbwawa. Mughongo wendi wa remanine thikuma kate kumukanga kuyenda. "Tware kughutho!" dya ghambire diyuwa. "Ame na kutongwera eshi mbadi ghu nyeghenye!"
+Mbwawa gherekire diyuwa mumughongo wendi noghatangire noruyendo rwendi rokuyenda kudighumbo. Nokapupi temba, diyuwa dyatangire kutumeka huki dhaMbwawa. "Nakukanderera kukona ghushuruke mumughongo wange ndi? Nashana niturumutheko," dyoghaghambire Mbwawa. Mughongo wendi waremanine thikuma kate kukanga kuyenda. "Tware kughutho!" dyodyaghambire diyuwa. "Dyonakutongwera eshi mbadi ghunyeghenye!"
 
 ##
-Munyimadhopo mbwawa ghogha monine dighowa mundhira. Aye gho gha kokawire mwishi dhodighowa podigho eshi diyuwa di weko.
+Munyimadhopo Mbwawa ghamonine dighowa kumbadi dhondhira. Ghakokawire mwishi dhodighowa podigho eshi diyuwa diweko.
 
 ##
-Ene dighowa nadyo dya mu huyure thikova noghuhuki ghopamughongo ghoya thiyarire pofotji no diyuwa.
+Ene dighowa nadyo dyamuhuyurire thikova nohuki dhopamughongo dhathigharire pofotji nodiyuwa.
 
 ##
-Ghuhuki ghoghupya oghu wa nenine apa gha huyukire ne wa karire gho rudhi rwaro naro wakutjaka no ghuhuki ghomuyirama yendi yoyiheya. Ghoghu ghuhuki ghorudhi rwaro naro kehe pano nga ghu mu vurukitha nga mbwawa eshi mbadi gha kona kukara gheyero karo.
+Huki dhodhipya edhi dhamenine apa pahuyukire ne dhakarire dhorudhi rwaro naro nodhakutjakire nohuki dhomuyirama yendi yoyiheya. Edhi huki dhorudhi rwaro naro ngadhivurukithanga Mbwawa mukudhira kuyerupa karo.
 
 ##
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Maria M. Dikuua
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw

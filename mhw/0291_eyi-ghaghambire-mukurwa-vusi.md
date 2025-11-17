@@ -1,47 +1,47 @@
-# Eyi gha ghambire mukurwa Vusi ghomukamadi
+# Eyi ghaghambire mukurwa Vusi
 
 ##
-Mathikuthiku ghamweya nyakudya Vusi gha mwithire. "Vusi, nakanderera tware dihonyi di kwa hakuru ghoye. Hana shana katenda thikuki tho thikuru tho mayekero gha mukuroye."
+Mathikuthiku ghamweya nyakudya Vusi ghamwithire. "Vusi, nakanderera tware dihonyi 'di kwawakuru ghoye. Hanashana katenda thikuki thothikuru thomayekero ghamukuroye ghomukadi."
 
 ##
-Mundhira dhendi dho kuyenda kwa hakuru wendi, Vusi gha wanine hangaghu hawadi ha kuya mbuyo. Mungaghu yofotji gha tjombore dihonyi kwaVusi no kudivukumitha kuthitondo. Dihonyi dya payukire.
+Mundhira dhendi dhokutamba kwawakuru wendi, Vusi ghahanganine hangaghu hawadi hanakuya mbuyo. Mungaghu ghumweya ghatjomborire dihonyi kwaVusi nokudivukumitha kuthitondo. Dihonyi dyamwatukire.
 
 ##
-"Yinye ghuna tendi?" gha dirire Vusi. "Odiya dihonyi ne dyo thikuki. Thikuki tho mayekero gha mukurwange. Yinye sho gha ka ghambe mukurwange ngeshi mbadiko thikuki tho mayekero?"
+"Nye ghunatendi?" dyoghadirire Vusi. "Diya dihonyi ne dyothikuki. Thikuki thomayekero ghamukurwange. Nye shoghakaghambe mukurwange ngeshi mbadiko thikuki thomayekero?"
 
 ##
-Hangaghu ha hekire Vusi. "Mbadi sho tu ghamwene no thikuki, ene shimbe mburo dhi ghu katape kwa mukuroye," gha ghambire yofotji. Vusi gha twikere no ruyendo rwendi.
+Hangaghu hamuhekire Vusi. "Mbadi shotukughamwene nothikuki, ene shimbe edhi mburo ghukatape kwamukuroye," dyoghaghambire yofotji. Vusi gharundurukire noruyendo rwendi.
 
 ##
-Mundhira, Vusi gha wanine hatutughura hawadi hana kutenda ndhugho. "Kukona turughanithe odho mburo dho kutanara?" ghepure yofotji. Ene mburo mbadi dha tanare no dha tjokire.
+Mundhira, Vusi ghawanine hatutughura hawadi hanakushokeka ndhugho. "Kukona turughanithe odho mburo dhokutanara ndi?" dyoghepurire yofotji. Ene mburo mbadi dhatanarire nodhatjokire.
 
 ##
-"Yinye ghuna tendi?" gha dirire Vusi. "Odhiya mburo ne ghushwi wa mukurwange. Haka kuya mbuyo hana dhinipa yoyishi hana payura dihonyi dyo thikuki. Thikuki tho mayekero gha mukurwange. Kenge ne mbadiko dihonyi, mbadiko thikuki no mbadiko ghushwi. "Yinye sho gha kaghambe mukurwange?"
+"Yinye ghunatendi?" dyoghadirire Vusi. "Dhiya mburo ne thitapera thamukurwange. Hakakuya mbuyo hanadhinipa yoyishi hanandura dihonyi dyothikuki. Thikuki thomayekero ghamukurwange. Kenge ne mbadiko dihonyi, mbadiko thikuki, nombadiko thitapera. Nye shoghakaghambe mukurwange?"
 
 ##
-Hatendi ha mudhekere nyeke mukutjora mburo."Mbadi sho tughamwene nothikuki, ene shimbe muhonyi ghu ghukapa mukuroye," gha ghambire yofotji. No Vusi gha twikere noruyendo rwendi.
+Hashokeki hamudhekerire ñeke mukutjora mburo. "Mbadi shotukughamwene nothikuki, ene shimbe oghu muhonyi ghokuyamberitha ghukape mukuroye," dyoghaghambire yofotji. Vusi gharundurukire noruyendo rwendi.
 
 ##
-Mundhira, Vusi gha wanine mukafarama nongombe."Muhonyi kughutowi, kukona nidyeko ndi?" ghepure ngombe. Ene muhonyi wakarire ghutowi thikuma no ngombe gha dire ghoghuheya!
+Mundhira, Vusi ghahanganine mukafarama nongombe. "Mawee, muhonyi kughutowi, kukona nivunyepo ndi?" dyoghepurire ngombe. Ene muhonyi wakarire ghutowi thikuma nongombe ghadire ghoghuheya!
 
 ##
-"Yinye ghuna tendi?" gha dirire Vusi. Oghuya muhonyi ne ghushwi wa mukurwange. Hatendi hana nipa muhonyi yoyishi hana tjora mburo dho kwaka kuya mbuyo. Haka kuya mbuyo hana nipa mburo dhiya yoyishi hana payura dihonyi dyothikuki tha mukurwange. Thikuki thi ne tho mayekero gha mukurwange. Kenge ne mbadiko dihonyi, mbadiko thikuki no mbadiko ghushwi. Ngepi sho gha kaghambe keho mukurwange?"
+"Yinye ghunatendi?" dyoghadirire Vusi. Ghuya muhonyi ne thitapera thamukurwange. Hashokekindhugho hananipa muhonyi yoyishi hanatjoro mburo dhawakakuya mbuyo. Hakakuya mbuyo hananipa mburo dhiya yoyishi hanapayura dihonyi dyothikuki thamukurwange. Thikuki 'thi ne thomayekero ghamukurwange. Kenge ne mbadiko dihonyi, mbadiko thikuki, nombadiko thitapera. Ngepi shoghakaghambe keho mukurwange?"
 
 ##
-Ngombe gha mudhekere nyeke mukukara ghumu. Mukafarama gha tawire eshi ngombe kukona gha yende naVusi eshi ghushwi wa mukurwendi. No Vusi gha twikere.
+Ngombe ghamuferere ñeke mukukara kahoma. Mukafarama ghatawire eshi ngombe kukona ghayende naVusi ghakakare thitapera thamukurwendi. Vusi gharundurukire.
 
 ##
-Ene ngombe gha tjirere kwa mukafarama pa ruvedhe ro murarero. No Vusi gha yongarire muruyendo rwendi. Gha hurere shemwa kumayekero gha mukurwendi. Apa gha kakumine hagenda ne kuna kudya kare.
+Ene ngombe ghakathighukire kwamukafarama panako dhomurarero. Vusi ghapyerere muruyendo rwendi. Ghahurere shemwa kumayekero ghamukurwendi. Apa ghakakumine ghakawanine hagenda kunakudya kare diyumbu.
 
 ##
-"Ngepi sho nitende?" ghadirire Vusi. Oya ngombe ghana tjira ne ghoghushwi, oghu ghuna hangedhera mumuhonyi oghu hana nipa hatendi yoyishi hana tjora mburo edhi dhina shwagha ko haka kuya mbuyo. Haka kuya mbuyo hana nipa mburo yoyishi hana payura dihonyi dyothikuki. Thikuki thomayekero. Kenge ne mbadiko dihonyi, mbadiko thikuki no mbadiko ghushwi."
+"Nye shonitende?" dyoghadirire Vusi. Oya ngombe ghanatjira ne thothitapera, ethi thinahangedhera mumuhonyi oghu hananipa hashokeki yoyishi hanatjoro mburo edhi dhinashwagha kwawakakuya mbuyo. Hakakuya mbuyo hananipa mburo yoyishi hanapayura dihonyi dyothikuki. Thikuki ne thomayekero. Kenge ne mbadiko dihonyi, mbadiko thikuki, nombadiko thitapera."
 
 ##
-Mukurwa Vusi gha ghayarire kamanana, no gha ghambire, "Vusi minange amene yanye yo yoyiheya yo yoghushwi. Mbadi nidi no thinga no thikuki! Twaheya potudi pano pofotji, nashamberera shemwa. Kashupate yitere yoye tu djabwane diyuwa di!" Oyi ne yo gha tendire mukurwa Vusi.
+Mukurwa Vusi ghadhegheterire kamanana, noghaghambire eshi, "Minange, Vusi, amene yanye yitapera yoyiheya. Mbadi nidi nothinga thothikuki! Twaheya pofotji tudi pano, nonashamberera shemwa. Kakugcoke yitere yoye yoyiwa tudjabwane diyuwa dino!" Kemo dyoghatendire Vusi.
 
 ##
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw

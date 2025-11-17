@@ -1,38 +1,38 @@
-# Mutende naṄwanyi
+# Mutende naKarukodhi
 
 ##
-Ruvedhe rumweya, Mutende naṄwanyi hakarire ha ka ghushere. Hatungire muthiraro no yinyunyi yimweya. Nothofotji temba tha karire tho kutuka.
+Ruvedhe rumweya, Mutende naKarukodhi hakarire hakaghushere. Hatungire muthiraro noyinyunyi yimweya. Noyofotji temba pakatji kawo oyu ghakonine kutuka.
 
 ##
-Diyuwa dimweya, kwa karire ndhara muditunga. Ṅwanyi nga yendanga kokayenda gha ka shane yidya. Gha kahukire ghana ghaya. "Dha kona kukara po ndhira dho dhiredhu dho kuyenda!" gha ghambire Ṅwanyi.
+Diyuwa dimweya, dirumbu dyakarireko muditunga. Karukodhi ngayendanga ghakashane yidya. Ngakahukanga ghanakotoka. "Pakona kukara ndhira dhodhiredhu dhokuyenda!" ghaghambire Karukodhi.
 
 ##
-Munyima dho kurara thiwana ghuthiku, Mutende gha karire no dighano mwene. Gha tangire kutoratora mando agha gha wire kuyinyunyi yiyendhendi yoyiheya. "Tu ghafumene pofotji pawiru dho mando ghetu," gha ghambire. "Pamweya ṅanyi ya kuredhupithe kuyenda ruyendo."
+Munyima dhokurara thiwana ghuthiku, Mutende ghakarire nodighano mwene. Ghatangire kutoratora tushako otu twawire kuyinyunyi yoyiheya. "Tutufume pofotji pawiru dhoghushako wetu," dyoghaghambire. "Pamweya ñanyi yakuredhupithe kuyenda ruyendo."
 
 ##
-Ṅwanyi pithendi gha karire nothonga mumukunda gho ghuhe, podiyo gha tangire kufuma. Ghatendire mando gho mawa no gha tukire kokayenda kuwiru dhaMutende. Mutende gha rombire thonga ene gha ghayire wangu kufuma. Gha thiyire thonga pa thimbangupungwero no gha yendire kukumbitha gha katerekere hanendi yidya.
+Karukodhi pithendi yoghakarire nothonga mumukunda ghoghuhe, podigho ghatangerere kufuma. Ghatendire mando ghomawa noghatukire kundaghandagha dhaMutende. Mutende gharombire thonga ene ghaghayire wangu pakufuma. Ghathighire thonga patishi noghayendire kukumbitha ghakaterekere hanendi yidya.
 
 ##
-Ene yinyunyi yimweya ya monine ṅwanyi gha katuka. Yarombire thonga kwa Mutende yi kafume mando ghayo nayo. Kapupi kamanana yinyunyi ya tukire muwiru momuheya.
+Ene yinyunyi yimweya yamonine Karukodhi apa ghatukire. Yarombire thonga kwaMutende yikafume mando ghayo nayo. Kapupi kamanana yinyunyi yatamekire kutukatuka muwiru momuheya.
 
 ##
-Apa tha kahuthire thinyunyi tho kuhurera thonga, Mutende mbadi gha karirepo. Hanendi ha shimbire thonga no kudhipepitha. Apa ha ghayire kupepaghura, hathiyire thonga mumuve.
+Apa thakahuthire thonga thinyunyi thokuhurera, Mutende mbadi ghakarirepo. Hanendi hashimbire thonga nokudhipepitha. Apa haghayire kupepaghura, hambwangarekire thonga mumuve.
 
 ##
-Munyima pa metaha, Ṅwanyi gha kahukire. Gharombire thonga gha fume mando ghendi agha gha tungunukire. Mutende gha kengire pa thimbangupungwero. Gha kengire mukumbitha. Gha kengire mudirapa. Ene thonga mbadi ha dhiwanine.
+Pametaha diyuwa diya, Karukodhi ghakahukire. Gharombire thonga ghafume tushako otu twayawire muruyendo rwendi. Mutende ghakengire pathimbangupungwero. Ghakengire mukumbitha. Ghakengire mudirapa. Ene thonga ne roterote.
 
 ##
-"Nipeko vene diyuwa dyofotji," Mutende gha kandere Ṅwanyi. "No ṅanyi wa kuroyithe mando ghoye nowakutuke no kashana karo yidya." "Diyuwa ngenyu dyofotji," gha ghambire Ṅwanyi. Ngeshi mbadi wa kudhiwana thonga, wakona kunifuta katjiyotjiyo koye kofotji."
+"Nipeko vene diyuwa dyofotji," dyoghakanderere Mutende kwaKarukodhi. "Ñanyi wakuroghithe dyando dyoye nokutuka ghukashane karo yidya." "Diyuwa ngenyu dyofotji," dyoghaghambire Karukodhi. "Ngeshi mbadi wakudhiwana thonga, wakona kuniruwera katjighotjigho koye kofotji."
 
 ##
-Apa gheyire ṅwanyi diyuwa dyo kurandako, ghana wanine Mutende kuna kuthukura mumuve, ene mbadiko thonga. No Ṅwanyi gha tukere pamuve no kuna tjombora katjiyotjiyo kofotji. Gha kashimbire. Kuroruheya kutunda po, kehe pano Ṅwanyi gho kwiya kuna wana Mutende ne kuna kuthukura mumuve gha shane thonga.
+Apa gheyire Karukodhi diyuwa dyokurandako, ghanawanine Mutende kunakuthukura mumuve, ene mbadiko thonga. Karukodhi ghatjwemine wangu ghutamba pamuve nokunatjombora katjighotjigho kofotji patutjighotjigho. Ghakashimbire. Kuroruheya kutundapo, kehepano ghokwiya Karukodhi, kunawana Mutende ne kuna kuthukura mumuve ghushana thonga.
 
 ##
-Kehepa wa monekanga mudhidhimbi gho mando gho Ṅwanyi pamuve, Mutende kukonekitha tutjiyotjiyo twendi "Mushwaye padyango dyo kupira yinu." Ato kuhutha: "Mbadi twa yero. Ṅanyi tu tjire."
+Kehepa wamonekanga mudhidhimbi ghomando ghaKarukodhi pamuve, Mutende kukonekitha tutjighotjigho twendi "Mushwaghe padyango dyokupira yinu." Ato kuhutha eshi: "Mbadi twayero twe. Ñanyi tudhondoke."
 
 ##
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Ruthgela Shawanga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw
