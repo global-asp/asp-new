@@ -1,4 +1,4 @@
-# Mayoghghano murware rwaZambezi
+# Mayoghano murware rwaZambezi
 
 ##
 Dyakarire diyuwa dyoShundaha dyoghuyenyu pathitengeyuwa. Hashengeteya homuLusese hapongire mwimi thothitondo thothikuru thoMusikili muCaprivi.
