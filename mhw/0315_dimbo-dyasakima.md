@@ -58,5 +58,5 @@ Mutungi ghashamberire thikuma pakumona mwanendi karo. Gharuwerire Sakima kumahen
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Ruthgela Shawanga, Servasius M. Ndjunga, Servasius M. Ndjunga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw
