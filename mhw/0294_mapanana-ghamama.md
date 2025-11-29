@@ -34,5 +34,5 @@ Ruya runguro ruya hanithire hanawe, tate naMama. Nayidimukire eshi pashanye. Ghu
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
-* Translation: Maria M. Dikuua, Servasius M. Ndjunga, Seravsius M. Ndjunga
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw
