@@ -51,5 +51,5 @@ Besa ghokuthighuka ghayarire wanguwangu. Tamba ghemane hatambe thodiva. Thomudyo
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: Maria M. Dikuua, Servasius M. Ndjunga , Servasius M. Ndjunga
+* Translation: Maria M. Dikuua, Servasius M. Ndjunga
 * Language: mhw
