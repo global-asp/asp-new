@@ -28,5 +28,5 @@ Aghone ngcamu thikuma.
 * License: [CC-BY]
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
-* Translation: Ruthgela Shawanga, Servasius M. Ndjunga , Servasius M. Ndjunga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw
