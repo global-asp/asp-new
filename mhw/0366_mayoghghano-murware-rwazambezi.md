@@ -88,5 +88,5 @@ Mukadikuto muna Muna MukadikutoSibungo ghaghambithire hanuke waheya. "Ntwala gha
 * License: [CC-BY-NC-SA]
 * Text: Imelda Lyamine, Albius Chunga Mulisa, Maria Simasiku, Florence Habayemi Shitaa
 * Illustration: Kleopas Jambeinge
-* Translation: Ruthgela Shawanga, Servasius M. Ndjunga , Servasius M. Ndjunga
+* Translation: Ruthgela Shawanga, Servasius M. Ndjunga
 * Language: mhw
