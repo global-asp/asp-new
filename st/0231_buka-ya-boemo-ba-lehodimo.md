@@ -4,10 +4,10 @@
 Ho omme.
 
 ##
-Ho a tjhesa.
+Letsatsi le a tjhesa.
 
 ##
-Moya o a foka.
+Ho na le moya.
 
 ##
 Maru a thibile.
@@ -19,7 +19,7 @@ Ho a bata.
 Pula e a na.
 
 ##
-Lehodimo le a duma.
+Lehadima le duma.
 
 ##
 Ke bona mookodi.
