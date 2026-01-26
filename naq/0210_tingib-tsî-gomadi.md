@@ -4,19 +4,19 @@
 Tingib ge ǁîb ǁnaos ǀkha ge ǁan hâ i.
 
 ##
-ǁÎb ge ǁnaosas ǀkha go âde gere ǃûi.
+ǁÎb ge ǁnaosas ǀkha gomade gere ǃûi.
 
 ##
 ǀGuitsē gu ge toroǃkham-aoga ge hā.
 
 ##
-ǁÎgu ge go âde ge ū.
+ǁÎgu ge gomade ge ū.
 
 ##
-Tingib tsî ǁîb ǁnaosa hâra ge lkhoe tsî ge gaugausen.
+Tingib tsî ǁîb ǁnaosa hâra ge ǃkhoe tsî ge gaugausen.
 
 ##
-ǁÎra ge ǃgarob ǃnâ ge sâusen ǃui i nîs kōse.
+ǁÎra ge ǃgarob ǃnâ ge sâusen ǃoes kōse.
 
 ##
 Ogu ge toroǃkham-aoga ge oaǀkhī.
@@ -25,10 +25,10 @@ Ogu ge toroǃkham-aoga ge oaǀkhī.
 ǁNaosas ge Tingiba haiǂnaregu ǃnāga ge sâu.
 
 ##
-ǀGui toroǃkham-aob ge ǁîb ǂaisa Tingib ai ge da, xawe ge ǁūse ge ǁgoe.
+ǀGui toroǃkham-aob ge ǁîb ǂaisa Tingib ai ge da, xaweb ge ǁūse ge ǁgoe.
 
 ##
-ǃNorasa i ge, o ra ge Tingib tsî ǁnaosa hâra sâusen ra go hâ i ǃkhaisa xu ge ǂoaxa.
+ǃNorasa i ge, o ra ge Tingib tsî ǁnaosas hâra sâusen ra ge hâ i ǃkhaisa xu ge ǂoaxa.
 
 ##
 ǁÎra ge oms ǁga ge ǀkhuri-oa.

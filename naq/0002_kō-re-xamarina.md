@@ -1,28 +1,28 @@
-# Xamarina kō re
+# Kō re xamarina
 
 ##
-Xamarina kō re.
+Kō re xamarina.
 
 ##
 Gomas ge "mbuu" ti ra mî.
 
 ##
-Piris ge ra "mehmeh".
+Piris ge "mehmeh" ti ra mî.
 
 ##
 Hāb ge "hihihi" ti ra mî.
 
 ##
-Hāgub ge ra, "xorxor".
+Hāgūb ge ra, "xorxor."
 
 ##
-Anis ge ra "kekeke".
+Anis ge ra "kekeke."
 
 ##
-Arib ge ra, "hauhau".
+Arib ge ra, "hauhau."
 
 ##
-Gari-aob tsîn ra "shhh!" ti mî.
+ǂGari-aob ge "shhh!" ti ra mî.
 
 ##
 * License: [CC-BY-NC]

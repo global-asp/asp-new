@@ -1,22 +1,22 @@
 # Anansib tsî Gā-aisib
 
 ##
-Kaixu kaixu ǁae-en ge khoena xū-e ge ǀū-i. ǁÎn ge ge ǀū i mâtin nî ǃhanagās, tamas ka io sarana oms, tamas ka io ǀurina kurusa. ǁNā elob Nyameb ǀhommi ǃnâ hâb ge hoa gā-aisiba ǃhūbaib diba ūhâ. ǁÎb ge nēsa goasūs ǃnâ sâu hâ.
+Gaxu, gaxu ǁae-en ge khoena xū-e ge ǀū-i. ǁÎn ge ge ǀū i mâtin nî ǃhanaǂgā, tamas ka io sarana ǂom, tamas ka io ǀurin ǀkha sîsenūxuna kuru ǀgausa. ǁNā elob Nyameb ǀhommi ǃnâ hâb, ge hoa gā-aisib ǃhūbaib diba ge ūhâ i. ǁÎb ge nē gā-aisiba ǂgoasū i ǃnâ ge sâu hâ i.
 
 ##
-ǀGui tsēb ge Nyameba ge mîǁgui ǁîb nē gā-aisib sūsa Anansiba nî mā sa. Mâǁaeb hoab hîab Anansiba nē sūs ǃnâ ra kōbab ge ǀasa xū-e ra ǁkhāǁkhāsen.
+ǀGui tsēb ge Nyameba ge mîllgui ǁîb nē gā-aisib sūsa, Anansiba nî mā ǃkhaisa. Mâǁaeb hoab hîab Anansiba nē sūs ǃnâ ra kōbab ge ǀasa xū-e ra ǁkhāǁkhāsen. Kaise i ge ge ǁkhoaxa ī!
 
 ##
-Xūǃgunuxa Anansib ge ra âi, "Tita xa ǀgapi hais amǃnâ ǃnorasase nî ūhâhe. O ta ge tita hoana ūhâ" ti. ǀÎb ge kaixu tsuriba goa sūs namipeba xū ǁîb ǁkhoms ai ge ǃgae. ǁÎb ge hais ai ra oa tsoatoa. Xawe i ge kaise ge ǃgom i hais ai goasūs ǀkhā oasa ǁîs ge ǁîb ǁgoadi ai hoaǁae ge re gâusen xui-ao.
+Xūǃgunuxa Anansib ge gere ǂâi, "Sūsa ta ge ti xa ǀgapi hais ǂamǃnâ ǃnorasase nî ūhâ. O ta ge ti amse hoana nî ūhâ" ti. ǀÎb ge gaxu tsuriba ǂgoasūs ǂnamipeba xū ǁîb ǁkhoms ai ge ǃgae. ǁÎb ge hais ai ge ǂoa tsoatoa. Xawe i ge kaise ge ǃgom i hais ai ǂgoasūs ǀkhā ǂoasa, ǁîs ge ǁîb ǁgoadi ai hoaǁae ge re ǂgâusen xui-ao.
 
 ##
-Nēǁaeb hoabab ge Anansib ǀgôaba hais ǃnaka ge mâ i ǁîba ra kōǃgonse. ǁÎb ge ra mî, "Supu i tide harosa ǁîsa du ga ǁâb ai a apa o?" Anansib ge ra dītsâ goa sūs gā-aisib xa ǀoa hâsa ǁîb ǁâb ai ǃgae, tsî i ge kaise ge supuba pi.
+Nēǁaeb hoabab ge Anansib ǀgôaba hais ǃnaka ge mâ i, ǁîba ra ǃharase. ǁÎb ge ge mî, "Supu i tide ǂharosa, sūsab ga Dadaba ǁâb ai a apa o?" Anansib ge ge dītsâ ǂgoasūs gā-aisib xa ǀoa hâsa, ǁîb ǁâb ai ǃgaesa, tsî i ge kaise ge supuba bi.
 
 ##
-Supuseb ge ǀgapigab kōse ra kharo. Xaweb ge sâ tsî ra âiǃgâ, "Tita gom hoa gā-aisisa ūhâ o, ob mâti ti ôaba tita xa ra gā-ai!" ǁÎb ge kaise nēs xa ǁaixakaihe tsî goa sūsa haisa xū ra aoǁnâ.
+Supuseb ge ǀgapigab kōse ge ǂharo, xaweb ge sâ tsî ra ǂâiǃgâ, "Tita gom hoa gā-aisisa ūhâ o, ob mâti ti ôaba tita xa ra gā-ai?! " ǁÎb ge kaise nēs xa ǁaixakaihe, tsî ǂgoasūsa haisa xū ge aoǁnâ.
 
 ##
-ǁÎs ge ǃhūb ai ǃâro di ǃnâ ra ǀgora. Gā-aisib ge ge ǃnoraǃnorahe hoan xa a ǀgoraguhe ǁkhā se. ǁNāpaxus ge khoen ge ǁkhāǁkhāsen ǃgaroǃā sîsenga, ǃom sîsenga, sarana kurusa, ǀuri kuruxūna kurusa, tsî ǁkhāti hoaraga xūn ǁîn a dīǁkhāna.
+ǁÎs ge ǃhūb ai, ǃârodi ǃnâ ge khôaǃā. Gā-aisib ge hoan xa ǀgoraguhe ǁkhāse, ge ǃnoraǃnorahe. ǁNāpaxun ge khoena ge ǁkhāǁkhāsen ǃgaro sîsengu, ǃom sîsengu, sarana kurus, ǀuri sisenūxuna kurus, tsî ǁkhāti hoaraga xūn khoen dī ǁkhāna.
 
 ##
 * License: [CC-BY]

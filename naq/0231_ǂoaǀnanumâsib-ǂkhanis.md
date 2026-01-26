@@ -1,7 +1,7 @@
 # ǂOaǀnanumâsib ǂKhanis
 
 ##
-ǀGamsa a.
+ǂNâsa i ga a.
 
 ##
 Sores ge ǀgamsa.
@@ -22,7 +22,7 @@ Sores ge ǀgamsa.
 ǃGuru i ge ra.
 
 ##
-ǃGaoǃhanaba ta ra mû.
+ǃGaoǃhanaba ta ge ra mû.
 
 ##
 * License: [CC-BY-NC]

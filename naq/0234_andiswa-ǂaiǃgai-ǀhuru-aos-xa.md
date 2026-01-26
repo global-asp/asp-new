@@ -1,28 +1,28 @@
-# Andiswa aiǃgai ǀgamiros xa
+# Andiswa ǂaiǃgai ǀhuru-aos xa
 
 ##
-Andiswas ge axagu ra aiǃgaisa ǀuru ǀgausar a kō. ǁÎs ge ra ǁkhore ǁhao gu sa. ǁÎs ge ǃâi-aoba ra gan ǁîgu ǀkha ǃâisensa.
+Andiswas ge axagu ra ǂaiǃgaisa ǀhuru ǀgausa gere kō. ǁÎs ge gere ǁkhore ǁîga ǁhaosa. ǁÎs ge ǃâi-aoba ge ǂgân ǁîgu ǀkha ǃâisensa.
 
 ##
-ǃÂi-aob ge ǁîb ǃom ra ǁîb kamanab ai ra nûi.
+ǃÂi-aob ge ǁgâinǂnami tsî ge mî: "Nē skoli tawa gu ge axagu ǀguiga ma-amsa ǂaiǃgaisa ǀhurusa."
 
 ##
-Axagu ge ǁîsa ra mîba îs hē-aogāsa sī ǀhuru. ǁÎgu ra mîs ge hē-aogās a axadi di tsî aiǃgaisa a axagudi sa. Andiswas ge ra khîoǃnâ.
+Axagu ge ǁîsa ge mîba îs ǂhē-aoǂgāsa sī ǀhuru. ǁÎgu ge mîs ge ǂhē-aoǂgās a ǀgôadi di, tsî ǂaiǃgaisa a axagudi ǃkhaisa. Andiswas ge ge ǂkhîoǃnâ.
 
 ##
-Sao ra tsēs ab ge skola kai aiǃgaiǀhuruba ūhâ. ǃÂi-aob ge ge re âihansen ǁîb oaamsa ǀhuru-aob ge ǀaesen tsî ǀhuru ǁoa i xui-ao.
+Sao ra tsēs aib ge skola kai ǂaiǃgaiǀhuruba ge ūhâ i. ǃÂi-aob ge gere ǂâiǂhansen ǁîb ǂoaǂamsa ǀhuru-aob ge ǀaesen, tsî ǀhuru ǁoa i xui-ao.
 
 ##
-Andiswas ge ǃâi-aoba ǃoa ǃkhoe tsî ra ǀkhomabi ǁîsa ǀhuru kaihesa. ǁÂi-aob ge ge ǀū i tare-eb nî dīsa. ǁÎb ge Andiswasa ǃnans ra ǁhao kai.
+Andiswas ge ǃâi-aoba ǃoa ǃkhoe tsî ge ǀkhomabi ǁîsa ǀhuru kaisa. ǃÂi-aob ge ge ǀū i tare-eb nî dīǃkhaisa. ǁÎb ge Andiswasa ǃnansa ge ǁhao kai.
 
 ##
-ǃGari ge i ǀhurub ge. Khoe-i tsîn ge noxoba ǃkhare ǃâb ǃnâ nāgā tama.
+ǃGari ge i ǀhurub ge. Khoe-i tsîn ge noxoba ǃkhare ǃâb ǃnâ ǂnāǂgā tama ge hâ i.
 
 ##
-ǀGamǁî ǃâb ǀhurub dib ǃnâb ge axagu ǀguiba bolsa Andiswasa ra māǃkharu. ǁÎs ge kaise ǃnoesase ra nāgāǁhôasa ǃoa. ǃGarise nā tsîs ge ra nāgā.
+ǀGamǁî ǃâb ǀhurub dib ǃnâb ge axagu ǀguiba bolsa Andiswas ǁga ge māǃkharu. ǁÎs ge kaise ǃnoesase ǂnāǂgāǁhôasa ǃoa ge ǃkhoe. ǃGarise ǂnā tsîs ge geǂnāǂgā.
 
 ##
-Mû-aon ge khîb xa ra ǃhau. ǁNā tsēsa xu di ge skoli tawa axade aiǃgaisa ǀhurusa ge mā-amhe.
+Mû-aon ge dâb xa gere ǃkhau. ǁNā tsēsa xu di ge skoli tawa ǀgôade ǂaiǃgaisa ǀhurusa ge mā-amhe.
 
 ##
 * License: [CC-BY-NC]

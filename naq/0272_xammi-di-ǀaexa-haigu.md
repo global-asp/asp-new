@@ -1,46 +1,46 @@
-# Xammi ǀaexa haigu
+# Xammi di ǀaexa haigu
 
 ##
-Nē hôas ge ǀoro tamas ka io īgeǁaeb xamarin tsî khoen gere ûiǁaeb ǃnâ ra tsoatsoa. ǁNā ǁaeb khoen ge ǀaes di aihanuba ge ūhâ tama hâ i. Ora ûnan ge gere û. Xammi ǀguib ge ǀaes di ǀgaiba ge ūhâ i.
+Nē ǂhôas ge ǀoro tamas ka io īgeǁaeb xamarin tsî khoen gere ûiǁare ǁaeb ǃnâ ra tsoatsoa. ǁNā ǁaeb ǃnân ge khoena ǀaes di ǃkhusiba ge ūhâ tama hâ i. Ora ǂûnan ge gere ǂû. Xammi ǀguib ge ǀaes di ǀgaiba ge ūhâ i.
 
 ##
-Khoen tsî xamarin tsîn gege ǀhao ǀawesa kurus ǃaroma. "Tare-e da a dīǁkhā Xamma xū ǀaesa hōsa î da ûna sâi ǁkhā?" tin ge ra dî. ǃUiǁaeb kōse ǃâusan ge ra mîǁgui, tsîn ge ra ǁnaetsoatso tsî ra ǁnae, ǁapu ga ǁapu, hoana ra gaiǁaese. "Sida ǀkhā hā nā re. Sida ǀkhā hā nā re. Sida ǀkhā hā nā re."
+Khoen tsî xamarin tsîn gege ǀhao ǀawesa kurus ǃaroma. "Tare-e da a dīǁkhā Xamma xū ǀaesa hōsa î da ǂûna sâi ǁkhā?" tin ge gere dî. ǃUiǁaeb kōse ǃâusan ge ge mîǁgui, tsîn ge ge ǁnaetsoatsoa tsî ga ǁnae, ǁapu ga ǁapu, hoana ra ǂgaiǁaese. "Sida ǀkhā hā ǂnā re. Sida ǀkhā hā ǂnā re. Sida ǀkhā hā ǂnā re."
 
 ##
-Gui xamarin ge haiǀgomsa xū ge oaxa nā tsî ǁnaes ǃnâ ǁhaos ǃaroma. Xammi ge ǁîb ǀaes di haiga ge hā-ūsao. ǁÎb ge haiga ra ǁnûse gere ǁnûǁae ka ǁnûǁae. ǀĀse tamas ai îs ge khari ǀân rosa haigu ǃnākaba xū ge oaxa. Xammi ge ǀânrosa ra ǃnâise nâsa ǀgâna gere gāǃnâ. Khari ǀaeros ge mûsen ǁaeb ai în ge hoaraga khoena ǀaega ge ǁhū-aitsoatsoa. ǁNā ti mîs ain ge ǀaes namipe ge nātsoatsoa.
+ǂGui xamarin ge haiǀgomsa xū ge ǂoaxa, ǁnaes tsî ǂnās ǃnâ ǁhaos ǃaroma. Xammi ge ǁîb ǀaes di haiga ge hā-ūsao. ǁÎb ge haiga ra ǁnûse gere ǁnûǁae ka ǁnûǁae. ǀĀse tamas ai îs ge ǂkhari ǀânrosa haigu ǃnākaba xū ge ǂoaxa. Xammi ge ǀânrosa ra ǃnâise ǂnâsa ǀgâna gere ǂgāǃnâ. ǂKhari ǀaeros ge mûsen ǁaeb ai în ge hoaraga xamarina, mâ-i-hoa-e, ǀae-e ge ǀkhī-u. ǁNātimîs ain ge ǀaes ǂnamipe ge ǂnātsoatsoa.
 
 ##
-ǀHôagao tsî ǃkhae xūs ge ǃôasa. Khoen ge ǁîsa ge mîba, "Sida ra nēba ra ǁnae tsîb Xamma ra nāǁae ǁaeb aits ge satsa ǁîb ǀaega ū tsî nî ǃkhoe." ǁNā ǀgaus ais ge ǃÔasa Xammi ǀae haiga ū tsî ge ǃkhoe. Dīhō tamab gege ī ǃkhaeseb ge Xammi xa ǃkhoegāǃnâhe tsî ǀaes haiga a ūǀkhanahe xui-ao.
+ǃÔas ge ge ǀhôagao tsî ǃhae ǀguru i. Khoen ge ǁîsa ge mîba, "Sida ra nēba ǁnae tsîb Xamma ra ǂnā ǁaeb ais ge sasa ǁîb ǀaega ū tsî nî ǃkhoe." ǁNā ǀgaus ais ge ǃÔasa Xammi di ǀae haiga ū, tsî ge ǃkhoe. Dīhō tamas gege ī, tsîs ge Xammi xa ǃhaese ge ǃkhoeǂgāǃnâhe, tsî ǀaes haiga ge ūǀhanahe.
 
 ##
-Xammi ge amma ra am-e ge ǁnae: "Tita ge ǁae tama. ǃGomsi-e ta ūhâ tama. ǀÛn ǀkhā ta a ûtsi ǁkhā, ǀûn oses tsîna ta a ûtsi ǁkhā. ǃGomsi-e ta ūhâ tama. Sadu hoaraga du ge a ti û."
+Xammi ge ǂamma ra am-e ge ǁnae: "Ti ǃoagusa xu-e hâ tama. ǃGomsi-e ta ūhâ tamas ǀkhā. ǀÛn ǀkhā ta ǂûtsi ǁkhā, ǀûn oses tsîna ta ǂûtsi ǁkhā. ǃGomsi-e ta ūhâ tama. Sadu hoaraga du ge a ti ǂû."
 
 ##
-ǁGûb ge ǃkhoe tsî ǃkhaese a uri ǁkhā. Khoen ge ǁîba ra mîba, "Xammi sida ǀkhā nēba ra nā ka ǁnae hînats ge ǁîb ǀaes haiga tsubu tsî nî ǃkhoe".
+ǁGûb ge ǃhaese ǃkhoe tsî uri ǁkhā. Khoen ge ǁîba ge mîba, "Xammi sida ǀkhā nēba ra ǂnā ka ǁnae hîats ge ǁîb ǀaes haiga tsubu tsî nî ǃkhoe."
 
 ##
-ǁÎn ra ǁnāti nā ka ǁnae hîab ge ǁGûba ǀaes haiga tsubu tsî ge uribē ǃgarob ǁg¬ā. Xaweb ge Xamma ra dî, "Mâtio ta ǁGûb khoradi ǃgubǃgub ǃgubǃgub ǀōba ti ǃgâb ai ǁnâu tama?" ti.
+ǁÎn ra ǁnāti ǂnā ka ǁnae hîab ge ǁGûba ǀaes haiga tsubu tsî ǃgarob ǃnâ ge uribē. Xaweb ge Xamma ra dî, "Mâtio ta ǁGûb ǁkhoradi di ǃgub-ǃgub ǃgub-ǃgub ǀōba, ti ǃgâb ai ǁnâu tama hâ?" ti.
 
 ##
-Dawaseni ra ob ge ǁGûb ra ǃgarob ǃnâ ǁîb ǀaes haiga ūhâse ǃkhoesa ra mû. ǁAeǁore tamaseb ge ǁGûba ra sauru, ǃkhōbi tsî ǀaes haigu ǀkhā ra oasī. ǁKhawab ge Xamma ǁîb ama amsa ra ǁnae.
+Xammi ge dawasen tsî ǁGûb ta ǃgarob ǃnâ ǁîb ǀaes haiga ūhâse ǃkhoesa ge mû. Ob ge Xamma ǁGûba sauru, ǃkhōbi tsî ǁîb ǀaes haigu ǀkhā ge oasī. ǁKhawab ge Xamma ǁîb ǂama amsa gere ǁnae.
 
 ##
-ǁNāpa xūn ge khoena ge ǀhoebagu tsoatsoa. Mî rase, "Hā da ǃAirisa dî. ǁÎs ge khariro tsî a ǃhae." "ǃAirise", tin ge ra mî, "Xammi ra nā tsî ǁnae sida ǀkhā hîas ge sasa ǁîb ǀaes haiga tsubu tsî nî ǃkhoebē."
+On ge khoena ge tupubagu, mî rase, "Hā ida ǃArisa dî. ǁÎs ge ǂkhariro tsî a ǃhae. "ǃArise," tin ge ge mî, "Xammi ra ǂnā tsî ǁnae sida ǀkhā hîas ge sasa ǁîb ǀaes haiga tsubu tsî nî ǃkhoebē."
 
 ##
-ǀAes namipen ra nā hîas ge ǃAirisa Xammi ǀaes haiga tsî ǃgarob ǀî ge ǃkhoe. ǁKhātib ge Xammi ra mî, "Mâtio ta ǃAiris di xûxûba ti ǃgâb ai ǁnâu tama guro go īs khami?" ti. ǁÎb ge dawasen tsî khari ǃAiriros uri ǃkhoe rase ǃgarob ǃnâ karusa ra sauru. Xammi ge ǁnā timîs ai ǃkhoegāǃnâsi tsî ǁîb ǀaexa haigu ǀkhā ǀaesa ǃoa ra oasī.
+ǀAes ǂnamipen ra ǂnā hîas ge ǃArisa Xammi ǀaes haiga ū, tsî ǃgarob ǀî ge ǃkhoe. ǁKhawab ge Xamma ge mî, "Mâtio ta ǃAris di xûxûba ti ǃgâb ai ǁnâu tama ǂguro go īs khami?" ǁÎb ge dawasen tsî ǂkhari ǃAris uriǃkhoe rase ǃgarob ǃnâ garusa, ge sauru. Xammi ge ǁnā timîs ai ǃkhoeǂgāǃnâsi, tsî ǁîb ǀaexa haigu ǀkhā ǀaesa ǃoa ge oasī.
 
 ##
-ǁKhāpab ge Xamma ǁîb ama amsa ra ǁnae. "Tita ge ǁae tama. ǃGomsi-e ta ūhâ tama. ǀÛn ǀkhā ta a ûtsi ǁkhā, ǀûn oses tsîna ta a ûtsi ǁkhā. ǃGomsi-e ta ūhâ tama. Sadu hoaraga du ge a ti û."
+ǁKhāpab ge Xamma ǁîb ǂama amsa ge ǁnae. "Ti ǃoagusa xu-e hâ tama. ǃGomsi-e ta ūhâ tamas ǀkhā. ǀÛn ǀkhā ta ǂûtsi ǁkhā, ǀûn oses tsîna ta ǂûtsi ǁkhā. ǃGomsi-e ta ūhâ tama. Sadu hoaraga du ge a ti ǂû."
 
 ##
-"Og," tin ge khoena ra ǀhaimâinǀom, "Mâ xammari-e nēsisa a huiuida ǁkhā? ǀAmmis ge hoan xa kaixū ǀnūga ūhâ, hā î da ǁîsa dî." ǁÎn ge ǀapesa ǀAmmis ǀkhā ra ǀgoragu tsîs ge ǁîsa Xammi ǀaexa haiga tsubu tsî nē ǃnasa ra ǃkhoe.
+"Ox" tin ge khoena ge ǀhaimâinǀom, "Mâ xammari-e nēsisa a huiǂuida ǁkhā? ǀAmmis ge hoan xa gaxū ǀnūga ūhâ, hā î da ǁîsa dî." ǁÎn ge ǀapesa ǀAmmis ǀkhā ge ǀgoragu, tsîs ge ǁîsa Xammi ǀaexa haiga tsuwu tsî nē ǃnasa ge ǃkhoe.
 
 ##
-Xammi ge ra mî, "Tare î xa ta ǀAmmis ǀgapi ǁnaedomma ti ǃgâb ai go ǁnâuǀû?" ti. ǁÎb ge ra kō-ôa, ǀAmmisa mû tsîb ge ǁîsa ra nûkhao.
+Xammi ge ge mî, "Tare î xa ta ǀAmmis ǀgapi ǁnaedomma ti ǃgâb ai go ǁnâuǀû?" ti. ǁÎb ge ge kō-ôa, ǀAmmisa mû, tsîb ge ǁîsa ge ǃkhoeǃgon.
 
 ##
-Kaixū ǁaeb khaoǃgâb ge tsau hâ ais ǀkhā ra oaǀkhī, ǀAmmis ge ǁîba ǃkhoedā hâse a ǃkhoe xui-ao. "Nētsēsa xū," tib ge ram î, "Ta ge ǀgui î xare-e ǁnāxūui tide. Tita xats nî ǃauhe, sauruhe tsî nî hābuhe!" ǁNātib ge Xamma ge hoaraga khoen di khākhoe kai tsîn ge khoen tsîna ǀaes ǀgaiba ge hō.
+Gaxū ǁaeb khaoǃgâb ge tsau hâ ais ǀkhā ge oaǀkhī, ǀAmmis ge ǁîba ǃkhoedā xui-ao. Ob ge ge mî "Nētsēsa xū ta ge ǀgui î xare-e ǁnāxūǂui tide. Tita xa du nî ǃauhe, sauruhe, tsî hābuhe!" ǁNātib ge Xamma ge hoaraga khoen di khākhoe kai, tsîn ge khoena ǁna ǀgaus ai ǀaes ǀgaiba ge hō.
 
 ##
 * License: [CC-BY]

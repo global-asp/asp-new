@@ -1,63 +1,43 @@
-# Tare-es Vusib ausisa nî mî.
+# Vusib ausis ge mîs
 
 ##
-ǀGui ǃnauǁgoagas ge Vusib di ǁnaosa ge ǂgai bi. "Vusi, toxopa nē ǃupusa sa îra sī mā re. ǁÎra ge tsamperesa sa ausisa di ǃgameb ǃaroma ra a ǂgao."
+ǀGui ǃnauǁgoagas ge Vusib di ǁnaosa ge ǂgai bi. "Vusi, toxopa nē ǃupusa sa îra sī mā re. ǁÎra ge tsamperesa sa ausis di ǃgameb ǃaroma ra am ǂgao."
 
 ##
-ǁÎb îra ǁgab garu daob ǃnâb ge Vusib ǀgam axakha hîa haiǂûna ra ǃora kha ge ǀhao-ū. ǀGui axab ge ǃupusa Vusib xu tsubu tsî hais ǃnâ go ǂnoa. ǃUpus ge go khôa.
+ǁÎb îra ǁgab garu daob ǃnâb ge Vusiba ǀgam axakha hîa haiǂûna ra ǃorakha, ge ǀhao-ū. ǀGui axab ge ǃupusa Vusiba xu tsuwu, tsî hai-i ǃoa ge ǂnoa. ǃUpus ge ge khôa.
 
 ##
-"Tare-ets go dī?" tib ge Vusib ra ǃau. "ǁNās ge tsamperes di go i ǃupusa. Ti ausisa di ǃgameb tsamperes ge. Tare-es ti ausisa nēsisa nî mî ǃgameb di tsamperes ka ǀkhai o?"
+"Tare-ets go dī?" tib ge Vusiba ge ǃau. "ǁNās ge tsamperes di go i ǃupusa. Ti ausis di ǃgameb tsamperes ge. Tare-es ti ausisa nēsisa nî mî ǃgameb di tsamperes ga ǀkhai o?"
 
 ##
-Axakha ge kaise ge ǃhausen Vusiba kha ge ǁore ǃkhais ǃaroma. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǁgâibasen haiba sa ausisa ǃaroma," tib ge ǀgui a ra mî. Vusib ge ǁîb ǃgûdaob ǀkha ra aiǃgû.
+Axakha ge kaise ge ǃhausen Vusiba kha ge ǁore ǃkhais ǃaroma. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǁgâibasen haiba sa ausis ǃaroma," tib ge ǀguiba ge mî. Vusib ge ǁîb ǃgûdaob ǀkha ge aiǃgû.
 
 ##
-Daob ǃnâb ge ǀgam aokha hîa omsa ra omkha ǀkha ra ǀhao. "ǁNā ǀgãisa haiba kho a sîsenū ǁkhā?" tib ge ǀgui a ra dî. Xawe ge haiba om-ūs ǃaroma ǀgaisa tama hâ tsî ge khôa.
+Daob ǃnâb ge ǀgam aokha hîa omsa ra omkha ǀkha ge ǀhao. "ǁNā ǀgaisa haiba khom a sîsenū ǁkhā?" tib ge ǀguiba ge dî. Xaweb ge haiba om-ūs ǃaroma ge ǀgaisa tama hâ i, tsî ge khôa.
 
 ##
-"Tare-ets go dī?" tib ge Vusib ra ǃau. "ǁNāb ge ti ausis di ǃgameb ǀKhae a. Haiǂû xoa-aokha ge ǁnā haiba go māhe ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai. Tare-es ti ausisa nēsisa nî mî?"
+"Tare-ets go dī?" tib ge Vusiba ge ǃau. "ǁNāb ge ti ausis ǃgameb di ǀkhae go ība. Haiǂû ǃora-aokha xa ta ge ǁnā haiba go māhe, ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai ti ī. Tare-es ti ausisa nēsisa nî mî?"
 
 ##
-Omkurukha ge kaise ge ǃhausen haiba kha ge khôa o. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǀgâna sa ausis ǃaroma," tib ge lguiba ra mî. Tsîb ge Vusiba ǁîb daob ǀkha ra aiǃgû.
+Omkuru-aokha ge kaise ge ǃhausen haiba kha ge khôa ǃkhai xa. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǀgânna sa ausis ǃaroma," tib ge lguiba ge mî. Tsîb ge Vusiba ǁîb daob ǀkha ge aiǃgû.
 
 ##
-Daob ǃnâb ge Vusiba gomasa ūhâ ǂgari-aob ǀkha ra ǀhao. "Tare ǁkhoaxa ǀgâna, tsâ ǁkhā î ta a?" ti's ge gomasa ra dî. Xawen ge ǁnā ǀgâna kaise ge ǁkhoaxa I tsîs ge gomasa hoa a ge hapu!
+Daob ǃnâb ge Vusiba gomasa ūhâ ǂgari-aob ǀkha ge ǀhao. "Tare ǁkhoaxa ǀgâna, tsâ ǁkhā î ta a?" ti's ge gomasa ge dî. Xawen ge ǁnā ǀgânna kaise ge ǁkhoaxa i, tsîs ge gomasa hoa ǀgânna ge hapu!
 
 ##
-"Tare-es go dī?" tib ge Vusib ra ǃau. "ǁNā ǀgân ge ti ausis di ǃgameb ǀkhaeba omkurukha xa ta go
-
-māhena ǁîkha go haiǂû xoa-aokha go mā te haiba a khôa xui-ao. Haiǂû xoa-aokha ge haiba go mā te ǁîkha
-
-go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb
-
-tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai.
-
-Tare-es ti ausisa nēsisa nî mî?"
+"Tare-es go dī?" tib ge Vusib ge ǃau. "ǁNā ǀgân ge ti ausis di ǃgameb ǀkhaeba omkuru-aokha xa ta go māhena ǁîkha go haiǂû ǃora-aokha go mā te haiba a khôa xui-ao. Haiǂû ǃora-aokha ge haiba go mā te ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai. Tare-es ti ausisa nēsisa nî mî?"
 
 ##
-Gomas ge kaise ge ǃhausen ǂûnas go î ǃkhais ǃaroma. ǂGari-aob ge as gomasa Vusib lkha ī ǁîb ausis di ǀkhaeb ase ti ge mî. Tsîb ge Vusiba ǁîb daob ǀkha ra aiǃgû.
+Gomas ge kaise ge ǃhausen ǂûnas go i ǃkhais ǃaroma. ǂGari-aob ge as gomasa Vusib lkha ī ǁîb ausis di ǀkhaeb ase, ti ge mî. Tsîb ge Vusiba ǁîb daob ǀkha ge aiǃgû.
 
 ##
-Xawes ge gomasa ǃuiǂûs ǁaexa i ge o ǂgari-aoba ǃoa ge ǃkhoe-oa. Tsîb ge Vusiba daoba kā tsî kaise ǃonkhao hâse ǃgameb tawa ge sī. ǃHaokhoen ge ǀnai gere ǂû.
+Xawes ge gomasa ǃuiǂûs ǁaexa i ge o, ǂgari-aoba ǃoa ge ǃkhoe-oa. Tsîb ge Vusiba daoba kā tsî kaise ǃonkhao hâse ǃgameb tawa ge sī. ǃHaokhoen ge ǀnai gere ǂû.
 
 ##
-"Tare-e ta nēsisa nî dī?" tib ge Vusib ra ā. "ǃKhoebē go gomas ge ǀkhaeb
-
-māhe ta goba ǀgân omkurukha xa ta go māhen soas ǃnâ. Omkurukha ge ǀgâna go mā te ǁîkha go haiǂû
-
-xoa-aokha go mā te haiba a khôa
-
-xui-ao. Haiǂû xoa-aokha ge haiba go mā te ǁîkha
-
-go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb
-
-tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai.
-
-Tare-es ti ausisa nēsisa nî mî?"
+"Tare-e ta nēsisa nî dī?" tib ge Vusib ra ā. "ǃKhoebē go gomas ge go ǀkhae i, ǀgân, omkuru-aokha xa ta go māhen soas ǃnâ. Omkurukha ge ǀgânna go mā te ǁîkha go haiǂû ǃora-aokha go mā te haiba a khôa xui-ao. Haiǂû ǃora-aokha ge haiba go mā te ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai. Tare-es ti ausisa nēsisa nî mî?"
 
 ##
-Vusib ausis ge ǁaeroba ǂâi tsî ra mî, "Vusi ti ǃgâro, tita ge ǀkhaexū-i ǀkha ǁae tama hâ. Tita ge tsamperes ǀkhas tsîna ǁae tama hâ! Sada hoada ge nēpa ǀhao hâ, tsî ta ge a ǂkhî. Nēsisa sa îsa sarana sī ǂgaeǂgā î da nē tsēsa tsēdī!" Tsîb ge Vusiba mîhe go khami ge dī.
+Vusib ausis ge ǁaeroba ǂâi tsî ge mî, "Vusi ti ǃgâro, tita ge ǀkhaexū-i ǀkha ǁae tama hâ. Tita ge tsamperes ǀkhas tsîna ǁae tama hâ! Sada hoada ge nēpa ǀhao hâ, tsî ta ge a ǂkhî. Nēsisa sa îxa sarana sī ǂgaeǂgā, î da nē tsēsa tsēdī!" Tsîb ge Vusiba mîhe ge khami ge dī.
 
 ##
 * License: [CC-BY]

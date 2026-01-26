@@ -1,91 +1,92 @@
-# !Oaǀgôan tsîn ge ǀnamma ǂhâba hâ
+# ǃOaǀgôan tsîn ge ǀnamma ǂhâ hâ
 
 ##
-Mâ ǁgoas hoasab ge Hilifaba !nauǁgoaga ǂkhai tsî ǁîb mamasa ǁgoaǂûsa ra aiǂhomiba. ǁÎs ge !kharu go ǁaeb !nâ kaise ǀaesen hâ tsîb ge Hilifaba matib nî ǁîb tsî mamasas hâra kó!gâ ǀgausa ge ǁkhãǁkhãsen. Mamasas ge kaise khâis tsînas a hî ǁoas kóse ǀaesen hâ i, ob ge ǁîba ǀaesa khau tsî ǁgam-e mâi-ai tsî té-e gere kuru. ǁÎb ge mamasasa té-e sí-úba tsî ǁnãpaxu mâi-e ǁgoaǂûs !aroma gere aiǂhomiba ra. ǀNî ǁaegas ge mamasa kaise ge ǂkhawusa i, tsî ǂûs tsîna hî tama gere í. Hilifab ge kaise mamasas xa gere ǂâiǂhansen. ǁÎb dadab ge ǀgam kurin !kharu hâse ge ǁó, tsîs ge mamasas tsîna nési ǀaesen hâ. ǁÎs ge kaise ge ǂgawatoa hâ i dadasab ge í i khami.
+Mâ ǁgoas hoasab ge Hilifaba ǃnauǁgoaga ǂkhai tsî ǁîb mamasa ǁgoaǂûsa ra aiǂhomiba. ǁÎs ge ǃkharu go ǁaeb ǃnâ kaise ge ǀaesen hâ i, tsîb ge Hilifaba matib nî ǁîb tsî mamasas hâra kōǃgâ ǀgausa ge ǁkhāǁkhāsen. Mamasas ge kaise khâis tsînas a hî ǁoas kose ge ǀaesen hâ i, ob ge ǁîba ǀaesa khau tsî ǁgam-e mâi-ai tsî tē-e gere kuru. ǁÎb ge mamasasa tē-e sī-ūba tsî ǁnas khaoǃgâ mâi-e ǁgoaǂûs ǃaroma gere aiǂhomiba ra. ǀNî ǁaegas ge mamasa kaise ge ǂkhawusa i, tsî ǂûs tsîna hî tama gere ī. Hilifab ge kaise mamasas xa gere ǂâiǂhansen. ǁÎb dadab ge ǀgam kurin ǃkharu hâse ge ǁō, tsîs ge mamasas tsîna nēsi ǀaesen hâ. ǁÎs ge kaise ge ǂgawa hâ i dadasab ge ī i khami.
 
 ##
-ǀGui ǁgoab ge mamasa ge dî, "Tare-e a tsú Mama? Mâǁae du ra ǂuru? Mamas ge ǂû-i tsîna !aruǀî sâi tama hâ. !Hanab !nâ sîsen ǁoa tamas ka io du ge oms tsîna a !anu ǁoa. Skoli ǁga ta nî úsa pere-i tsînas ge ǂhomiba te tamas ka io ti skolsaran tsîna ǁã tama hâ..." "Hilifa, ti ôaro, khoese kurixas ǀguisats ge í, xawets ge tita ra kó!gâ." ǁÎs ge né ǀgôarob âsa kó tsî ra ǂhâ tare-es nî mîba bi !khaisa. ǁNâu!ãb nî? Tita ge kaise ǀaesen hâ. Sats kom ǂhôaǂgares !nâ AIDS ti ra ǂgaihe ǁós xa ge ǁnâuo. ǁNã ǁósa ta ge úhâ' tis ge ra mîba bi. Hilifab ge ǀnîkhamikó minutgu di ǀgaiba ra !nó. "Nésa ra ǂâibasen Dadab khami du nî ǁó ti." "AIDSa nî ǂuruǂuru soǀôa-i ge a ǀkhai."
+ǀGui ǁgoab ge mamasa ge dî, "Tare-e a tsū, Mama? Mâǁae du ra ǂuru? Mamas ge ǂû-i tsîna ǃaruǀî sâi tama hâ. ǃHanab ǃnâ sîsen ǁoa tamas ka io du ge oms tsîna a ǃanu ǁoa. Ti skolpere-i tsînas ge ǂhomiba te, tamas ka io, ti skolsaran tsîna ǁā tama hâ..." "Hilifa, ti ôaro, khoese kurixas ǀguisats ge ī, xawets ge tita ra kōǃgâ." ǁÎs ge nē ǀgôarob âsa ko, tsî ra ǂhâ tare-es nî mîba bi ǃkhaisa. ǁNâuǃāb nî? Tita ge kaise ǀaesen hâ. Sats kom ǂhôaǂgares ǃnâ AIDS ti ra ǂgaihe ǁōs xa ge ǁnâuo. ǁNā ǁōsa ta ge ūhâ', tis ge ge mîba bi. Hilifab ge ǀnîkhamikō haigu di ǀgaiba ra ǃnō. "Nēsa ra ǂâibasen Dadab khami du nî ǁō ti." "AIDSa nî ǂuruǂuru soǀôa-i ge a ǀkhai."
 
 ##
-Hilifab ge ǂâi rase skoli ǁga garu. ǁîb ge garun asen ǀhósana úhâ ǁgamdi tsî ǀhurun !nâ a ǁhao ǁoa. "Tare-e a tsú?" tin ge ra dî bi. Hilifab ge a !eream ni ǁoa, mamasas di mîdi ǀguideb ra ǀamǂgae xui-ao, "ǂUruhe tama. ǂUruhe tama." Mamasas ǁób khao!gâ i ǁîb ǀkha mati nî hã !khais xab ge ra ǂâiǂhansen. Mapab nî hâ? Mapaxub nî ǂû-i mari-e hó?
+Hilifab ge ǂâirase skoli ǁga garu. ǁÎb ge garun asen ǀhōsana ūhâ ǁgamdi tsî ǀhurun ǃnâ ge ǁhao ǁkha tama hâ i. "Tare-e a tsū?" tin ge ge dî bi. Hilifab ge ge ǃeream ni ǁoa i, ǁîb mamasas di mîdi ǀguideb gere ǀamǂgae xui-ao, "ǂUruhe tama. ǂUruhe tama." Mamasas ǁōb khaoǃgâ i ǁîb ǀkha mati nî hā ǃkhais xab ge gere ǂâiǂhansen. Mapab nî hâ? Mapaxub nî ǂû-i mari-e hō?
 
 ##
-Hilifab ge !naob âb tawa ǂnôa. !Naob aib ge ǂnôa ǀkhunub ǀkha ra ǂgae!nâ, "ǂUruhe tama. ǂUruhe tama' ti." "Hilifa? Hilifa, sida ǀkhats hâ?" Hilifab ge ra kókhâi. !Gôahesa Nelaos ge ǁîb ǀgúse mâ. "Khâimâ Hilifa! Mati ta go dî?" Hilifab ge ǂais âb ǁga ra kóǁnâ. "!Ereamsats ge ǁnãpa !naga hó tide!" tis ge ǁaixa hâse ra mî. "Magano, mîba re Hilifaba !ereamsa." Hilifab ge kaise ra tao, !Gôahesas Nelaos ge ǁîb ai ǀguitsé-i tsîna !au tama hâ i xui-ao.
+Hilifab ge ǃnaob âb tawa ge ǂnôa i. ǃNaob aib ge ǂnôa ǀkhunub ǀkha ra ǂgaeǃnâ, "ǂUruhe tama. ǂUruhe tama' ti." "Hilifa? Hilifa, sida ǀkhats hâ?" Hilifab ge ra kōkhâi. ǃGôahesa Nelaos ge ǁîb ǀgūse mâ. "Khâimâ Hilifa! Mati ta go dî?" Hilifab ge ǂais âb ǁga ra kōǁnâ. "ǃEreamsats ge ǁnāpa ǃnaga hō tide!" tis ge ǁaixa hâse ra mî. "Magano, mîba re Hilifaba ǃereamsa." Hilifab ge kaise ra tao, ǃGôahesas Nelaos ǁîb ai ǀguitsē-i tsîna ǃau tama ge hâ i xui-ao.
 
 ##
-Hilifab ge hoaraga ǁgoasa !gomma ge tsâ!kharu. ǂÛǁaeb aib ge ǁîba !gubis !nâ ra ǂnû!kharu. "Ti !nãb ge ra tsû," tib ge ǀhósana ra gãba. ǁÎb ge ama ǀaesen hâse gere tsâ tsîb ge ǂâidi xa ǁaixa !habugu ǁîb danas !nâ ra ǂkhuwi khami gere tsâ. !Gôahesa Nelaos ge ǂause ra kó bi. ǁÎs ge tare-i a tsúba bi !khaisa ra dî. "Xú-i tsú tama," tib ge ra !eream. ǁÎs ge tsaub tsî ǂâiǂhansens hîab ǂnôa-ús tsîna ra ǁnâu dommi âb !nâ. Mûs ge ra !naob hîab ra sâub tsîna.
+Hilifab ge hoaraga ǁgoasa ǃgomse ge hâǃkharu. ǂÛǁaeb aib ge ǁîba ǃgubis ǃnâ ge ǂnûǃkharu. "Ti ǃnāb ge ra tsû," tib ge ǀhōsana ra gāba. ǁÎb ge ama ǀaesen hâse gere tsâ, tsî ge ǁîb ǂâide, ǁaixa ǃhabugu khami ǁîb danas ǃnâ gere ǂkhuwi. ǃGôahesa Nelaos ge ǃnosase gere ǃkhē bi. ǁÎs ge tare-i a tsūba bi ǃkhaisa ge dî. "Xū-i tsū tama," tib ge ge ǃeream. ǁÎs ge tsaub tsî ǂâiǂhansens hîab ǂnôa-ūs tsîna gere ǁnâu dommi âb ǃnâ. Mûs ge gere ǃaob hîab ra sâub tsîna.
 
 ##
-Hilifab ra ǁîb di !gôana dísa dítsâ, o di ge !gôade ǁîb danas !nâ ra urima. ǁÎb ge dítsâb ra xawe ǁîde ǁúsase a úhâ ǁoa !gôab nîse. ǁÎb ge ra ǀû. Mamasas xab ge ra ǂâitsoatsoa. ǁÎb ǀkhunugu ge ǂâidi âba ra ǀnóǁnâtsoatsoa. ǁÎb mamasab ge ǁîs kharob !nâs ǁgoese ra ǀnóǁnâ. Mamasas di ǀhowas am!gâb mâseb ge ǁîba ra ǀnóǁnâsen. "Mateses kó!gâ-aodo hoaraga ǂkhaniga ǀhaoǀhao re" tis ge !Gôahesas Nelaosa ra ǂgai. Hilifab ge nési ǀgui ra mû ǁîb skolǂkhanib !nâb go ǀnóǁnâ !khaisa, tsîb ge ǂhaweba ra ǀkhauǂui ǂgao, xawe-i ge kaise go ǂópaǀkhã bi. Kó!gâ-aob ge ǁîb ǂkhaniba go ú.
+Hilifab ge ǁîb di ǃgôana dīsa dītsâ, o di ge ǃgôade ǁîb danas ǃnâ gere urima. ǁÎb ge dītsâb ra xawe ǁîde gaxuse ǁūsase ge ūhâ ǁoa I, ǃgôab nî ga. ǁÎb ge ge ǀû. Mamasas xab ge ge ǂâitsoatsoa. ǁÎb ǀkhunugu ge ǂâidi âba ra ǀnōǁnâtsoatsoa. ǁÎb mamasab ge ǁîs kharob ǃnâs ǁgoese ra ǀnōǁnâ. Mamasas di ǀhowas amǃgâb mâseb ge ǁîba ra ǀnōǁnâsen. "ǃGôab kōǃgâ-aodo, hoaraga ǂkhaniga ǀhaoǀhao re" tis ge ǃGôahesas Nelaosa ge ǂgai. Hilifab ge nēsi ǀgui ra mû ǁîb skolǂkhanib ǃnâb go ǀnōǁnâ ǃkhaisa, tsîb ge ǂhaweba ge ǀkhauǂui ǂgao hâ i, xawe-i ge kaise go ǂōpaǀkhābi. Kōǃgâ-aob ge ǁîb ǂkhaniba ge ū.
 
 ##
-!Gôahesas Nelaos ge Hilifab ǀnóǁnân ǁga ra kó. ǀGôan ra ǂoa omdi ǁga ǁarus ǁaeb ais ge, "ǀKhí népa Hilifa. Sats ǀkha ta ge ra !hoa ǂgao" ti ra ǂgai." "Tare-e a tsú?" tis ge !gâi ǀgaub !nâ ra dî bi. "Ti mamas ge ǀaesen hâ. ǁîs ge AIDSas úhâ ti go mîba te. O ǁîsa ǁó i nî?" "Tita ge alú Hilifatse, xawe ǁîs ge kaise ǀaesen hâ AIDSas nî úhâs karao. ǂUruhe tama i ge hâ." ǁNã mîde ǁkhawa, "ǂUruhe tama. ǂUruhe tama." Hilifab ge ra ãtsoatsoa. "Oa oms ǁga, Hilifa," tis ge ra mî. "Sa mamasa ta ge si oms tawa nî sari."
+ǃGôahesas Nelaos ge Hilifab ǀnōǁnânna gere kō. ǀGôan ra ǂoa omdi ǁga ǁarus ǁaeb ais ge, "ǀKhī nēpa Hilifa. Sats ǀkha ta ge ra ǃhoa ǂgao" ti ge ǂgai." "Tare-e a tsū?" tis ge ǃgâi ǀgaub ǃnâ ge dî bi. "Ti mamas ge ǀaesen hâ. ǁÎs ge AIDSas ūhâ ti go mîba te. O ǁîsa ǁō is nî?" "Tita ge a lū Hilifatse, xawe ǁîs ge kaise ǀaesen hâ AIDSas nî ūhâs ka o. ǂUruhe tama i ge hâ." ǁNā mîde ǁkhawa, "ǂUruhe tama. ǂUruhe tama." Hilifab ge ra ātsoatsoa. "Oa re oms ǁga, Hilifa," tis ge ge mî. "Sa mamasa ta ge si oms tawa nî sari."
 
 ##
-Hilifab ge oms tawab ge oasí, o ǁîb mamasa tsé!gâǁaeb ǂûsas ra aiǂhomise ra ǀhao-ú. "Nétsé ta ge go ǂûdíba tsi, Hilifa, xawe ta ge nési kaise tsau hâ. !Hanaba si kó îts ǀnî tamatende stors ǁga !gû-ú. ǁÎn xan ge nî ǁamaxúbahe xuige." ǂÛtoas khao!gâb ge Hilifaba !hanab ǁga ra í. ǁÎb ge ra kó, îsa !nâsa ǀûgu !hanaǂûn diga, !nâsa ǀapa tamatendi tsî peperi tsîna, gaxu !am buinkigu tsî !khae!am spinasen tsîna, !am ǂnabogu ǂkhon !aiab digu tsî gaxu !huniǀurib ǀûba úhâ miligu tsîn ǁga. ǁÎb ge !hanaba ǂnâ tsî! ǁgarub di loa !gâise ǁan hâ ǀapa tamatende stors ǁga ra í-ú. "Mati i sim di !hanab ǀkha nî hã ti mamas kara ǁó o?" tib ge ra ǂâi.
+Hilifab ge oms tawab ge oasī, o ǁîb mamasa tsēǃgâǁaeb ǂûsas ra aiǂhomise ge ǀhao-ū. "Nētsē ta ge go ǂûdībatsi, Hilifa, xawe ta ge nēsi kaise tsau hâ. ǃHanaba si kō, îts ǀnî tamatina stors ǁga ǃgû-ū. ǁÎn xam nî ǁamaxūbahe xuige." ǂÛtoas khaoǃgâb ge Hilifaba ǃhanab ǁga ra ī. ǁÎb ge ra kō, îsa ǃnâsa ǀûgu ǃhanaǂûn diga, ǃnâsa ǀapa tamatidi tsî pepern tsîna, gaxu ǃam buinkigu tsî ǃkhaeǃam spinasen tsîna, ǃam ǂnaregu ǂkhon ǃaiab digu tsî gaxu ǃhuniǀurib ǀûba ūhâ miligu tsîn ǁga. ǁÎb ge ǃhanaba ǂnâ tsî ǁgarub loa ǃgâise ǁan hâ ǀapa tamatina stors ǁga ge ī-ū. "Mati i sim di ǃhanab ǀkha nî hā ti mamas kara ǁō o?" tib ge gere burugâ.
 
 ##
-Hilifab ra ítoa hîas ge !Gôahesas Nelaosa ra ǀkhí. ǁÎs ge gaxu ǁaeba ǁîb mamas ǀkha ra ǁgam. ǁÎs ge Hilifab mamasa ra dî, "ǁGûs Ndapandase, AIDS !aroma soǀôana ãs ra?" ti. "Ti aob ge ǁós khao!gâ ta ge ǀaedí-aon ǁga ísa kaise gere dao," tis ge !Gôahesas Nelaosa ra mîba. "Tita ge ǀûs ose gere ǂgom kaisen, né ǁósa ta ǂhíhe tama !khaisa. ǀAesentsoatsoa tsî ta ge ǀaedí-aos tawa a sí, os ge ǁîsa ge mîba te ǀnai i !onkhao hâ !khaisa. Soǀôan ge hui tide," tis ge ge mî. !Gôahesas Nelaos ge ǁGûs Ndapandasa ge mîba matis nî Hilifaba hui !khaisa.
+Hilifab ra ītoa hîas ge ǃGôahesas Nelaosa ge ǀkhī. ǁÎs ge gaxu ǁaeba ǁîb mamas ǀkha gere ǁgam. ǁÎs ge Hilifab mamasa ge dî, "ǁGûs Ndapandase, AIDS ǃaromas ka soǀôana ra a?" ti. "Ti aob ge ǁōs khaoǃgâ ta ge ǀaedī-aon ǁga īsa kaise gere tao," tis ge ǃGôahesas Nelaosa ge mîba. "Tita ge ǀûs ose gere ǂgomkaisen, nē ǁōsa ta ǂhīhe tama ǃkhaisa. ǀAesentsoatsoa tsî ta ge ǀaedī-aos tawa a sī, os ge ǁîsa ge mîba te ǀnai i ǃonkhao hâ ǃkhaisa. Soǀôan ge hui tide," tis ge ge mî. ǃGôahesas Nelaos ge ǁGûs Ndapandasa ge mîba matis nî Hilifaba hui ǃkhaisa.
 
 ##
-Hilifab ge oms tawa a oaǀkhí, os ge mamasasa, "Hilifa, ti ôatse, sats ǀkha ta ge ra ǀnoparo ǂgao. Hui tets nî ge dî?" Hilifab ge mamasas di ǁôaba ra ú tsîs ge ǁîb ai ra !gâbasen. ǁÎra ge ǀgapi ǁkhúhaidi ra mâpa ra sí. ǁÎs ge ra dî bi "ǂÂihóts ra sa ǁnuri!gâsab, Kunuub ǀkhats ge népa ǂai!gaisa gere ǀhuru ǀgausa? Sats ge bolsa hais ai ge ǂnã!apa tsîs ge ǁkhúgu !nâ ge ǂnû. Sa dadab ge ǂgui ǁkhúgu xa !khãhes khao!gâ bolsa ge úǁnâba tsi."
+Hilifab ge oms tawa a oaǀkhī, os ge mamasasa, "Hilifa, ti ôatse, sats ǀkha ta ge ra ǀnobaro ǂgao. Hui tets nî?" ti ge dî. Hilifab ge mamasas di ǁôaba ū tsîs ge ǁîb ai ge ǃgâbasen. ǁÎra ge ǀgapi ǁkhūhaidi mâpa ra sī. ǁÎs ge ra dî bi "ǂÂihōts ra sa ǁnuriǃgâsab, Kunuub ǀkhats ge nēpa ǂaiǃgaisa gere ǀhuru ǀgausa? Sats ge bolsa hais ai ge ǂnāǃapa tsîs ge ǁkhūgu ǃnâ ge ǂnû. Sa dadab ge ǂgui ǁkhūgu xab ǃkhāhe toahâs khaoǃgâ bolsa ge ūǁnâbatsi."
 
 ##
-"Kó re, ǁnãs ge ǂâuhaisa mâ. !Gû its si hare tsî oms ǁga úsao re." Hilifab ra ǂâuna hare hîas ge ra mî, "ǂâihóts ra, ǂkharirots a hîats ge ǂâuna !khomdi hoadi ǀkha ǂû hâ i !khaisa. Hoaraga wekhebats ge ǂkhari-oms ǁga ge í tama hâ i!" "Î, ti !nãb ge kaise ge tsûsa i," tib ge Hilifaba âi rase ra ǂâihó.
+"Kō re, ǁnās ge ǂâuhaisa mâ. ǃGû its si hare tsî oms ǁga ūsao re." Hilifab ra ǂâuna hare hîas ge ra mî, "ǂâihōts ra, ǂkharirots a hîats ge ǂâuna ǃkhomdi hoadi ǀkha ǂû hâ i ǃkhaisa. Hoaraga wekhebats ge ǂkhari-oms ǁga ge ī tama hâ i!" "Î, ti ǃnāb ge kaise ge tsûsa i," tib ge Hilifaba âi rase ra ǂâihō.
 
 ##
-Oms tawa ra ge oasí, os ge Hilifab mamasa kaise ge tsau hâ i. Hilifab ge té-e ra kuru. ǁGûs Ndapandas ge ǂkhari boksirosa ǁîs kharob !nagaba xu ra úǂui. "Hilifa, né-i ge a sa. Né boksis !nân ge xúna hâ, mapaxuts ra ǀkhí !khaisa nî ǂâiǂâi!nâ tsina."
+Oms tawa ra ge oasī, os ge Hilifab mamasa kaise ge tsau hâ i. Hilifab ge tē-e ge kuru. ǁGûs Ndapandas ge ǂkhari boksirosa ǁîs kharob ǃnagaba xu ge ūǂui. "Hilifa, nē-i ge a sa. Nē boksis ǃnân ge xūna hâ, mapaxuts ra ǀkhī ǃkhaisa nî ǂâiǂâiǃnâ tsina."
 
 ##
-ǁNã xúnas ge ǀguiǀguibese boksisa xu ra úǂui. "Nés ge kikis sa dadab satsa don!nâ hâsa. Sats ge ǁîb ǂguro ǀgôa ge i tsa. Né kikis ge sa ǁnaorats nî sí mûga ta ge í-ú tsi hâ i ǁaeb disa, ǁîra ge kaise ge ǂkhî i. Néb ge sa ǂguro ǁgûb ǁgôa geba. ǂÂihóts ra matits gere ǁnã ǁgûb !aroma ã !khaisa, tsî ta ge noxopan ǂguina nî ǂoa ti a mîǁguiba tsi !khaisa. Nés ge saos, sa dadab ge !gameb ge ǀgui kurixa o a mãtesa."
+ǁNā xūnas ge ǀguiǀguibese boksisa xu ra ūǂui. "Nēs ge kikis sa dadab satsa tonǃnâ hâsa. Sats ge ǁîb ǂguro ǀgôa ge i tsa. Nē kikis ge sa ǁnaorats nî sī mûga ta ge ī-ū tsi hâ i ǁaeb disa, ǁîra ge kaise ge ǂkhî i. Nēb ge sa ǂguro ǁgûb ǁgôa geba. ǂÂihōts ta matits gere ǁnā ǁgûb ǃaroma ā ǃkhaisa, tsî ta ge noxopan ǂguina nî ǂoa ti a mîǁguiba tsi ǃkhaisa. Nēs ge saos, sa dadab ge ǃgameb ge ǀgui kurixa o, a mātesa."
 
 ##
-Hilifab ge boksisa !khó tsî ra ã. ǁÎb mamas ge ǁîs ǀgúse !khó bi tsî ra ǀgore, "Ab Eloba !ûi tsi tsî !norasase úhâ tsi' ti." ǁÎs ge !hoa rase !khóǀgara bi hâ. "Hilifa, ti ôatse. Sats kom a ǂano, kaise ta ǀaesen hâsa tsî ta ge ǀgúǁae sa dadab ǀkha sí nî hâ. !Oats nî !khaisa ta ge ǂgao tama hâ. ǂÂis !nâts ge nî úhâ ǀnam tsi ta a !khaisa. ǂÂis !nâ úhâ re sa dadab ge mati ǀnam tsi i !khaisa."
+Hilifab ge boksisa ū-ǀgara tsî ge ā. ǁÎb mamas ge ǁîs ǃnammi ǃnâ ǃkhōmâibi, tsî ge ǀgore, "Ab Eloba ǃûi tsi, tsî ǃnorasase ūhâ tsi', ti." ǁÎs ge ǃhoa rase ge ǃkhōǀgarabi. "Hilifa, ti ôatse. Sats kom a ǂan o, kaise ta ǀaesen hâsa tsî ta ge ǀgūǁae sa dadab ǀkha sī nî hâ. ǃOats nî ǃkhaisa ta ge ǂgao tama hâ. ǂÂis ǃnâts ge nî ūhâ ǀnam tsi ta a ǃkhaisa. ǂÂis ǃnâ ūhâ re, sa dadab ge mati ǀnam tsi i ǃkhaisa."
 
 ##
-Mamasas ge ra !kharu!kharu, "Ome Kaveb, Oshakatis ai ra hâb ge marina gere sîba da ǁkhãsibab gere úhâo. ǁÎb ge ge mîba te satsab nî kó!gâ !khaisa. ǁÎb ǀkha ta ge ǁnãs ǂama ge !hoa. Sats ge Kunuub, ǁîb ôab ǀkha skoli ǁga nî !gû. Kunuub ge sats ǁkhats khami Xrat 4 !nâ hâ. ǁÎn ge satsa !amkuse nî kó!gâ." "Tita ge Ome Kaveb tsî Aumaro Muzaas hâra xa a !gâibahe," tib ge Hilifaba ra mî. "Tita ge Kunuub ǀkha ǀhurus xas tsîna a !gâibahe. ǁÎn xas kara kó!gâheo, o ǂurus nî?" "Hî-î, ti ôatse. ǂUru ta ge tide. Sats ge kaise !gâise ra kó!gâ te. Kaise ta ge sats khami í ǀgôa-e úhâs !aroma a ǂnísa."
+Mamasas ge ra ǃkharuǃkharu, "Ome Kaveb, Oshakatis ai ra hâb ge marina gere sîba da ǁkhāsibab gere ūhâo. ǁÎb ge ge mîba te satsab nî kōǃgâ ǃkhaisa. ǁÎb ǀkha ta ge ǁnās ǂama ge ǃhoa. Sats ge Kunuub, ǁîb ôab ǀkha skoli ǁga nî ǃgû. Kunuub ge sats ǁkhats khami Xrat 4s ǃnâ hâ. ǁÎn ge satsa ǃamkuse nî kōǃgâ." "Tita ge Ome Kaveb tsî Aumaro Muzaas hâra xa a ǃgâibahe," tib ge Hilifaba ge mî. "Tita ge Kunuub ǀkha ǀhurus xas tsîna a ǃgâibahe. ǁÎn xas kara kōǃgâheo, o ǂurus nî?" "Hî-î, ti ôatse. ǂUru ta ge tide. Sats ge kaise ǃgâise ra kōǃgâ te. Kaise ta ge sats khami ī ǀgôa-e ūhâs ǃaroma a ǂnîsa."
 
 ##
-Sao ra ǁgoas ge !Ghs. Nelaosa, ǁîna HIVs tsî AIDS xa ra ǁkhãǁkhã. ǀGôan ge !ao rase ra mûsen. ǁÎn ge né ǁós xa ǂhôaǂgares !nâ-ú ge ǁnâu, xawe-i ge ǀgui khoe-i tsîna nés ǂama ǁîn ǀkha ǁgâudi tawa ǁgam tama hâ. "Mâpa xu ra hã ǁósa?" tib ge Maganoba ra dî. "Matis ra hóhe?" tib ge Hidipoba ra dî. !Ghs. Nelaos ge HIVs a xoxoro-i di ǀon !khaisa ra ǁgui!ãba nî. Khoe-i ga ǁî-i di ǀaob !nâ HIV xoxorosa úhâ xawe-i ge noxopa ǂuruse ra mûsen. "ǀAesentsoatsoan ra o da ge AIDSa úhâ ti ra mî."
+Sao ra ǁgoas ge ǃGhs. Nelaosa, ǁîna HIVs tsî AIDS xa ra ǁkhāǁkhā. ǀGôan ge ǃao rase ra mûsen. ǁÎn ge nē ǁōs xa ǂhôaǂgares ǃnâ ge ǁnâu, xawe-i ge ǀgui khoe-i tsîna nēs ǂama ǁîn ǀkha ǁgâudi tawa ǁgam tama hâ. "Mâpa xu ra hā ǁōsa?" tib ge Maganoba ra dî. "Mati ra hōhe?" tib ge Hidipoba ra dî. ǃGhs. Nelaos ge HIVs a virus ǃkhaisa ra ǁguiǃāba nî. Khoe-i ga ǁî-i di ǀaob ǃnâ HIV virusa ūhâ, xawe-i ge noxopa ǂuruse ra mûsen. "ǀAesentsoatsoan ra, o da ge AIDSa ūhâ ti ra mî."
 
 ##
-!Ghs. Nelaos ge ǀnî ǀgaun hîa da HIVsa a hó ǁkhãna ra ǁgui. "Khoe-i ga HIVs tamas ka io AIDSa a úhâ, o da ge ǁî-i ǀaoba xu né xoxorosa a hó ǁkhã. Tã da ge ǂkhomúxún tsî ǁgûǁã-údadi tsîna nî ǀgoragu. ǂNoaǂgaehe da ga, o da ge sâiǂuisa ǀãxún tsî naldan tsîna nî sîsenú." ǁÎs ge matin ǀãxún tsî naldan tsîn nî sâiǂuihe ǀgausa ra !gã!gã. "!Gaosen da ga, tsîb nî ǀaoba hâs kara, o da ge kai khoe-e mîba tsî !gao-amsa nî !anubahe. !Gao-amsa da ge nî ǂgam ǀuriba ǁkhaebas !aroma," tis ge ra mîba ni.
+ǃGhs. Nelaos ge ǀnî ǀgaun hîa da HIVsa a hō ǁkhāna ra ǁguiǃā. "Khoe-i ga HIVs tamas ka io AIDSa a ūhâ, o da ge ǁî-i ǀaoba xu nē virusa a hō ǁkhā. Tātsē da ge ǂkhomūxūn tsî ǁgûǁā-ūdadi tsîna nî ǀgoragu. ǂNoaǂgaehe da ga, o da ge sâiǂuisa ǀāxūn tsî nald'n tsîna nî sîsenū. "ǁÎs ge matin ǀāxūn tsî nald'n tsîna nî sâiǂuihe ǀgausa gere ǃgāǃgā. "ǃGaosen da ga, tsîb nî ǀaoba hâs kara, o da ge kai khoe-e mîba tsî ǃgao-amsa nî ǃanubahe. ǃGao-amsa da ge nî ǂganam ǀuriba ǁkhaebēs ǃaroma," tis ge ge mîba ni.
 
 ##
-ǁNãpa xus ge kardsa ra ǁgau ni. "Né gu ge ǀgaugu HIVsats a hóxú ǁoaga" tis ge ra mîba ni. "Sats ge HIVsa ǂkhari-oms tamas ka io ǀguipa ǁãsens !nâ-ú a hó ǁoa. ǁNamgus, ǁoagus tamas ka io tawedegus HIVs tamas ka io AIDSa úhâ khoe-i ǀkhas ge a !norasa. ǂHanu i ge a kopidi tsî !orede HIVs tamas ka io AIDSa úhâ khoe-i ǀkha ǀgoragusa. ǁUi ra tamas ka io ra tsî khoe-e xus tsînats ge né ǁósa a hó ǁoa. ǁKhãtits ge ǀûitsin tamas ka io ǀnî hâ nâ ra ǁgamaben aiǁgause, urin tsî bilina xus tsîna né ǁósa hó tide."
+ǁNãpa xus ge ǂhaweba ge ǁgau ni. "Nē gu ge ǀgaugu HIVsats a hōxū ǁoaga" tis ge ge mîba ni. "Sats ge HIVsa ǂkhari-oms tamas ka io ǀguipa ǁāsens ǃnâ-ū a hō ǁoa. ǁNamgus, ǁoagus tamas ka io tawedegus, HIVs tamas ka io AIDSa ūhâ khoe-i ǀkhas, ge a ǃnorasa. ǂHanu i ge a xapana HIVs tamas ka io AIDSa ūhâ khoe-i ǀkha ǀgoragusa. ǁUi ra tamas ka io ra tsî khoe-e xus tsînats ge nē ǁōsa a hō ǁoa. ǁKhātits ge ǀûitsin tamas ka io ǀnî hâ nâ ra ǁgamaben aiǁgause, urin tsî bilina xus tsîna nē ǁōsa hō tide."
 
 ##
-"Tare-ets nî dí, né ǁósats kara hó o?" tib ge Maganoba ra dî. "Aitsama !ûi!gâsen tsits ge ǂgui !gâi ǂûna nî ǂû. Sada ǂûnkards ǁga kó re," tis ge ra mî. "Tari-e ǂâis !nâ úhâ mâ ǂûn sats !aroma a !gâi !khaisa?" tis ge ra dî.
+"Tare-ets nî dī, nē ǁōsats kara hō o?" tib ge Maganoba ge dî. "Aitsama ǃûiǃgâsen tsîts ge ǂgui ǃgâi ǂûna nî ǂû. Sada ǂûnǂhaweb ǁga kō re," tis ge ge mî. "Tari-e ǂâis ǃnâ ūhâ mâ ǂûn sats ǃaroma a ǃgâi ǃkhaisa?" tis ge ge dî.
 
 ##
-Hilifab ge oms tawab ra oasí, o mamasasa tarenab go nétsé skoli !nâ a ǁkhãǁkhãhe !khaisa ra ǁgamba. "!Ghs. Nelaos ge sida HIVs tsî AIDS xa go mîba tsî matits ǀaesen hâ khoena nî !ûi!gâs tsîna. Maganob tsî Hidipob hâkha ge ǁgâusîsengu ǀkha tida nî hui tsî ge ge ǀguipa omsîsenna nî dí," tib ge mamasasa ra mîba.
+Hilifab ge oms tawab ra oasī, o mamasasa tarenab go nētsē skoli ǃnâ a ǁkhāǁkhāhe ǃkhaisa ge ǁgamba. "ǃGhs. Nelaos ge sida HIVs tsî AIDS xa go mîba tsî matits ǀaesen hâ khoena nî ǃûiǃgâs tsîna. Maganob tsî Hidipob hâkha ge ǁgâusîsengu ǀkha tida nî hui, tsî ge ge ǀguipa omsîsenna nî dī," tib ge mamasasa ge mîba.
 
 ##
-ǁNã karab aib ge Maganoba hã tsî Hilifaba ǁgam-e sí xuris ǀkha ra hui. Hidipob ge ǀaeres ǀkha ra hui bi. ǁNãpa xu kha ge goarus !naga sommi !nâ ǂnû tsî omsîsenna ra dí.
+ǁNā karab aib ge Maganoba hā tsî Hilifaba ǁgam-e sī xuris ǀkha ge hui. Hidipob ge ǀaeres ǀkha ge hui bi. ǁNapa xu kha ge goarus di sommi ǃnâ ǂnû, tsî omsîsenna ge dī.
 
 ##
-!Ghs. Nelaos ge ǁkhãti Hilifab ǁanǁare-aon tsîna ge mîba ǁîb ra mamasasa kó!gâ !khaisa. ǁÎn ge ǁîban nî hui !khaisa ge mîǁgui. Mâ !oes hoasa i ge ǀkhara ǁanǁare-ao-e ǀgamsa !ores ǂû-e ǁîra nî ǂûse ra hã-úba ra. Hilifab ge hoaǁae !hanaba xu !hanaǂûna ra mã ni.
+ǃGhs. Nelaos ge ǁkhāti Hilifab ǁanǁare-aon tsîna ge mîba ǁîb ra mamasasa kōǃgâ ǃkhaisa. ǁÎn ge ǁîban nî hui ǃkhaisa ge mîǁgui. Mâ ǃoes hoasa i ge ǀkhara ǁanǁare-ao-e ǀgamsa ǃores ǂû-e ǁîra nî ǂûse gere hā-ūba ra. Hilifab ge hoaǁae ǃhanaba xu ǃhanaǂûna gere mā ni.
 
 ##
-ǀUniga tsés skoli termains dis aib ge Hilifaba kaise ge ǂkhî i. ǁÎb ge oms ǁga ra !khoe-oa, ǁîb mamasab nî si !nuriba ǁgause. ǁÎb ge "Mama, Mama' ti ra ǂgaise jars !nâ ra !khoeǂgâ. Ti !nuriba kó re. Tita ge 'A' tsî 'A' tsî noxopa ǂgui 'Ade' go hó." Hilifab ge ǁîb mamasa kharob !nâ ǁgoese ra hó. "Mama!" tib ge ra ǂgai. "Mama! ǂKhai re!" ǁÎs ge ǂkhai tama hâ.
+ǀUniga tsēs skoli hakaǁî ǃâs dis aib ge Hilifaba kaise ge ǂkhî i. ǁÎb ge oms ǁga ge ǃkhoe-oa, ǁîb mamasab nî si ǃnuriba ǁgause. ǁÎb ge "Mama, Mama' ti ra ǂgaise jars ǃnâ ge ǃkhoeǂgâ. Ti ǃnuriba kō re. Tita ge "A's" tsî "A's" tsî noxopa ǂgui "Ade" go hō." Hilifab ge ǁîb mamasa kharob ǃnâs ǁgoese ge hō. "Mama!" tib ge ra ǂgai. "Mama! ǂKhai re!" ǁÎs ge ǂkhai tama ge hâ i.
 
 ##
-Hilifab ge ǁanare-aon ga ra !khoe. "Ti mamas. Ti mamas ge ǂkhai ǂgao tama hâ," tib ge ra ã. ǁAnǁare-aon ge Hilifab ǀkha oms tawa sí tsî ǁgûs Ndapandasa ǁîs kharob !nâ ra hó. "ǁÎs ge go ǁó, Hilifatse," tin ge !oa hâse ra mî.
+Hilifab ge ǁanǁare-aon ǁga ge ǃkhoe. "Ti mamas. Ti mamas ge ǂkhai ǂgao tama hâ," tib ge ra ā. ǁAnǁare-aon ge Hilifab ǀkha oms tawa sī tsî ǁgûs Ndapandasa ǁîs kharob ǃnâ ge hō. "ǁÎs ge go ǁō, Hilifatse," tin ge ǃoa hâse ra mî.
 
 ##
-ǁGûs Ndapandas di ǁób ǂhôas ge kaise !haese ge !khoe. Oms ge ǀaokhoen, ǁanǁare-aon tsî ǀhósan xa ge ǀoa hâ i. ǁÎn ge Hilifab mamasa ǀgoreba tsî amna gere ǁnae. ǁÎn ge ǁîs xan a ǂan !gâi xún xa gere !hoa.
+ǁGûs Ndapandas di ǁōb ǂhôas ge kaise ǃhaese ge ǃkhoe. Oms ge ǀaokhoen, ǁanǁare-aon tsî ǀhōsan xa ge ǀoa hâ i. ǁÎn ge Hilifab mamasa ǀgoreba tsî amna gere ǁnae. ǁÎn ge ǁîs xan a ǂan ǃgâi xūn xa gere ǃhoa.
 
 ##
-Aumaro Muzaas ge hoa !hoakhoena ge sâiba. Ome Kaveb ge Hilifaba ge mîba, ǁîra ǁkhós khao!gâ Oshakatis ǁga nî úsao bi !khaisa. ǁÎb ǁnaob ge ǁîba mamasas ge ǀgôaros ge í, o gere dí xún xa gere ǁgamba.
+Aumaro Muzaas ge hoa ǃhaokhoena ge sâiba. Ome Kaveb ge Hilifaba ge mîba, ǁîn ǁkhōs khaoǃgâ Oshakatis ǁga nî ūsao bi ǃkhaisa. ǁÎb ǁnaob ge ǁîba mamasas ge ǀgôaros ge ī, o gere dī xūn xa gere ǁgamba.
 
 ##
-ǁKhós !oabas tawab ge Hilifaba kerkheb !nâ ais ǀkhãb ai ǂoaxa tsî ǁîb mamas xa ǂnû hâ ǀhaohâsa gere mîba. "Ti mamas ge tita ge ǀnam i tsîs ge kaise !gâise gere !ûi!gâ te. ǁÎs ge a ta !garise ǁkhãǁkhãsen tsî !gâi sîsen-e hó ti gere mîba te. ǁÎs ge !gâiaǂgaob ǀkha ta nî hâ !khaisa gere ǁkhoreba te. Tita ge !garise ǁkhãǁkhãsen tsî !garise nî sîsen ǁîsa tita ai ǂnísase tsâ kais !aroma."
+ǁKhōs ǃoabas tawab ge Hilifaba kerkheb ǃnâ ais ai se mâ, tsî ǁîb mamas xa ǂnû hâ ǀhaohâba gere ǁgamba. "Ti mamas ge tita ge ǀnam i, tsîs ge kaise ǃgâise gere ǃûiǃgâ te. ǁÎs ge a ta ǃgarise ǁkhāǁkhāsen, tsî ǃgâi sîsen-e hō, ti gere mîba te. ǁÎs ge ǃgâiaǂgaob ǀkha ta nî hâ ǃkhaisa gere ǁkhoreba te. Tita ge ǃgarise ǁkhāǁkhāsen tsî ǃgarise nî sîsen ǁîsa tita ai ǂnîsase tsâ kais ǃaroma."
 
 ##
-ǁKhós khao!gâ ra ge Ome Kaveb tsî Aumaro Muzaas hâra Hilifaba ǁîb sarana ǀhaoǀhaos ǀkha gere hui, Oshakatis ǁga úsaos !aroma. "Kunuub ge ǀasa ǀhósa-e hósa ra mûǂui," ti ra ge ra mîba bi. "Sim ti ǂhunuma ǀgôa-i khamim ge nî kó!gâ tsi." Hilifab ge !gâise mã re, ti oms ǁga mî tsî !gae-audos !nâ ǁîra ǀkha ge ǂoa.
+ǁKhōs khaoǃgâ ra ge Ome Kaveb tsî Aumaro Muzaas hâra Hilifaba ǁîb sarana ǀhaoǀhaos ǀkha gere hui, Oshakatis ǁga ūsaos ǃaroma. "Kunuub ge ǀasa ǀhōsa-e hōsa gere mûǂui," ti ra ge ge mîba bi. "Sim di ǂhunuma ǀgôa-i khamim ge nî kōǃgâ tsi. "Hilifab ge omsa tawedeǁnaxu tsî ǃgae-autos ǃnâ ǁîra ǀkha ge ǂoa.
 
 ##
 * License: CC BY-NC-SA
 * Text: Kandume Ruusa, Sennobia-Charon Katjiuongua, Eliaser Nghitewa
 * Illustration: Jamanovandu Urike
+* Translation: Ngeve Shangombe
 * Language: naq

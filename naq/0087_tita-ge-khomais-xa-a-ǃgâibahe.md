@@ -1,10 +1,10 @@
-# Tita ge khomai xa a ǃgâibahe.
+# Tita ge khomais xa a ǃgâibahe!
 
 ##
-Tita ge khomai sa ǀnam.
+Tita ge khomaisa ǀnam.
 
 ##
-Tari-e ta nî khomaiba?
+Tari-e ta khomaiba ǁkhā?
 
 ##
 Ti ǃgâros ge ǁom hâ.

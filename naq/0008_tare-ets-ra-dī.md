@@ -4,19 +4,19 @@
 Tita ge ra ǁnae.
 
 ##
-Tita ge ra ǁhabu.
+ǁÎs ge ra ǁhabu.
 
 ##
 Tita ge ra ǁapunǃom.
 
 ##
-Tita ge ra garosen.
+ǁÎs ge ra garosen.
 
 ##
 ǁÎb ge ra ǂgai.
 
 ##
-Tita ge ra oe.
+Tita ge ra ǃeream.
 
 ##
 ǁÎs ge ra ǃgâ.

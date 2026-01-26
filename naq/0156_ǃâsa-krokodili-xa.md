@@ -4,13 +4,13 @@
 ǀGuitsē i ge kaise ǃâsa krokodili xa ge hâ-e i.
 
 ##
-ǂause tsî ǃnosaseb ge ǂûna gere ôamâ. Tsîb ge ...
+ǂAuse tsî ǃnosaseb ge ǂûna gere ôamâ. Tsîb ge ...
 
 ##
-ǃKhau!!! Krokodili ge go ǃkhō! ǁkhō go krokodili ge.
+ǃKhau!!! ǃKhō go krokodili ge!
 
 ##
-ǁNās khaoǃgâb ge ǁîba ganube ǃâsa tama hâ, tsî ra ǃgâiaǂgao.
+ǁNās khaoǃgâb ge ǁîba ǃaruǀî ǃâsa tama hâ, tsî ra ǃgâiaǂgao.
 
 ##
 ǁKhawab nî ǃâs kose.
@@ -19,5 +19,5 @@
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Petrus Josob
+* Translation: Ivan Petrus Josob
 * Language: naq

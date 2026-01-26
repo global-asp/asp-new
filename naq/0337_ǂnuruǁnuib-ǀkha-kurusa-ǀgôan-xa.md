@@ -1,37 +1,37 @@
 # ǂNuruǁnuib ǀkha kurusa ǀgôan xa
 
 ##
-ǀGuia i ge ǂkhî ǀaokhoen xa ge ǁanhe hâ i.
+ǀGui tsē i ge ǂkhîxa ǀaokhoen xa ge ǁanhe hâ i.
 
 ##
 ǁÎn ge tātsē ge ǃkham ūgu tama hâ i. ǁÎn ge ǁîn îra oms tsî ǃhanab ǃnâ gere hui.
 
 ##
-Xawen ge a ǂkhāsa, ǀaes ǀgūse ǀhurusa.
+Xawen ge ge ǂkhāsa i, ǀaes ǀgūse sīsa.
 
 ##
-ǁÎn ge ǃoes ǃnâ ǀgui sîsenna dī ǁkha, ǁîn ǂnuruǁuib ǃkha kurusa xui-ao!
+ǁÎn ge ǃoes ǃnâ ǀgui hoa sîsengu ǁîn diga ge dī ǁkha i, ǁîn ǂnuruǁnuib ǀkha ge kurusa i xui-ao!
 
 ##
-Xaweb ge ǀgui axaba sores ǃnâ ǂoasa gere kaise ǁkhore.
+Xaweb ge axagu ǀguiba kaise ge ǁkhore hâ i sores ǃnâ ǂoasa.
 
 ##
-ǀGui tsēb ge nē ǁkhoreba kaise ge kai,xaweb ge ǃgâsakha xa ge ǃkhâihe.
+ǀGui tsēb ge nē ǁkhoreba kaise ge kai i, xaweb ge ǃgâsakha xa ge ǃkhâikhomhe.
 
 ##
-Xawe ge kaise ǃonkhao! ǁÎb ge nē ǀgamsa sores xa ge tsuni.
+Xawe i ge kaise ǃonkhao i! ǁÎb ge nē ǀgamsa sores ǃnâ ge tsuni.
 
 ##
-ǃGâsab ta tsunibe ǀgaus xakha ge ǂnuruǁuib ǀkha kurusa ǃgâsakha ge ǃoa.
+ǃGâsab ra tsunibe ǀgaus xakha ge ǂnuruǁuib ǀkha kurusa ǃgâsakha ge re ǃoa.
 
 ##
-Xawe kha ge ǀawehe ūhâ. ǁÎkha ge narus tsuni hâ ǂnuruǁnuib dis ǀkha anisa ge kuru.
+Xawe kha ge ǀawehe ge kuru. ǁÎkha ge ǃgâsaba xu ge tsuni ǂnuruǁnuib ǀkha anisa ge kuru.
 
 ##
-ǁÎkha ge ani ǃgâsaroba ǀgapi ǃhommi ai ge ǃapa-u.
+ǁÎkha ge ani ǃgâsaroba ǀgapi ǃhommi ǂoaragas kose ge ǃapa-u.
 
 ##
-Sores ra ǁhai khamib ge ǁnae rase ǁgoas ǃnâb ǃnâ ra ǁkhanabē.
+Sores ra ǁhai khamib ge ǁnaerase ǁgoas ǃnâ ge ǁkhanabē.
 
 ##
 * License: [CC-BY]

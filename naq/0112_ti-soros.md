@@ -1,28 +1,28 @@
-# Ti ǀKhās
+# Ti Soros
 
 ##
-Tita ge ǁîs ǀkha ra ǃkhoe.
+Tita ge ǁî-i ǀkha ǃkhoe ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra uri.
+Tita ge ǁî-i ǀkha uri ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra ǂnā.
+Tita ge ǁî-i ǀkha ǂnā ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra tsâ.
+Tita ge ǁî-i ǀkha tsâ ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra tsuri-uri.
+Tita ge ǁî-i ǀkha tsuri-uri ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra ǃgai.
+Tita ge ǁî-i ǀkha ǃgai ǁkha.
 
 ##
-Tita ge ǁîs ǀkha ra duni.
+Tita ge ǁî-i ǀkha duni ǁkha.
 
 ##
-Xawe tātsē ǁîs ǀkha ǁkhana ǁoa.
+Xawe tātsē ǁî-i ǀkha ǁkhana ǁoa.
 
 ##
 * License: [CC-BY-NC]

@@ -1,35 +1,35 @@
-# ǀGireb tsî sores
+# ǀGirib tsî sores
 
 ##
-Gaxu ǁaeb ǃkharu hâseb ge gâre ǀgireba ge hâ i. ǁÎb ge îb di kaira dadasab ǀkha Kalahari ǀgowadi ǃnâ ge ǁan hâ i. 
+Gaxu ǁaeb ǃkharu hâseb ge gâre ǀgiriba ge hâ i. ǁÎb ge ǁîb di kaira dadasab ǀkha Kalahari ǀgowadi ǃnâ ge ǁan hâ i.
 
 ##
-ǀGui ǁgoagab ge kaira ǀgireba ǂkhaib ge o ram û ôasab sores ǃnâ ǁom ǁgoe ǃkhaisa. ǂÛ-i ge ǂhomisa tama ge hâ i tsî piridi ge noxopa ǃharas ǃnâ ge mâ i! “ǂKham axab, sats ge kaise ǀōpesa! Khâi its si tare-e ôa. Tita ge kaise kaira hâ satsa kō ǃgâs ǃaroma,”tib ge ǀgireb dadaba ra mî. Ob ge ǀGireba urikhâi tsî piride si ǃharasa xu ra ūǂui îdi si ǃûre.
+ǀGui ǁgoagab ge kaira ǀgiriba ǂkhai, ob ge ǁîb ôasaba sores ǃnâb ǁom ǁgoe hîa ge ho. ǂÛ-i ge ǂhomisa tama ge hâ i, tsî piridi ge noxopa ǃharas ǃnâ ge mâ i!" ǂKham axa, sats ge kaise ǀōpesa! Khâi, îts si tara-e ôa. Tita ge kaise kaira hâ satsa kōǃgâs ǃaroma," tib ge ǀgirib dadaba ge mî. Ob ge ǀgiriba urikhâi tsî piride ǃharasa xu ge ūǂui î di si ǃû.
 
 ##
-!Garob ǃnâb ge ǀuis ai ǂkhai ra xū-e ra mû. ǁÎb ge ǀgūse ra ǀuis tawa ra sī. ǀGūb ra khami is nē xū-e îsase ra ǂkhai. ǀNîses kom a ǁîb di tara o?!
+ǃGarob ǃnâb ge ǂkhai ra xū-e ǀuis ai ra mû. ǁÎb ge ǀgūse ǀuis tawa ra sī. ǀGūb ra khemi i ge nē xū-e îsase ra ǂkhai. ǀNîsis kom nēsa a ǁîb di tara ǁkhao?!
 
 ##
-“Kaises ge îsa,” tib ge ǀGireba ǂkhaisa ǃoa ra mî. “Xawe sasa a tari? Tare-i ǃaromas ǀguri hâ?” “Tit age a sore, tis ge ǂkhaisa ra mî. “Ti ǀaokhoen tita nēpa ge xu doen ge o. ǁÎn ge ge tani te ǂgao tama hâ i. Tita ge kaise a ǀgamsa.
+"Kaises ge îsa," tib ge ǀGiriba ǂkhairasa ǃoa ge mî. "Xawe sasa a tari? Tare-i ǃaromas ǀguri hâ?" "Tita ge a sore, tis ge ǂkhairasa ge ǃeream. "Ti ǀaokhoen ge tita nēpa ge xu, doen ge o. ǁÎn ge ge tani te ǂgao tama hâ i. Tita ge kaise a ǀgamsa.
 
 ##
-ǀGireb ge gem î, “Xawe sas ge kaise a îsa! Tit age nî tani si. Tita ge oms ǁga nî oa-ū si îs ti dadaba sī mû.’ O i ge a ǃgâi, tani ǁkhāta ge a. Xawe tā ǃgae re kaise ta a ga ǀgam o,”tis ge soresa ra mî.
+ǀGirib ge ge mî, "Xawe sas ge kaise a îsa! Tita ge nî tani si. Tita ge oms ǁga nî oa-ūsi îs ti dadaba sī mû." O i ge a ǃgâi, tani ǁkhāta ge a. Xawe tā ǃgae re kaise ta ga a ǀgam o," tis ge soresa ge mî.
 
 ##
-Ob ge ǀGireba soresa ǁîb di ǁâb ai aba tsî oms ǁga ge ǃgû. Gaxu tamases ge soresa ǀGireb di ǀûna ge ǂhuwi tsoatsoa. “Toxopas aibe ti ǁâba xu a ǁgôa ǁkhā ? Sâ ǂgao ta ge ra, ” tib ge ǀGireba ra mî. ǁÎb di ǁâb ge kaise ge tsûsa i tsîb ge ǃgû ǁkhā tama ge hâ i. “!Gûs ǀguisa hî!” tis ge soresa ra mî. “Tita ge ǀnai go mî tāts ge nî ǃgae ti.” 
+Ob ge ǀGiriba soresa ǁîb di ǁâb ai aba tsî oms ǁga ge ǃgû. Gaxu tamases ge soresa ǀGirib di ǀûna ge ǂhuwi tsoatsoa. "Toxopas aibe ti ǁâba xu a ǁgôa ǁkhā? Sâ ǂgao ta ge ra," tib ge ǀGireba ge mî. ǁÎb di ǁâb ge kaise ge tsûsa i, tsîb ge ǃgû ǁkhās tsîna ge hî ǁoa i. "ǃGûs ǀguisa hî!" tis ge soresa ge mî. "Tita ge ǀnai go mî tāts ge nî ǃgae ti."
 
 ##
-ǁNātimis aib ge ǀGireba haiba daob ǁaegu ram û. ǁÎb ge ǁnā haib ǃnāka ra ǁharuǂgâ îs soresa ǁîb ǁâba xu ǁnā ǁgôa.
+ǁNātimis aib ge ǀGiriba haiba daob ǁaegu ge mû. ǁÎb ge ǁnā haib ǃnāka ge ǁharuǂgâ, îs soresa ǁîb ǁâba xu ǁnā ǁgôa.
 
 ##
-Xaweb ge haiba ǁîb di khōba ra xora ǁnâ tsîn ge ǀûn âba ǁnāpa sores ǀkha ra ǃgau.
+Xaweb ge haiba ǁîb di khōb tsî ǀûn tsîna ge xoraǁnâ tsîn ge âna ǁnāpa sores ǀkha ge hâǃgau.
 
 ##
-ǀAsase ge ǂoaxa ǀûn ge ǀnî ǀûba ǀnai hâ ǀûna xu ge ūhâ i. ǀKhara ǀûb ge hoaǁae ǀGireba gere ǃnāpe!nāpe îb tā ǁkhaba ǁnāti kōse gâre.
+ǀAsase ge ǂoaxa ǀûn ge ǀ ǀkharati ī ǀûba, ǀnai hâ ǀûna xu ge ūhâ i. ǁNā ǀkhara ǀûb ge hoaǁae ǀGiriba ge re ǃnāpeǃnāpe îb tā ǁkhaba ǁnāti kōse gâre.
 
 ##
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Ngeve Shanombe
+* Translation: Ngeve Shangombe
 * Language: naq

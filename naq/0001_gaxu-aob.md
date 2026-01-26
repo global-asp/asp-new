@@ -1,16 +1,16 @@
 # Gaxu aob
 
 ##
-ǁÎb di ǃōs ge kaise a ǃnuburo.
+ǁÎb di ǃōs ge kaise ge ǃnubu i.
 
 ##
-ǁÎb di daos ge kaise a ǂam.
+ǁÎb di daos ge kaise ge ǂam i.
 
 ##
-ǁÎb di kharob ge kaise a ǃnuburo.
+ǁÎb di kharob ge kaise ge ǃnubu i.
 
 ##
-ǁÎb ǀurihāb ge kaise ge ǃnuburo i.
+ǁÎb ǀurihāb ge kaise ge ǃnubur i.
 
 ##
 Nē aob ge kaise ge gaxu i.
@@ -22,13 +22,13 @@ Nē aob ge kaise ge gaxu i.
 ǁÎb ge kaise ǀgapi daosa ge kuru.
 
 ##
-ǁÎb ge kaise gaxu kharob ge kuru.
+ǁÎb ge kaise gaxu kharoba ge kuru.
 
 ##
-ǁÎb ge kaise ǀgapi ǀurihāba ge kuru.
+ǁÎb ge kaise ǀgapi ǀurihāba ge ǁama.
 
 ##
-ǁÎb ge kaise ǀgapi ǂnû-aiǃnaos ai ra ǂnû. ǁÎb ge kaise gaxu forkheb ǀkha ra ǂû.
+ǁÎb ge kaise ǀgapi ǂnû-aiǃnaos ai ge ǂnû. ǁÎb ge kaise gaxu forkheb ǀkha gere ǂû.
 
 ##
 ǁÎb ge ǁîb omsa xu doe tsî kaiǃgâ ǃgarob ǃnâ sī ge ǁan. ǁÎb ge ǂgui kuriga ǁnāpa ge ǁan.

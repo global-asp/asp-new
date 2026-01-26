@@ -1,25 +1,25 @@
 # Skol saran
 
 ##
-Nē rokhoes ge gaxu.
+Nē rokhoes ge a gaxu.
 
 ##
-Nē jersis ge kai.
+Nē jersis ge a kai.
 
 ##
-Nē ǁgarub ge kai.
+Nē ǁgarub ge a kai.
 
 ##
-Nē bands ge...
+Nē kamanaǃhâge...
 
 ##
-Nē ǀgawas ge ǂkhari.
+Nē ǀgawas ge a ǂkhari.
 
 ##
-Nē kausikha ge ǃnubu.
+Nē kausikha ge a ǃnubu.
 
 ##
-Xawe ra ge nē ǁharora ǀasa.
+Xawe ra ge nē ǁharora a ǀasa.
 
 ##
 ǃAmkuse ǂâu te hâ.
