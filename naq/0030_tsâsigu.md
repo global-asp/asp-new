@@ -1,4 +1,4 @@
-# Tsâsin
+# Tsâsigu
 
 ##
 Ti ǂgaob ge ǂgui xūna ra tsâ.

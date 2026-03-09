@@ -1,7 +1,7 @@
 # ǂOaǀnanumâsib ǂKhanis
 
 ##
-ǂNâsa i ga a.
+ǂNâsa i ge a.
 
 ##
 Sores ge ǀgamsa.

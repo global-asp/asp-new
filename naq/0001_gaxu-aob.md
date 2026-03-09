@@ -10,7 +10,7 @@
 ǁÎb di kharob ge kaise ge ǃnubu i.
 
 ##
-ǁÎb ǀurihāb ge kaise ge ǃnubur i.
+ǁÎb ǀurihāb ge kaise ge ǃnubu i.
 
 ##
 Nē aob ge kaise ge gaxu i.

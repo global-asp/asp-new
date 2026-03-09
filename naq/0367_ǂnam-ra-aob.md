@@ -19,13 +19,13 @@ Ob ge ra ǁnâu! Khoe-i ra îxase "Amazing Grace" amsa ǂnuni ǃkhaisa. ǁÎb ge
 "Tita ge noxopa ǁnāti kōse îxase ra ǂnuni khoe-e ǁnâu tama hâ," tib ge ra ǂâi.
 
 ##
-ǁÎb ge khoen ǁaegu ra ǃgû. ǁNātimîb ge ǂnam ra aoba ra mû. Khoen ge mâride ǂkhari ǀui dōrob hîa ǁîb ais ai mâb ǃnâ gere aoǂgā. Xawe ... i ge xū-e ge ǃgâi tama hâ i.
+ǁÎb ge khoen ǁaegu ra ǃgû. ǁNātimîb ge ǂnam ra aoba ra mû. Khoen ge maride ǂkhari ǀui dōrob hîa ǁîb ais ai mâb ǃnâ gere aoǂgā. Xawe ... i ge xū-e ǃgâi tama hâ.
 
 ##
 ǂNam ra aob ge khoena ǃoa kō tama hâ. ǁÎb ge mari-e kō tama hâ. ǁÎb ge ǀguis khami ī xū-i tsîna kō tama hâ. ǁÎb ge maride dōb ǃnâ tsanana tsî ǁîb ǁhōs ǃnâ ra ǂgā.
 
 ##
-Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī." Ricob ge noxopa ǂgī khoe-e mû tsâ tama hâ. ǁÎb ge ra ǃao. ǁÎb ge mamasas di horokhoes ai ǃkhōbasen tsî tsaurase ra dî "Mama, ǁnā aoba a ǂgī?"
+Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī." Ricob ge noxopa ǂgī khoe-e mû tsâ tama hâ. ǁÎb ge ra ǃao. ǁÎb ge mamasas di rokhoes ai ǃkhōbasen tsî tsaurase ra dî "Mama, ǁnā aoba a ǂgī?"
 
 ##
 ǁÎs ge ǁîb di ǃomsa ū, tsî "Î," ti ge ǃeream, "î, ǁîb ge a ǂgī. Kō re, ǁîb ge ǃuri haiba ūhâ. ǂGui ǂgī khoen ge ǃuri haiga ra tani. ǁÎb ge haiba ra sîsenū îb ān tsî doab ǃnâ hâ xūna hōǃâ.
@@ -43,7 +43,7 @@ Ricob ge ǂnam ra aoba kō tsî ra ǂâi, "ǁîb ge ǀnîsi a ǂgī." Ricob ge n
 "Kō re ǃam ǃnâsa. ǃAm i ra, o i ge a ǃnorasa daoba ǃgâusa. ǀNî ǃhūgu ǃnâb ge bib ǀōba ra ǀō," tis ge Ricob mamasa ra mî. "ǂGī khoen ga bib ǀōba a ǁnâu on ge a ǂan ǃnorasa i a daoba ǃgâus ǃaroma ǃkhaisa."
 
 ##
-ǁÎra ge ǃam ǀgarib ǀguruǃhanab dib ai ǂnû tsî ǃgû ǃkharu ra khoena ra kō. "ǀNî ǂgī khoen ge ari-i xa ra daoǁgauhe," tis ge ǁîb mamasa ra mî. "ǁNā arin ge a ǁkhāǁkhāsa în ǁîn ǀhonkhoena daoǁgau, xawe kaise ǀgaisase ra ǂgan. ǁNāpan ge ǀoro arina Namibiab ǃnâ hâ daoǁgausa ǁkhāǁkhāhe hâ na."
+ǁÎra ge ǃam ǀgarib ǀguruǃhanab dib ai ǂnû tsî ǃgû ǃkharu ra khoena ra kō. "ǀNî ǂgī khoen ge ari-i xa ra daoǁgauhe," tis ge ǁîb mamasa ra mî. "ǁNā arin ge a ǁkhāǁkhāsa în ǁîn ǀhonkhoena daoǁgau, xawe kaise ǀgaisase ra ǂgan. ǁNāpan ge ǀoro arina Namibiab ǃnâ hâ daoǁgausa ǁkhāǁkhāhe hâna."
 
 ##
 "ǂGī aob ge ai-īsiǂhôaǂgaresa a kō ǁoa," tib ge Ricoba ge mî. "ǁÎb ge ai-īsiǂhôaǂgares tsî ǂhôaǂgares tsîna a ǁnâu ǁkhā," tis ge Ricob mamasa ra mîba bi. "ǂGī khoen ge ǁnaetisase mû ra khoen xa ǃgâise ra ǁnâu."

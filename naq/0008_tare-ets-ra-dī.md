@@ -16,7 +16,7 @@ Tita ge ra ǁapunǃom.
 ǁÎb ge ra ǂgai.
 
 ##
-Tita ge ra ǃeream.
+Tita ge ra oe.
 
 ##
 ǁÎs ge ra ǃgâ.

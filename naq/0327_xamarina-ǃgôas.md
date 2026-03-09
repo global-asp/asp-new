@@ -1,19 +1,19 @@
 # Xamarina ǃgôas
 
 ##
-ǀGui ǂkhoab ge ǁgam-e ā-ǃgû garu.
+ǀGui ǂkhoab ge ǁgam-e āǃgû garu.
 
 ##
-ǀGam ǃnaikha ge ǁgam-e ā-ǃgû garu.
+ǀGam ǃnaikha ge ǁgam-e āǃgû garu.
 
 ##
-ǃNona ǃgarogoman, tsî haka anin tsîn ge ǁgam-e ā-ǃgû garu.
+ǃNona ǃgarogoman, tsî haka anin tsîn ge ǁgam-e āǃgû garu.
 
 ##
-Koro impalagu, tsî ǃnani dirigu tsîn ge ǁgam-e ā-ǃgû garu.
+Koro impalagu, tsî ǃnani dirigu tsîn ge ǁgam-e āǃgû garu.
 
 ##
-Hû ǃgoren ge ǁgam-i ǃoa ra ǃkhoe.
+Hû ǃgoren ge ǁgam-e ǃoa ra ǃkhoe.
 
 ##
 ǁKhaisa ǁgôadi tsî khoese ǁaun tsîn ge ǁgammi ǃnâ ra tsâ.

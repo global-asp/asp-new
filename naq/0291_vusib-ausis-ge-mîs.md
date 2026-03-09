@@ -19,10 +19,10 @@ Daob ǃnâb ge ǀgam aokha hîa omsa ra omkha ǀkha ge ǀhao. "ǁNā ǀgaisa hai
 "Tare-ets go dī?" tib ge Vusiba ge ǃau. "ǁNāb ge ti ausis ǃgameb di ǀkhae go ība. Haiǂû ǃora-aokha xa ta ge ǁnā haiba go māhe, ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai ti ī. Tare-es ti ausisa nēsisa nî mî?"
 
 ##
-Omkuru-aokha ge kaise ge ǃhausen haiba kha ge khôa ǃkhai xa. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǀgânna sa ausis ǃaroma," tib ge lguiba ge mî. Tsîb ge Vusiba ǁîb daob ǀkha ge aiǃgû.
+Omkuru-aokha ge kaise ge ǃhausen haiba kha ge khôa ǃkhais xa. "Sikhom ge tsamperes ǀkha a hui ǁoa, xawe ū re nē ǀgânna sa ausis ǃaroma," tib ge lguiba ge mî. Tsîb ge Vusiba ǁîb daob ǀkha ge aiǃgû.
 
 ##
-Daob ǃnâb ge Vusiba gomasa ūhâ ǂgari-aob ǀkha ge ǀhao. "Tare ǁkhoaxa ǀgâna, tsâ ǁkhā î ta a?" ti's ge gomasa ge dî. Xawen ge ǁnā ǀgânna kaise ge ǁkhoaxa i, tsîs ge gomasa hoa ǀgânna ge hapu!
+Daob ǃnâb ge Vusiba gomasa ūhâ ǂgari-aob ǀkha ge ǀhao. "Tare ǁkhoaxa ǀgâna, tsâ ǁkhā i ta a?" tis ge gomasa ge dî. Xawen ge ǁnā ǀgânna kaise ge ǁkhoaxa i, tsîs ge gomasa hoa ǀgânna ge hapu!
 
 ##
 "Tare-es go dī?" tib ge Vusib ge ǃau. "ǁNā ǀgân ge ti ausis di ǃgameb ǀkhaeba omkuru-aokha xa ta go māhena ǁîkha go haiǂû ǃora-aokha go mā te haiba a khôa xui-ao. Haiǂû ǃora-aokha ge haiba go mā te ǁîkha go tsamperes di ǃupusa a khôa xui-ao. ǁNās ge ti ausis di ǃgameb tsamperesa. Nēsi i ge ǃupusa ǀkhai, tsamperesa ǀkhai, ǀkhaexū-e ǀkhai. Tare-es ti ausisa nēsisa nî mî?"

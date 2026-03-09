@@ -10,7 +10,7 @@ Nē jersis ge a kai.
 Nē ǁgarub ge a kai.
 
 ##
-Nē kamanaǃhâge...
+Nē kamanaǃhâub ge...
 
 ##
 Nē ǀgawas ge a ǂkhari.
@@ -22,7 +22,7 @@ Nē kausikha ge a ǃnubu.
 Xawe ra ge nē ǁharora a ǀasa.
 
 ##
-ǃAmkuse ǂâu te hâ.
+ǃGâise ǂâu hâ.
 
 ##
 * License: [CC-BY-NC]

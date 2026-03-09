@@ -1,19 +1,19 @@
-# ǃÂsa krokodili xa
+# ǃÂsa ǁnâseb xa
 
 ##
-ǀGuitsē i ge kaise ǃâsa krokodili xa ge hâ-e i.
+ǀGuitsē i ge kaise ǃâsa ǁnâseb xa ge hâ-e i.
 
 ##
-ǂAuse tsî ǃnosaseb ge ǂûna gere ôamâ. Tsîb ge ...
+ǂAuse tsî ǃnōsaseb ge ǂûna gere ôamâ. Tsîb ge ...
 
 ##
-ǃKhau!!! ǃKhō go krokodili ge!
+ǃKhau!!! ǃKhō go ǁnâseb ge!
 
 ##
 ǁNās khaoǃgâb ge ǁîba ǃaruǀî ǃâsa tama hâ, tsî ra ǃgâiaǂgao.
 
 ##
-ǁKhawab nî ǃâs kose.
+ǁKhawab nî ǃâs kōse.
 
 ##
 * License: [CC-BY]

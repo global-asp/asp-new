@@ -4,13 +4,13 @@
 ǀGuitsēs ge mamasa ǂgui haiǂûna ge ǀkhī-ū.
 
 ##
-"Mâǁae da haiǂûna nî ǂû?" ti da ge ge dî. "Nē ǃoe da ge haiǂûna nî ǂû," ti's ge mamasa ge mî.
+"Mâǁae da haiǂûna nî ǂû?" ti da ge ge dî. "Nē ǃoe da ge haiǂûna nî ǂû," tis ge mamasa ge mî.
 
 ##
-Ti ǃgâsab Rahimmi ge kaise a ǂûna. ǁÎb ge mâ haiǂû-i hoa-e ge nâ-ai. ǁÎb ge ǂgui haiǂûna ge ǂû.
+Ti ǃgâsab Rahimmi ge kaise a ǂûna. ǁÎb ge mâ haiǂû-i hoa-e ra nâ-ai. ǁÎb ge ǂgui haiǂûna ra ǂû.
 
 ##
-"Kō re tare-eb go Rahimma a dī ǃkhaisa!" tib ge ti ǂkham ǃgâsaroba ra ǃau. "Rahimmi ge ǁorexa tsî ǀguriǃgôasenxa," ti ta ge ra mî.
+"Kō re tare-eb go Rahimma a dī ǃkhaisa!" tib ge ti ǂkham ǃgâsaroba ra ǃau. "Rahimmi ge ǁorexa tsî ǀguriǃgôasenxa," ti ta ge ge mî.
 
 ##
 Mamas ge Rahimmi ǀkha ǁaixa hâ.
@@ -28,13 +28,13 @@ Sida tsîn ge Rahimmi ǀkha ǁaixa hâ. Xaweb ge Rahimma ǃhausen tama hâ.
 Rahimmi ge ra ǀaesen tsoatsoa.
 
 ##
-"Mama ti ǃnāb ge ra tsû," tib ge Rahimma ra tupu.
+"Ti ǃnāb ge ra tsû," tib ge Rahimma ra tupu.
 
 ##
 Mamas ge ge ǂan i nē ǃkhais nî īsa. Haiǂûn ge Rahimma ra ǁkhara!
 
 ##
-Egab ge Rahimma sida ai ǀûbaba ge ǂgan. "Tita ge ǁkhawa ǁnāti ǂûna tide," tib ge ra mîǀgui. Tsîda ge hoada ǁîba ra ǂgom.
+Egab ge Rahimma sida ai ǀûbaba ge ǂgan. "Tita ge ǁkhawa ǁnāti ǂûna tide," tib ge ra mîǁgui. Tsîda ge hoada ǁîba ra ǂgom.
 
 ##
 * License: [CC-BY]

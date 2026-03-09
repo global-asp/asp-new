@@ -1,4 +1,4 @@
-# ǂNuruǁnuib ǀkha kurusa ǀgôan xa
+# ǂNuruǁnui ǀgôan xa
 
 ##
 ǀGui tsē i ge ǂkhîxa ǀaokhoen xa ge ǁanhe hâ i.
@@ -19,13 +19,13 @@ Xaweb ge axagu ǀguiba kaise ge ǁkhore hâ i sores ǃnâ ǂoasa.
 ǀGui tsēb ge nē ǁkhoreba kaise ge kai i, xaweb ge ǃgâsakha xa ge ǃkhâikhomhe.
 
 ##
-Xawe i ge kaise ǃonkhao i! ǁÎb ge nē ǀgamsa sores ǃnâ ge tsuni.
+Xawe i ge kaise ge ǃonkhao i! ǁÎb ge nē ǀgamsa sores ǃnâ ge tsuni.
 
 ##
-ǃGâsab ra tsunibe ǀgaus xakha ge ǂnuruǁuib ǀkha kurusa ǃgâsakha ge re ǃoa.
+ǂNuruǁui ǃgâsan ge kaise ge ǃoa, ǁîn ǃgâsab ge tsunibē ǃkhais ǃaroma.
 
 ##
-Xawe kha ge ǀawehe ge kuru. ǁÎkha ge ǃgâsaba xu ge tsuni ǂnuruǁnuib ǀkha anisa ge kuru.
+Xawen ge ǀawe-e ge kuru. ǁÎn ge ǃgâsaba xu ge tsuni ǂnuruǁnuib ǀkha anisa ge kuru.
 
 ##
 ǁÎkha ge ani ǃgâsaroba ǀgapi ǃhommi ǂoaragas kose ge ǃapa-u.

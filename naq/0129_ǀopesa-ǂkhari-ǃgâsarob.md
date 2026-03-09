@@ -1,25 +1,25 @@
-# ǀOpesa ǂkhari ǃgâsarob xa
+# ǀOpesa ǂkhari ǃgâsarob
 
 ##
 Tita ge khâi, tsî ǀaesa ra khau.
 
 ##
-ǁGam-e ta ra ǀgûǀgû.
+ǁGam-e ta ge ra ǀgûǀgû.
 
 ##
-ǀAena ta ra ǁkhā.
+ǀAena ta ge ra ǁhā.
 
 ##
-Sūsa ta ra huni.
+Sūsa ta ge ra huni.
 
 ##
-ǂGapaba ta ra ǀnapu.
+ǂGapaba ta ge ra ǀnapu.
 
 ##
-Xawana ta ra ǁā.
+Xawana ta ge ra ǁā.
 
 ##
-Tare-i ǃaroma ta nēti ǀgaisase ra sîsen... ... ti ǃgâb ra ǀhuru hîa?
+Tare-i ǃaroma ta nēti ǀgaisase ra nî sîsen... ... ti ǃgâb ra ǀhuru hîa?
 
 ##
 * License: [CC-BY-NC]

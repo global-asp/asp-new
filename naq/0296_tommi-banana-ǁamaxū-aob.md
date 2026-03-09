@@ -4,10 +4,10 @@
 Tommi ge ǂhûiǂgawab ǃnâ ǁansa bananaga ra tani.
 
 ##
-Tommi ge ǁamaxuǃkhaib ǁga bananana ra ǁamaxū ǃgû.
+Tommi ge ǁamaxūǃkhaib ǁga bananana ra ǁamaxū ǃgû.
 
 ##
-ǁAmaxuǃkhaib tawan ge khoena haiǂûna ra ǁama.
+ǁAmaxūǃkhaib tawan ge khoena haiǂûna ra ǁama.
 
 ##
 Xawe i ge khoe-i xare-e Tommi di bananaga ǁama tama hâ. ǁÎn ge haiǂûna tarare khoede xu ǁamasa ra ǁhûi.
@@ -19,7 +19,7 @@ Xawe i ge khoe-i xare-e Tommi di bananaga ǁama tama hâ. ǁÎn ge haiǂûna tar
 Xaweb ge Tomma ǀûsen tama ge hâ i. ǁÎb ge ra ǃhao, "ǁAma re ti bananaga! ǁAma re ti ǁansa ǂkhon bananaga!"
 
 ##
-ǀGui tarekhoes ge ǃkhomas di bananaga ǂhûiǂgawaba xu ra gui. ǁÎs ge ǂōrisase bananaga ra kōǀkhā.
+ǀGui tarekhoes ge ǃkhomas di bananaga ǂhûiǂgawaba xu ra khui. ǁÎs ge ǂōrisase bananaga ra kōǀkhā.
 
 ##
 ǁNā tarekhoes ge bananaga ra ǁama.
