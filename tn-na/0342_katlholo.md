@@ -4,13 +4,13 @@
 Ka letsatsi lengwe, mme a amogela maungo a mantsi.
 
 ##
-"Re kgona go ja leng maungo ?" ra botsa. "Re tla ja maungo maitsiboa," go bua mme.
+"Re kgona go ja leng maungo?" ra botsa. "Re tla ja maungo maitsiboa," go bua mme.
 
 ##
 Nnake Rahim o bogagapa. O lekile maungo fela otlhe. O jele bontsi jwa ona.
 
 ##
-"Bonang gore Rahim o dirile eng!" ga goa nnake yo mmotlana. "Rahim o tshwenye le bogagapa," go bua nna.
+"Bonang gore Rahim o dirile eng!" ga goa nnake yo mmotlana. "Rahim o tshwenye gape o bogagapa," Go bua nna.
 
 ##
 Mme o kgopetswe Rahim.
@@ -31,10 +31,10 @@ Rahim a simolola go ikutlwa go bobola.
 "Mogodu wa me o a thunya," go sebetsa Rahim.
 
 ##
-Mme o ne a itse gore se,se a go diragala. Maungo a otlhaya Rahim!
+Mme o ne a itse gore se, se a go diragala. Maungo a otlhaya Rahim!
 
 ##
-Kwa morago,Rahim a ikopela boitshwarelo mo go rona. "Ga nkitla ke tlhola ke nna bogagapa gape," a re itshepisa. Mme rotlhe ra mo dumela.
+Kwa morago, Rahim a ikopela boitshwarelo mo go rona. "Ga nkitla ke tlhola ke nna bogagapa gape," a re itshepisa. Mme rotlhe ra mo dumela.
 
 ##
 * License: [CC-BY]

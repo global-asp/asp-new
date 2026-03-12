@@ -19,7 +19,7 @@ Mme mongwe wa basimane o ne a eletsa go bona letsatsi.
 Ka letsatsi lengwe keletso ya gagwe e ne ya oketsega. Basimane ba bangwe ba ne ba mo kgalema...
 
 ##
-Mme go ne so setse go le thari! O ne a tlhapologa mo letsatsing.
+Mme go ne go setse go le thari! O ne a tlhapologa mo letsatsing.
 
 ##
 Bana ba kerese ba ne ba utlwa botlhoko go bona o mongwe a tlhapologa.

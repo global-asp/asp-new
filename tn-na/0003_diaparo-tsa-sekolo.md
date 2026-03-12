@@ -4,7 +4,7 @@
 Mosese o o moleele.
 
 ##
-Foroko ye e leele.
+Foroko ye e tonna.
 
 ##
 Kgetsi e e tonna.
@@ -22,7 +22,7 @@ Dikausu di khutshwane.
 Mme ditlhako tse dintsha.
 
 ##
-...di ntekana sentle.
+… di ntekana sentle.
 
 ##
 * License: [CC-BY-NC]

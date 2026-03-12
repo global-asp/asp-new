@@ -16,28 +16,28 @@ Ntwala o ne a goa go tswa mo letlhakoreng le lengwe la motse, "Ke fano! Ke lo em
 "A lo ipaakanyeditse go thuma gompieno?" Ntwala a ba botsa. "Ee," ba goa ba itumetse ba ntse ba tlolela kwa godimo ka boitumelo.
 
 ##
-Fa ba ntse ba tsamaela kwa nokeng Ntwala o ne a ba bolelela dikgang. "Re bolelele ka ga nako e rile motse wa rona o tlhasetswe ke morwalela," ba bua. "Re bolelele ka ga Phokoje le Tshwene."
+Fa ba ntse ba tsamaela kwa nokeng Ntwala o ne a ba bolelela dikgang. "Re bolelele ka ga nako e e rileng motse wa rona o tlhasetswe ke morwalela," ba bua. "Re bolelele ka ga Phokoje le Tshwene."
 
 ##
-Go ne go na le setlhare se segolo sa Morula go bapa le noka. Basetsana ba ne ba batlela Ntwala maungo morula o motona.
+Go ne go na le setlhare se segolo sa Morula go bapa le noka. Basetsana ba ne ba batlela Ntwala maungo a matonna mo moruleng.
 
 ##
-"Ke bone o motona," ga goa Joy. O ne a neela Ntwala morula wa gagwe.
+"Ke bone o motonna," ga goa Joy. O ne a neela Ntwala morula wa gagwe.
 
 ##
 "Tsamayang lo ye go thuma," ga bua Ntwala go basetsana. Botlhe ba tabogela mo metsing, ba goa gape ba tshegatshega fa ba ntse ba utlwa metsi a tsididi a noka ya Zambezi.
 
 ##
-Ntwala o ne a eme fa lotshitshing lwa noka a lebeletse dikwena. O ne a lebile basetsana ba bagolwane jaaka ba ntse ba gaisana gape ba tlolela mo metsing. O ne a lebelela le basetsana ba ba botlana jaaka ba tshameka ka metse gape ba ithuta go thuma.
+Ntwala o ne a eme fa lotshitshing lwa noka a lebeletse dikwena. O ne a lebile basetsana ba bagolwane jaaka ba ntse ba gaisana gape ba tlolela mo metsing. O ne a lebelela le basetsana ba ba botlana jaaka ba tshameka ka metsi gape ba ithuta go thuma.
 
 ##
 "Ke nako ya dikgaisano jaanong," a goa kwa bofelong. "Emang mo moleng." O ne a tsholetsa morula o motona. A o latlhela kgakala ka go kgona ga gagwe mo metsing.
 
 ##
-"Nngwe, pedi, tharo. Tsamayang!" a goa. Bana ba tabogela mo metsing mme ba thumela kwa moruleng o o mo metsing. Ntwala o ne a ba lebeletse.
+"Nngwe, pedi, tharo. Tabogang!" a goa. Bana ba tabogela mo metsing mme ba thumela kwa moruleng o o mo metsing. Ntwala o ne a ba lebeletse.
 
 ##
-"Ke wa ntlha!" ga goa Maria le Chaze ka nako e le nngwe. "Loo babedi lo ba ntlha," ga bua Ntwala.
+"Ke wa ntlha!" ga goa Maria le Chaze ka nako e le nngwe. " Loo babedi lo ba ntlha," ga bua Ntwala.
 
 ##
 "Ke batla go gaisana gape," ga bua Maria. "Ok!" ga araba Chaze. "A re a kgona, Ntwala?" ga botsa basetsana ba bangwe.
@@ -67,10 +67,10 @@ Ntwala a kopa basetsana botlhe go nna mo sedikong. "Mogokgo o re boleletse a ren
 "Maria o tshwanetse go ikopela boitshwarelo," ga bua Namasiku. "Chaze o tshwanetse go mo itaya le ene," ga bua Joy. "Nnyaa, ga go a siama go itaana," ga bua Ntwala.
 
 ##
-Ntwala a re, "Ke dumela gore Maria ga a tshwanela go ya go thuma ka Latshipi le le tlang." Maria a lela selelo sa mafutsana. "Ke... Ke... Ke kopa boitshwarelo Chaze. Ke maswabi jaaka ke go iteile. Ga ke kitla ke itaya ope gape," a ikopela boitshwarelo.
+Ntwala a re, "Ke dumela gore Maria ga a tshwanela go ya go thuma ka Latshipi le le tlang." Maria a lela selelo sa mafutsana. "Ke … Ke … Ke kopa boitshwarelo Chaze. Ke maswabi jaaka ke go iteile. Ga ke kitla ke itaya ope gape," a ikopela boitshwarelo.
 
 ##
-"Ke a go itshwarela," ga bua Chaze mme a baya seatla sa gagwe mo go Maria. "Nna le Maria re tla tla lwapeng le wena," ga bua Ntwala a bolelela Chaze. "Maria o tla kopa boitshwarelo mo go mmago le ene."
+"Ke a go itshwarela," ga bua Chaze mme a baya seatla sa gagwe mo go Maria. "Nna le Maria re tla tla lwapeng le wena," ga bua Ntwala a bolelela Chaze. "Maria o tla kopa boitshwarelo mo go mmaago le ene."
 
 ##
 Maria o ne a bolelela mmaagwe Chaze a re, "Ke iteile Chaze ka gore o fentse kgaisano ya go thuma. Ke maswabi. Chaze ke tsala ya me e bile go ne go sa siama gore ke mo iteye."
@@ -82,7 +82,7 @@ Mme Sibungo o ne a reeditse Maria. "Seo se ne se sa siama, go bosula go itaya ba
 Mme Sibungo a bua le bana botlhe. "Ntwala o akantse ka katlholo e e siametseng Maria. O iteile Chaze ka gore o fentse kgaisano ya go thuma, jaanong ga a kitla a kgona go gaisana.
 
 ##
-"Mma mme," ga nyenya Chaze, "Ga ke batle gore Maria a nne kwa gae ka Latshipi le le tlang. Ke batla go gaisano le ene fa go thumiwa mo bekeng e e tlang le nna!"
+"Mma mme," ga nyenya Chaze, "Ga ke batle gore Maria a nne kwa gae ka Latshipi le le tlang. Ke batla go gaisana le ene fa go thumiwa mo bekeng e e tlang le nna!"
 
 ##
 * License: CC BY-NC-SA

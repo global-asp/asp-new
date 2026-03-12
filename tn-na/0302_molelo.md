@@ -7,7 +7,7 @@ Leba, molelo!
 Molelo o a fisa.
 
 ##
-Molelo o apaya.
+Molelo o a apaya.
 
 ##
 Molelo o naya bothito.
@@ -22,7 +22,7 @@ Leba, molelo!
 Molelo o a makatsa.
 
 ##
-Gape o a thatafatsa.
+Gape o bogale.
 
 ##
 * License: [CC-BY]

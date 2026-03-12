@@ -43,7 +43,7 @@ Nyar- Kanyada o ne a ruta ditlogolo tsa gagwe go dira ugali e e borethe go jela 
 Moso mongwe, Odongo a tsaya dikgomo tsa ga mmemogolo wa gagwe go ya go hula. Di ne tsa tabogela mo polasing ya baagisanyi. Molemirui o ne a galefela Odongo. O ne a mo tshosetsa gore o tla tshegetsa dikgomo jaaka di jele merogo ya gagwe. Morago ga letsatsi le o, mosimane o ne a netefatsa gore dikgomo ga di tsene mo mathateng gape.
 
 ##
-Ka letsatsi le lengwe bana ba ne ba ya kwa marekisetsong le Nyar-Nnyada. O na le lefelo le o rekisang merogo, sokore le molora teng. Apiyo o rata go bolelela bareki tlhwotlhwa ya dilwana. Odongo o ne a phuthela dilwana tse bareki ba di rekileng.
+Ka letsatsi le lengwe bana ba ne ba ya kwa marekisetsong le Nyar-Kanyada. O na le lefelo le o rekisang merogo, sokore le molora teng. Apiyo o rata go bolelela bareki tlhwatlhwa ya dilwana. Odongo o ne a phuthela dilwana tse bareki ba di rekileng.
 
 ##
 Kwa bofelong jwa letsatsi bane ba nwa tee ya chai mmogo. Ba thusa mmemogolo go bala madi a o a amogetseng.

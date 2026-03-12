@@ -19,7 +19,7 @@ A e bapile le toromo ya matlakala?
 A e moteng ga seroto?
 
 ##
-A e moteng ga ntlo?
+A e kwantle ga ntlo?
 
 ##
 Ke e fa!

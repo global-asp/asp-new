@@ -25,7 +25,7 @@ Masole ba boa ba tla.
 Mmemogolo a shuba Tingi ka fa tlase ga makakaba.
 
 ##
-Mongwe wa masole a gata fa o ishubileng teng, mme a itidimalela.
+Mongwe wa masole a gata fa o itshubileng teng, mme a itidimalela.
 
 ##
 E rile go sirelegile, Tingi le mmemogolo wa gagwe ba tswa mo sekgweng.

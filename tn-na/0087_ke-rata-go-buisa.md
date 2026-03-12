@@ -22,7 +22,7 @@ Ke tla buisetsa mang?
 Rre le rremogolo ba tshwaregile.
 
 ##
-Ke tla buisetsa mang?Ke tla ipuisetsa!
+Ke tla buisetsa mang? Ke tla ipuisetsa!
 
 ##
 * License: [CC-BY]

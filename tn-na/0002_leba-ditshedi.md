@@ -4,7 +4,7 @@
 Leba ditshedi.
 
 ##
-Kgomo e a re," moo."
+Kgomo e a re, "moo."
 
 ##
 Podi ya re, "Mee,
@@ -22,7 +22,7 @@ Koko e a, "kokoretsa."
 Ntswa e a," bogola."
 
 ##
-Morui a re,"Shh!"
+Morui a re, "Shh!"
 
 ##
 * License: [CC-BY-NC]

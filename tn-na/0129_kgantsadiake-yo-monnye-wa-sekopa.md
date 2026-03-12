@@ -1,10 +1,10 @@
 # Kgantsadiake yo monnye wa sekopa
 
 ##
-Ke a tsoga ke gotsa molelo.
+Ke tsoga ke gotsa molelo.
 
 ##
-Ke tlhatlhaya metse.
+Ke bedisa metsi.
 
 ##
 Ke rata dikgong tse di gotsang.
@@ -19,7 +19,7 @@ Ke feela boalo.
 Ke tlhatswa dijana.
 
 ##
-Ke ka ntlha ya eng ke dira thata jana... ...fa kgantsadiake ene a tshameka?
+Ke ka ntlha ya eng ke dira thata jana... … fa kgantsadiake ene a tshameka?
 
 ##
 * License: [CC-BY-NC]

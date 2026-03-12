@@ -1,13 +1,13 @@
-# Ngwana wa setshwano sa tonki
+# Ngwana wa Tonki
 
 ##
 E ne e le mosetsana yo o boneng pele sebopego se se sa tlwaelesegang mo sekgaleng.
 
 ##
-Fa sebopego se ntse se utamela, a bona e le mosadi yo o goletsweng.
+Fa sebopego se ntse se atamela, a bona e le mosadi yo o emetseng kwa godimo.
 
 ##
-Mosetsana a ya gaufi le mosadi a ntse a tlhabiwa ke ditlhong mme a le pelokgale. "Re tshwanetse go mo mmaya fa le rona" e le batho ba mosetsana ba dumalana. "Re tla sireletsa mme yo le ngwaga wa gagwe."
+Mosetsana a ya gaufi le mosadi a ntse a tlhabiwa ke ditlhong mme a le pelokgale. "Re tshwanetse go mmaya fa le rona" e le batho ba mosetsana ba dumalana. "Re tla sireletsa mme yo le ngwana wa gagwe."
 
 ##
 Losea lo ne lo le mo tseleng go ka belegwa. "Kgorometsa!" "Tlisang dikobo!" "Metsi" "Kgoromeeetsa!!!
@@ -25,19 +25,19 @@ Ke fa jaanong mosadi a ipona a le nosi gape. A ipotsa gore o tlile go dira eng k
 Mme bofelelong a tshwanela ke go amogela gore losea ke la gagwe le gore ke ene mmalona.
 
 ##
-Fa ngwana nkabe a ntse fela jalo, a le monnye, sengwe le sengwe se ka bo se siame. Mme ngwana wa setshwano sa tonki a gola a bo a gola go fitlhela mmagwe a seka a kgona go mmelega mo mokwatleng. Le fa a ne a leka thata jang, o ne a sa kgone go itshola jaaka motho. Mmagwe o ne a tlhola a lapile ebile a tenegile. Ka dinako dingwe, o ne a mo dirisa tiro e e tshwanetseng diphologolo.
+Mme fa ngwana nkabe a ntse fela jalo, a le monnye, sengwe le sengwe se ka bo se siame. Mme ngwana wa setshwano sa tonki a gola a bo a gola go fitlhela mmaagwe a seka a kgona go mmelega mo mokwatleng. Le fa a ne a leka thata jang, o ne a sa kgone go itshola jaaka motho. Mmaagwe o ne a tlhola a lapile ebile a tenegile. Ka dinako dingwe, o ne a mo dirisa tiro e e tshwanetseng diphologolo.
 
 ##
-Tonki a tlala tlhakatlhakano mme sekgopi sa gola mo go ene. O ne a sa kgone go dira se kapa se. O ne a sa kgone go nna jaana kgotsa jalo. O ne a kgotswa thata gore ka letsatsi lengwe, a ragela mmagwe fa fatshe.
+Tonki a tlala tlhakatlhakano mme sekgopi sa gola mo go ene. O ne a sa kgone go dira se kapa se. O ne a sa kgone go nna jaana kgotsa jalo. O ne a kgotswa thata gore ka letsatsi lengwe, a ragela mmaagwe fa fatshe.
 
 ##
-Tonki o ne a tlhabiwa ke ditlong. A simolola go tabogela kgakala thata ka lobelo lo a neng a lo kgona.
+Tonki o ne a tlhabiwa ke ditlhong. A simolola go tabogela kgakala thata ka lobelo lo a neng a lo kgona.
 
 ##
-Ka nako fa a khutla go taboga, go ne go le bosigo mme Tonki a iphitlhela a timetse. "Uuu Uuu?" a sebela lefifi. "Uuu Uuu?" lefifi la mo sebela le lona. O ne a le esi. A ikgara mo sedikong se se tiileng mme a wela mo borokong jo bo tseneletseng jo bo sa iketlang.
+Ka nako fa a emisa go taboga, go ne go le bosigo mme Tonki a iphitlhela a timetse. "Uuu Uuu?" a sebela lefifi. "Uuu Uuu?" lefifi la mo sebela le lona. O ne a le esi. A ikgara mo sedikong se se tiileng mme a wela mo borokong jo bo tseneletseng jo bo sa iketlang.
 
 ##
-Tonki a tsoga go fitlhela monna yo o sa tlwaelesegang a mo lebeletse. A lebelela mo matlhong a monna mme a simolola go utlwa tshepo e se kae.
+Tonki a tsoga go fitlhela monna yo o sa tlwaelesegang a mo lebeletse. A lebelela mo matlhong a monnamogolo mme a simolola go utlwa tshepo e se kae.
 
 ##
 Tonki o ile a ya go nna le monnamogolo yo o neng a mo ruta mekgwa e e farologaneng ya go tshela. Tonki o ne a reeditse le gona a ithutile fela jaaka le ene monnamogolo. Ba ne ba thusana e bile ba tshega mmogo.
@@ -46,7 +46,7 @@ Tonki o ile a ya go nna le monnamogolo yo o neng a mo ruta mekgwa e e farologane
 Mo mosong mongwe, monnamogolo a kopa Tonki go mo isa kwa godimo ga thaba.
 
 ##
-Kwa godimo ga thaba magareng ga maru ba thulamela. Tonki o lorile mmagwe a bobola e bile a mmitsa. Fa a kubuga ...
+Kwa godimo ga thaba mogareng ga maru ba thulamela. Tonki o lorile mmaagwe a bobola e bile a mmitsa. Fa a kubuga ...
 
 ##
 ... maru a ne a nyeletse mmogo le tsala ya gagwe ya monnamogolo.
@@ -55,10 +55,10 @@ Kwa godimo ga thaba magareng ga maru ba thulamela. Tonki o lorile mmagwe a bobol
 Tonki o ne a itse gore a dire eng.
 
 ##
-Tonki o ne a fitlhela mmagwe a le esi gape a hutsafaletse ngwana wa gagwe yo o timetseng. Ba lebana lebaka le le leele. Morago ba tlamparelana thata.
+Tonki o ne a fitlhela mmaagwe a le esi gape a hutsafaletse ngwana wa gagwe yo o timetseng. Ba lebana lebaka le le leele. Morago ba tlamparelana thata.
 
 ##
-Ngwana Tonki le mmagwe ba godile mmogo jalo ba bone mekgwa e e farologaneng ya go tshela ba bapile. Ka bonya, mo tikologong ya bona, malwapa a ne a simolola go nna mmogo.
+Ngwana wa Tonki le mmaagwe ba godile mmogo jalo ba bone mekgwa e e farologaneng ya go tshela ba bapile. Ka bonya, mo tikologong ya bona, malwapa a ne a simolola go nna mmogo.
 
 ##
 * License: [CC-BY]

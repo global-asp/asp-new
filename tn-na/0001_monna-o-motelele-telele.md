@@ -28,7 +28,7 @@ O ile a dira bolao jo bo telele thata.
 O rekile baesekele e e kwa godimo.
 
 ##
-O dutse mo setulong se se kwa godimo thata O ja ka foroko e telele thata.
+O dutse mo setulong se se kwa godimo thata. O ja ka foroko e telele thata.
 
 ##
 O ile a tlogela ntlo ya gagwe a ya go nna kwa sekgweng. O ile a tshela dingwaga tse dintsi.

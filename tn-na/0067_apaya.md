@@ -4,10 +4,10 @@
 Ke obola makwele.
 
 ##
-Ke kgebetlelela kholo.
+Ke kgabetlelela kholo.
 
 ##
-Ke kgebetlelela dimerwane.
+Ke kgabetlelela dimerwane.
 
 ##
 Ke phepafatsa dinawa.
@@ -16,13 +16,13 @@ Ke phepafatsa dinawa.
 Ke segelela lephutsi.
 
 ##
-Ke kgebetlelela sepinasi.
+Ke kgabetlelela sepinasi.
 
 ##
-Mme o kgebetlelela dionione.
+Mme o kgabetlelela dionione.
 
 ##
-Dionione di dira gore ke lele fa di kgebetlelelwa.
+Dionione di dira gore ke lele fa di kgabetlelela.
 
 ##
 * License: [CC-BY-NC]
