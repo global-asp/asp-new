@@ -1,31 +1,31 @@
-# Mbanze nezuva
+# Mbanze nEzuva
 
 ##
-Nare, kwa kere mbanze go kugovara goudwa. Age kwa tungire noguhwe wokukurupa mo wiza wa Kalahari
+Nare-nare, kwa kere Mbanze gegova goudwa. Age kwa tungire noguhwe wokukurupa mowiza waKalahari.
 
 ##
-Ngurangura zimwe mbanze go ku kurupa kwa pindukire a ka gwane munwendi a rara momutenya. Nondja kapi dinapi ano yikombo ayo simpe mosinyongo! "Mumati gona, ove udwa! Kaze oka papare mukadi. Ame na kurupa kapi tanivhuru kupakere mbili," yimo va uyungire oguhwe va Mbanze. Mbanze yipo ga pindukire a ka lise yikombo.
+Ngurangura zimwe Mbanze gokukurupa kwa pindukire yipo ga gwene munwendi ana rara momutenya. Nondya kapi dina pi ano yikombo ayo simpe mosinyongo! "Mumatigona, ove udwa! Ka ze o ka papare ko mukadi. Ame nina kurupa kapi tani vhuru kukupakera mbili," yimo va uyungire oguhwe vaMbanze. Yipo ga hasumukire Mbanze nokutwara yikombo a ka lise.
 
 ##
-Mowiza, age kwa mwene sininke sina kuvembera pemanya. Yipo gehederere pepi nemanya. Moomu ga hederere popepi nouwa wosinininke nawo yimo una ku vembera. Nampo yige mukadedi gogu?!
+Mowiza, age kwa mwene sininke sina kuvembera pemanya. Yipo ga hederere pepi nemanya. Moomu ga hederere popepi nouwa wosininke nawo yimo una kuvembera. Nampo yige mukadendi googu?!
 
 ##
-"Ove omuwa," yimo ana ku uyunga Mbanze ko sininke esi sina kutema. "Nye nyove yilye? Morwa sinke ono karere nyovelike?" "Ame nyame ezuva," yimo lina kulimburura. "Ekoro lyange kwa sigange apa vazire. Kapi va here kusimbange. Ame upyu unene.
+"Ove o muwa," yimo ana kuuyunga Mbanze kosininke esi sina kuvembera. "Nye nyove yilye? Morwasinke ono karere nyovelike?" "Ame nyame Ezuva," sa limbwilire site. "Ekoro lyange kwa siga nge paapa apa va zire. Kapi va here kusimba nge. Ame upyu unene.
 
 ##
-Mbanze ta uyunga asi "Nye ove omuwa! Tani kusimbi. Ame tani ku twara kembo o ka mone otate." "Nawa tupu, simbange tupu. Nye kapisi o sivane apa nani pupyara unene," yimo lina ku uyunga ezuva.
+Mbanze ta uyunga asi "Nye ove o muwa! Tani ku simbi. Ame tani ku twara kembo o ka mone otate." "Nawa tupu, simba nge tupu. Nye kapisi o sivane apa nani pyapyara unene," yimo lya uyungire ezuva.
 
 ##
-Mbaze yipo gasimbire ezuva komugogo gwendi nokutengurako kembo. Pwahana kupita siruwo ezuva linatameke kuhwika mbanze. Kuvhura otundeko komugogo gwange? "Nahepa kupwizumukako," yimo ga uyungire mbaze. Mugogo gwendi kwaremanene unene nokugenda kapi ga vhulire. "Twikira tupu!" yimo lya uyungire ezuva. "Nakutantere asi kapisi o sivane."
+Mbanze yipo ga simbire ezuva komugogo gwendi a tengure ko kembo. Pwa ha na kupita siruwo, ezuva tali tameke kuhwika mbanze. Kuvhura o humburuke ko komugogo gwange?" Nina hepa kupwizumuka ko, " yimo ga uyungire mbanze. Mugogo gwendi kwa remanene unene nokugenda kapi ga vhulire. "Twikira ngorooro!" yimo lya uyungire ezuva. "Nina ku tantere asi kapisi o sivane."
 
 ##
-Makura Mbanze ta mono sisindi monzira. Yipo ga kokavere konhi zosisindi yipo ezuva li gwepo.
+Makura Mbanze ta mono egogwa lina vindama monzira. Yipo ga kokavere konhi zalyo yipo ezuva li gwe po.
 
 ##
-Nye sisindi ta siputura sipapa nono huki dendi domo mugongo makura tadi sigi konyima nezuva.
+Nye egogwa tali putura sipapa nonohuki dendi domomugongo makura tadi sigi konyima nezuva.
 
 ##
-Nohuki do nompe kwa lisigire nedi da kere korutu nare. Elisigo eli nkenye apa nga lidiworokesa Mbanze asi kapisi agovare hena.
+Nohuki donompe kwa lisigire nedi da kere korutu nare. Elisigo eli nkenye apa ngali diworokesa Mbanze asi kapisi a govare hena.
 
 ##
 * License: [CC-BY]

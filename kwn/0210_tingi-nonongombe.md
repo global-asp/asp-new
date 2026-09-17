@@ -1,34 +1,34 @@
 # Tingi nonongombe
 
 ##
-Tingi kwa tungire kumwe nomama vendi wovakadi.
+Tingi kwa tungire kumwe nozinakuru wovakadi.
 
 ##
-Age nga kungu nongombe kumwe nomama vendi.
+Age nga kungu nongombe kumwe nozinakuru.
 
 ##
 Ezuva limwe vakwayita kwa wizire.
 
 ##
-Awo kwaya gusire nongombe.
+Awo kwa ya gusire nongombe.
 
 ##
-Tingi nomama vendi kwa dukire vaka vande.
+Tingi nozinakuru kwa dukire vaka vande.
 
 ##
-Awo kwa ka vende moyinhwa dogoro ngurova.
+Awo kwa ka vende moyihwa dogoro ngurova.
 
 ##
-Ano vakwayita yipo vaka tengwire.
+Ano vakwayita yipo va ka tengwire.
 
 ##
-Omama vendi yipo va mu horekere Tingi konhi zomahako.
+Ozinakuru yipo va mu horekere Tingi konhi zomahako.
 
 ##
-Mukwayita gumwe yipo galyete kuguru kwendi korutu rwa Tingi, nye age kwa mwenene teete.
+Mukwayita gumwe yipo ga lyete kuguru kwendi korulyo Tingi, nye age kwa mwenene teete.
 
 ##
-Apa va mwene asi kuna wapa, Tingi no mama vendi yipo va tundire oku va vende.
+Apa va mwene asi kuna wapa, Tingi nozinakuru yipo va tundire oku va vende.
 
 ##
 Kwa tengwire kembo nelimweneneno.

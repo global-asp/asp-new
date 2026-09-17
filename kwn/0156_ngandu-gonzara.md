@@ -1,10 +1,10 @@
 # Ngandu gonzara
 
 ##
-Pwakere ngandu gonzara.
+Pwa kere ngandu gonzara.
 
 ##
-Age kwa paparere nondja kuliwora nelimweneneno. Makura...
+Age kwa paparere nondya kuliwora nelimweneneno. Makura...
 
 ##
 Pwaa!!! Ngandu makura ta kwata!
@@ -13,7 +13,7 @@ Pwaa!!! Ngandu makura ta kwata!
 Konyima zeyi kapi ga kere hena nonzara, ntani age ta hafa.
 
 ##
-Ntudi dogoro ngazi mukwate hena nzara.
+Ntudi dogoro ngazi mu kwate hena nzara.
 
 ##
 * License: [CC-BY]

@@ -1,37 +1,37 @@
 # Vanona venongo
 
 ##
-Siruwo sa ka pita, kwa kere ko epata lyatungire noruhafo.
+Siruwo sa ka pita, kwa kere ko epata lya tungire noruhafo.
 
 ##
-Awo kapi ngava litoona. Awo ngava vatere vakurona vawo membo nomomepya.
+Awo kapi ngava litoona. Awo ngava vatere vakurona vawo membo nomomapya.
 
 ##
-Nye kapi va va pulisilire ku kara pepi nomundiro.
+Nye kapi va va pulisilire kukara pepi nomundiro.
 
 ##
 Awo ngava rugana yirugana yawo nayinye masiku. Morwa kwa va ruganesere enongo!
 
 ##
-Nye gumwe govamati owo kwa here ku kara poruhenya.
+Nye gumwe govamati owo kwa here kukara poruhenya.
 
 ##
-Ezuva limwe ta karere po siruwo sosire. Vamumbya vendi va mu pere marondoro...
+Ezuva limwe ta karerere po siruwo sosire. Vamumbya vendi va mu pere marondoro...
 
 ##
 Nye siruwo aso sina piti! Age ta huguruka koupyu wezuva.
 
 ##
-Vanona venongo kwaguvire unene mokumona mukurwawo tahemuka.
+Vanona venongo kwa guvire unene mokumona mukurwawo ta hemuka.
 
 ##
-Nye yipo va wizire po negano limwe. Tava pangere sidira kenongo olyo lyahemukire.
+Nye yipo va wizire po negano limwe. Tava pangere sidira kenongo olyo lya hemukire.
 
 ##
 Tava twara mukurwawo gosidira keguru-guru lyondundu zonde.
 
 ##
-Ano ezuva ta lipumu, age ta tuka oku ta dimbi mosite sezuva songurangura.
+Ano ezuva tali pumu, age ta tuka oku ta dimbi mosite sezuva songurangura.
 
 ##
 * License: [CC-BY]

@@ -1,7 +1,7 @@
 # Mubyange gomumati goudwa
 
 ##
-Ame kupiduka ni hwameke mundiro.
+Ame kupinduka ni hwameke mundiro.
 
 ##
 Ame kugenyeka mema.
@@ -10,7 +10,7 @@ Ame kugenyeka mema.
 Ame kuvanda yitare.
 
 ##
-Ame kupirura mokayiga.
+Ame kupirura mokaiga.
 
 ##
 Ame kukomba porugorongwa.
@@ -19,7 +19,7 @@ Ame kukomba porugorongwa.
 Ame kukuhwa marupasa.
 
 ##
-Morwa sinke ani ruganene unene, siruwo oso age mubyange kuna ku danauka?
+Morwasinke ani ruganene unene, siruwo oso age mumbyange kuna kudanauka?
 
 ##
 * License: [CC-BY-NC]

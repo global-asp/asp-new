@@ -1,4 +1,4 @@
-# Ame kwa hara kuresa
+# Ame kwa hara kuresa!
 
 ##
 Ame kwa hara kuresa.
@@ -7,7 +7,7 @@ Ame kwa hara kuresa.
 Yilye nani resera?
 
 ##
-Mubyange gomukadona kuna rara.
+Mumbyange gomukadona kuna rara.
 
 ##
 Yilye nani resera?
@@ -22,7 +22,7 @@ Yilye nani resera?
 Otate nomama wovagara kuna kara noyirugana.
 
 ##
-Yilye nani resera?Tani liresere nyamwange.
+Yilye nani resera? Kuvhura ni liresere nyamwange!
 
 ##
 * License: [CC-BY]

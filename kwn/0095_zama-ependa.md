@@ -1,40 +1,40 @@
 # Zama Ependa!
 
 ##
-Mumbyoge gona gomumati kuna hulilire kurara. Ame kulihova kupinduka, morwa ame ependa!
+Mumbyangegona gomumati kuhulilira kurara. Ame kulivinduka kupinduka, morwa ame ependa!
 
 ##
-Ame nyame ani zoto kezuva.
+Ame nyame ani tokesa ezuva.
 
 ##
-"Ove ntunguru zange," ana kuuyunga Ma.
+"Ove mbungururu zange zongurangura," yige Ma.
 
 ##
-Ame kulikuhwa nkenye ezuva, kapi ani pumbwa ekwafo.
+Ame kulikuhwa nyamwange, kapi ani pumbwa nkenye ekwafo.
 
 ##
-Kapi na kara noudigu womema gomatenda, ndi mfewa zosinauguru ezi atu kuhwisa yikoverero.
+Kapi na kara noudigu womema gomatenda ndi mfewa zosidumba zosineguru.
 
 ##
-Ma ta diworokesange asi, "Wa ha divara mazego goge." Ame kumu limburura asi, "Narumwesi, ntudi kapisi nyame!"
+Onane tava diworokesa nge asi, "Wa ha divara mazego." Tani limburura, "Narumwesi, ntudi kapisi nyame!"
 
 ##
-Konyima zelikuho, ame kulikunda noMama noNanegona. Nokuva harera ezuva lyewa.
+Konyima zokulikuhwa, tani likundu nomama wovagara nonanegona, nokuvaharera ezuva lyewa.
 
 ##
-Makura tani dwara nyamwange. "Amen a kuru nye ngesi, Ma," yimo ana va tantere.
+Makura tani dwara nyamwange, "Ame nina kuru nye ngesi Nane," yimo nina va tantere.
 
 ##
 Ame kuvhura kupata nombandi nokumanga nonkaku dange.
 
 ##
-Na yi diva nawanawa asi mumbyange gomumati ga diva nombudi nadinye do sure.
+Ame kuhetekera ko asi mumbyange gomumati a dive nombudi nadinye dokosure.
 
 ##
-Monkondwarongero ame nkenye kurugana papa na hulira.
+Monkondwa ame kurugana moomu na vhulira.
 
 ##
-Ame kurugana yininke nayinye nkenye ezuva. Nye sininke na hara unene, sokudana nokudanauka!
+Nkenye ezuva ame kurugana yininke nayinye yoyiwa. Nye sininke na hara po unene, sokudanauka-danauka!
 
 ##
 * License: [CC-BY]

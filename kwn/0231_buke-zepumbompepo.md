@@ -1,4 +1,4 @@
-# Buke zopumbompepo
+# Buke zepumbompepo
 
 ##
 Kuna kukuta.
@@ -7,7 +7,7 @@ Kuna kukuta.
 Ezuva upyu unene.
 
 ##
-Mpepo kuna ku pepa.
+Mpepo kuna kupepa.
 
 ##
 Muremo guna kara ko.
@@ -22,7 +22,7 @@ Mvhura kuna kuroka.
 Nombadi dina kara ko.
 
 ##
-Ame tani mona ekongoro.
+Ame tani mono ekongoro.
 
 ##
 * License: [CC-BY-NC]

@@ -4,16 +4,16 @@
 Tara, mundiro!
 
 ##
-Mundiro Kuna ku pya.
+Mundiro kuna kupya.
 
 ##
 Mundiro gokuterekera.
 
 ##
-Mundiro Kuna kugava upyu.
+Mundiro kuna kugava upyu.
 
 ##
-Mundiro Kuna kugava uzera.
+Mundiro kuna kugava uzera.
 
 ##
 Tara, mundiro!

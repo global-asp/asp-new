@@ -1,28 +1,28 @@
-# Sikombo, Simbwa ntani Ngombe
+# Sikombo, Simbwa noNgombe
 
 ##
-Sikombo, Simbwa ntani Ngombe kwa kere noukwawo wounene.Ezuva limwe kwakere norugendo omu va rondere metuwa.
+Sikombo, Simbwa ntani Ngombe kwa kere noukwawo wounene. Ezuva limwe kwa kere norugendo rwemetuwa.
 
 ##
-Apa vakasikire oku vatembe, musingi kwa va pulire mfuto zawo.Ngombe yipo zafutire mfuto zazo.
+Apa va ka sikire oku va tembe, musingi kwa va pulire mfuto zawo. Ngombe yipo za futire mfuto zazo.
 
 ##
-Simbwa yipo safutire mfuto zonzi, morwa kudira kukara noyimaliwa yoku vyukulira.
+Simbwa yipo sa futire mfuto zokupitakanena, morwa kudira kukara noyimaliwa yokugwanena.
 
 ##
-Musingi kwa here kugava tjindji zo Simbwa, nye Sikombo tasi duka mo metuwa sahana kugava mfuto zaso.
+Musingi kwa here kugava tjindji zoSimbwa, nye Sikombo tasi duka mo metuwa sa ha na kugava mfuto zaso.
 
 ##
-Musingi kwa handukire.Yipo ga singire gahana kugava tjindji zoSimbwa.
+Musingi kwa handukire. Yipo ga singire a ka ze ga ha na kugava tjindji zoSimbwa.
 
 ##
-Yiyo nye yakarera asi nampili ngesi Simbwa kudukira ketuwa sinokere monda mokupapara musingi ogu gakara notjindji zaso.
+Yiyo nye ya karera asi nampili ngesi Simbwa kudukira ketuwa si nokere monda mokupapara musingi ogu ga kara notjindji zaso.
 
 ##
-Sikombo kuduka nsene tasi zuvhu muhagaro getuwa, sakara noutjirwe asi tava sikwata morwa kapi safutire mfuto zaso ketuwa.
+Sikombo kuduka nsene tasi zuvhu muhagaro getuwa. Sina kara noutjirwe asi tava si kwata, morwa kapi sa futire mfuto zaso ketuwa.
 
 ##
-Ngombe kapi azi kara nosinka nampili etuwa kuna kuwiza.Azo kutaguruka sitaura nosiruwo sazo morwa azo za futire mfuto zazo.
+Ngombe kapi azi kara nosinka nsene etuwa kuna kuwiza. Azo kutaguruka sitaura nosiruwo sazo, morwa azo za futire mfuto zazo mokuzulilira.
 
 ##
 * License: [CC-BY]

@@ -4,13 +4,13 @@
 Tuwoko tuvali totununu tokukwatesa.
 
 ##
-Maguru gavali gomanunu goku sangesa.
+Maguru gavali gomanunu gokusangesa.
 
 ##
-Menho gavali gomanunu gokumonesa.
+Meho gavali gomanunu gokumonesa.
 
 ##
-Matwi gavali gomanunu goku monesa.
+Matwi gavali gomanunu gokuzuvhisa.
 
 ##
 Ntani mawoko gavali geharo gokulidingilisa.

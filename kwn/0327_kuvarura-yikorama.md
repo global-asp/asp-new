@@ -1,4 +1,4 @@
-# Yikoramavaruro
+# Kuvarura yikorama
 
 ##
 Nzovhu gumwe kuna ka nwa mema.
@@ -7,16 +7,16 @@ Nzovhu gumwe kuna ka nwa mema.
 Nombahe mbali kuna kuza di ka nwe mema.
 
 ##
-Nonyatji ntatu noyidira yine nayo kuna kuza yika nwe mema.
+Nonyatji ntatu noyidira yine nayo kuna kuza yi ka nwe mema.
 
 ##
-Nohonge ntano noyinguruve hamboumwe kuna kugenda yina vuyuka komema.
+Nohonge ntano noyinguruve ntazimwe kuna kugenda yina yuka komema.
 
 ##
-Yivaradi hambombali kuna kudukira komema.
+Yivaradi ntambali kuna kudukira komema.
 
 ##
-Mangowowo hambondatu nonomfi mugoyi kuna kuzoga momema.
+Mankowowo ntantatu nonomfi ntane kuna kuzoga momema.
 
 ##
 Nyime gumwe kuna kuura. Nage ana hara kunwa. Yilye ogu ga tjira nyime?

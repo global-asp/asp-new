@@ -1,46 +1,46 @@
-# Nyime nosihuro somundiro
+# Nyime noyiuro yomundiro
 
 ##
-Eli esanseko kwa varekere moyiruwo yanare ayo yikorama novantu kuna tungu kumwe. Ruveze rwina vantu kapi vakere nounankondo womundiro. Ngava li nondja dawo ado nombihu. Nyime gelike ga kere nonkodo domundiro.
+Eli esanseko kwa varekere moyiruwo yanare ayo yikorama novantu kuna tungu kumwe. Ruveze rwina vantu kapi va kere nounankondo womundiro. Ngava li nondya dawo ado nombihu. Nyime gelike ga kere nononkondo domundiro.
 
 ##
-Vantu noyikorama yipo va wizire kumwe va ture po egano. "Yinke natu vhura ku rugana yipo to gwane mundiro ogu guna kara kwa nyime yipo tu terekese ko nondja." Yimo va pulire. Tava tokora kundindira dogoro ngurova yipo va varekere kudimba nokudimba, kusakerera noku sakerera tava lizigida navenye vaya ponge. "Wizeni muya dane nose. Wizeni muya dane nose. Wzeni muya dane nose."
+Vantu noyikorama yipo va wizire kumwe va ture po egano. "Yinke natu vhura kurugana yipo tu gwane mundiro ogu guna kara kwanyime yipo tu terekese ko nondya." Yimo va pulire. Tava tokora kundindira dogoro ngurova yipo va varekere kudimba nokudimba, kusakerera nokusakerera tava lizigida navenye va ya ponge. " Wizeni mu ya dane nose. Wizeni mu ya dane nose. Wzeni mu ya dane nose."
 
 ##
-Yikorama yoyinzi tayi tundu moyinhwa yiya lipakerere moku dana noku dimba. Nyime ta reta yiuro yendi yomundiro. Ta digi noku diga. Karuwogona mokaruwogona kamusi taka tameke kututumuka konhi zoyihuro. Nyime tafuda komusi noku tura ko yiwayi time yoyi kukutu. Kamundirogona taka moneka makura nkenye gumwe ta reta sitare. Konyima zoka ruwogona navenye tava likundurukida komundiro va dane.
+Yikorama yoyinzi tayi tundu moyihwa yi ya lipakerere moku dana nokudimba. Nyime ta reta yiuro yendi yomundiro. Ta digi oku ta digi. Mokaruwogona kamusi taka tameke kututumuka konhi zoyiuro. Nyime ta fuda komusi nokutura ko yiwayi yimwe yoyikukutu. Kamundirogona taka moneka, makura nkenye gumwe ta reta sitare. Konyima zokaruwogona navenye tava likundurukida komundiro va dane.
 
 ##
-Ndimba kwa kere noyineya age henna sikorama soku genderera. Vantu tava mu tantere, "Siruwo esi tuna kudimba apa nyime age kuna ku dana nose, ove gusa yihuro yendi yomundiro makura o duke." Ndima nage sili ta nyangura yihuro yanyime yomundiro ta duka. Kapi ga yisikisire mo morwa nyime gamu kwete makura taka tengwida mundiro.
+Ndimba kwa kere noyineya age hena sikorama sokugenderera. Vantu tava mu tantere, "Siruwo esi tuna kudimba apa nyime age kuna kudana nose, ove gusa yiuro yendi yomundiro makura o duke." Ndimba nage sili ta nyangura yiuro yanyime yomundiro ta duka. Kapi ga yi sikisire mo, morwa nyime ga mu kwete makura ta ka tengwida mundiro.
 
 ##
-Nyime kwa dimbire rusumo rikulikanganga. "Kwange ame kwato sikwafa. Ame kutupu udigu. Kuvhura niku lye nonohuki, kuvhura niku lye wahana nohuki. Kapi na kara noudigu. One namuvenye nondja dange."
+Nyime kwa dimbire rusumo rokulikanganga. "Kwange ame kwato sikwafa. Ame kutupu udigu. Kuvhura ni ku lye nonohuki, kuvhura ni ku lye wa ha na nohuki. Kapi na kara noudigu. One namuvenye nondya dange.
 
 ##
-Mbambi kuvhura ku duka noku vatuka unene. Vantu tava zi tantere asi, "Siruwo esi nyime ana ku dana noku dimba kumwe nose, wa kona nu nyangura yihuro yendi yomundiro makura o duke."
+Mbambi kuvhura ku duka nokuvatuka unene. Vantu tava zi va mu tantere asi, "Siruwo esi nyime ana ku dana noku dimba kumwe nose, wa kona kunyangura yiuro yendi yomundiro makura o duke."
 
 ##
-Apa va dene noku dimba, Mbambi ta nyangura yihuro yomundiro makura ta nyorauka aka hwilire mepya. Nye nyime ta uyunga asi, "Morwasinke nina ku pira ku zuvha putuku- putuku zoma kondo ga Mbambi monyima zange?"
+Apa va dene nokudimba, Mbambi ta nyangura yiuro yomundiro, makura ta nyorauka a ka hwilire mepya. Nye nyime ta uyunga asi, "Morwasinke nina kupira kuzuvha putuku- putuku zomakondo gaMbambi monyima zange?"
 
 ##
-Nyime ta setuka ta mono Mbambi kuna kuka dukira mepya noyihuro yendi yomundiro. Simpe hena, Nyime ta dimbi rusumo rwendi rokuli kanganga.
+Nyime ta setuka ta mono Mbambi kuna ku ka dukira mepya noyiuro yendi yomundiro. Simpe hena, Nyime ta dimbi rusumo rwendi roku li kanganga.
 
 ##
-Kutunda opo vantu tava liwowotere asi, tava uyunga asi, "Tupureni Mpunza age mununu ntani ku genderera." "Mpunza" Tava uyunga, "Siruwo esi ana ku dana noku dimba Nyime kumwe nose, wa kona kunyangura yihuro yendi yomundiro makura o duke o ze."
+Kutunda opo vantu tava liwowotere asi, tava uyunga asi, "Tu pureni Mpunza age mununu ntani kugenderera. "Mpunza" Tava uyunga, "Siruwo esi ana kudana nokudimba Nyime kumwe nose, wa kona kunyangura yiuro yendi yomundiro makura o duke o ze."
 
 ##
-Apa va dene kuli kunduruka mundiro, Mpunza ta nyangura yihuro yanyime yomundiro noku dukira mepya. Nye Nyime ta tanta asi, "Yisinke nina ku dira kuzuvha Mpunza ana ku gona nokugonagera konyima zange ngwendi muhowo?" Ta piruka ta ka tjida monyima za Mpunza gomununu ogu ga ka pundaukilire mepya. Nyime taka mu kwata taka tengura komundiro noyi huro yendi.
+Apa va dene kulikunduruka mundiro, Mpunza ta nyangura yiuro yanyime yomundiro noku dukira mepya. Nye Nyime ta tanta asi, "Yisinke nina ku dira kuzuvha Mpunza ana kugona nokugonagera konyima zange ngwendi muhowo?" Ta piruka ta ka tjida monyima zaMpunza gomununu ogu ga ka pundaukilire mepya. Nyime ta ka mu kwata ta ka tengura komundiro noyiuro yendi.
 
 ##
-Ngosikwawo henna Nyime ta dimbi rusumo rwendi romalikangango. "Kwange kwato sinka. Kapi nina kara noudigu. Kuvhura niku lye nonohuki. Kuvhura niku lye wahana nohuki. Kapi nakara noudigu. One namuvenye nondja dange."
+Ngosikwawo hena Nyime ta dimbi rusumo rwendi romalikangango. "Kwange kwato sinka. Kapi nina kara noudigu. Kuvhura ni ku lye nonohuki. Kuvhura ni ku lye wa ha na nohuki. Kapi na kara noudigu. One namuvenye nondya dange."
 
 ##
-"Oh," Tava ka gu reta mo vantu, "Sikorama musinke nasi tuvatera ngesi? Mpo yizo za kara nomaguru gomare kwa navenye, tumu pureni." Tava fatwilire Mpo egano makura posiruwo esi ta nyangura yihuro yaNyime yomundiro.
+"Oh," Tava ka gu reta mo vantu, “Sikorama musinke nasi tu vatera ngesi? Mpo yizo za kara nomaguru gomare kwa navenye, tu mu pureni." Ta va fwatwilire Mpo egano, makura posiruwo esi ta nyangura yiuro yaNyime yomundiro.
 
 ##
-Nyime ta uyunga asi, "Morwasinke nina kupira ku zuvha ewi lyoMpo lyokuzigira monyima zange hena?" t tara-tara, ta mono Mpo makura tamu tjida.
+Nyime ta uyunga asi, "Morwasinke nina kupira kuzuvha ezwi lyoMpo lyokuzigira monyima zange hena?" ta tara-tara, ta mono Mpo makura ta mu tjida.
 
 ##
-Konyima zosiruwo sosire, Nyime taka tengura nosipara seroroko, morwa Mpo kwa dukire unene kupi age. "Kutunda ezuva lyalyanaina," yimo ga huyungire "Kapi ngani siga nkenye gumwe gweni ngani ku tjikda nika ku lye po!" Ngesi yimo ga genda nNyime a kare nkore za nkenye gumwe ntani vantu nawo yimo va gwene nonkondo do domundiro.
+Konyima zosiruwo sosire, Nyime ta ka tengura nosipara seroroko, morwa Mpo kwa dukire unene kupita age. "Kutunda ezuva lyanaina," yimo ga uyungire, "Kapi ngani siga nkenye gumwe gweni, ngani ku tjida ni ka ku lye po!" Ngesi yimo ga genda Nyime a kare nkore zankenye gumwe ntani vantu nawo yimo va gwene nonkondo domundiro.
 
 ##
 * License: [CC-BY]

@@ -4,25 +4,25 @@
 Ezi hema nde.
 
 ##
-Ezi mbindja Nene.
+Ezi mbindja nene.
 
 ##
-Ezi ndjato Nene.
+Ezi ndjato nene.
 
 ##
-Oru rwiva oru...
+Oru liva oru...
 
 ##
-Eli embare enunu.
+Embare eli enunu.
 
 ##
-Eyi yikouse yisupi.
+Yikouse yisupi.
 
 ##
-Nye edi nonkaku nompe.
+Nye nonkaku edi nompe.
 
 ##
-... Ana gwaneke mo nawa.
+... ado kugwaneka nawa.
 
 ##
 * License: [CC-BY-NC]

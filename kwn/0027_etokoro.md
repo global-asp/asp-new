@@ -1,52 +1,52 @@
-# Matokoro
+# Etokoro
 
 ##
-Mukunda gwange Kuna kara nomaudigu gomanzi.ose kukara momukweyo gomure tu vhete mema kopomba zimwe tupu.
+Mukunda gwange kwa kere nomaudigu gomanzi. Ose kukara momukweyo gomure pokuvheta mema kopomba zimwe tupu.
 
 ##
-Ose Kwa ndindilire nondya edi va gavere vantu peke.
+Ose kwa ndindilire nondya edi va geve wopeke.
 
 ##
-Ose Kwa patere mambo getu, morwa vawidi.
+Ose kwa pete mambo getu, morwa vawidi.
 
 ##
-Vanona wovanzi Kwa tundire Mosure.
+Vanona wovanzi kwa tundire mo mosure.
 
 ##
-Vakadona gona Kwa kere varugani monomukunda peke.
+Vakadonagona kwa kere varugani womomambo monomukunda peke.
 
 ##
-Vamatigona ngava gendagura momukunda, siruwo oso vakwaawo awo Kuna kurugana konofarama dovantu.
+Vamatigona ngava gendagura monomukunda, siruwo oso vamwe awo kuna kurugana konofarama dovantu.
 
 ##
-Apa za pepere mpepo, yipepa yokuzonauka tayi kakatre koyitji nokondarate.
+Apa za pepere mpepo, yipepa kwa hagamenene koyitji nokonodarate.
 
 ##
-Vantu Kwa va tetagwire makende ogo va zugumangere.
+Vantu kwa va remekere makende aga va zugumangere mwangoso.
 
 ##
-Ezuval limwe kopomba kapi Kwa kere mema ntani moyipako namo si mwato.
+Ano ezuva limwe kopomba kapi kwa kere mema ntani moyipako namo si mwato.
 
 ##
-Otate Kwa gendagwire tunda embo zende embo va tantere vantu va ka kare posigongi somukunda.
+Otate kwa gendere tunda embo zende embo va tantere vantu va ka kare posigongi somukunda.
 
 ##
-Vantu kwa pongere mositji sosinene va purakene.
+Vantu kwa pongere monda zositji sosinene va purakene.
 
 ##
-Otate Kwa sikeme, "Noku Tanta asi twa hepa kurugana kumwe yipo tu guse po udigu.
+Otate kwa sikeme nokutanta asi, "Twa hepa kuruganena kumwe yipo tu kohonone po maudigu getu."
 
 ##
-Mukurupe gonomvhura norontantatu Juma Kwa hingilire komutayi gositji noku zigira, "Asi kuvhura ni mu vatere mokuzeresa."
+Musesugona gonomvhura ntantatu Juma, ga hingilire kegogwa ta zigire, "Ame kuvhura kuvatera mokuzeresa."
 
 ##
-Mukadi gumwe, kwa uyungire ngesi, "kuvhura mu ya kwafe nge mokukuna mbuto."
+Mukadi gumwe kwa uyungire asi, "Vagolikadi kuvhura ku ya lipakerera name mokulima."
 
 ##
-Mugara gumwe Kwa sikeme, Noku tanta asi vagara nava sima etope.
+Mugara gumwe kwa sikeme nokutanta asi," Vagara ngava sima etope."
 
 ##
-Natuvenye Kwa zigilire nezwi limwe, "Twa hepa kutjindja maparu getu kutunda ezuva eli twa hepa kurugana kumwe yipo tu guse po maudigu getu.
+Natuvenye kwa zigilire nezwi limwe, "Tuna hepa kutjindja maparu getu." Kutunda ezuva olyo ose kwa ruganena kumwe yipo tu kohonone po maudigu getu.
 
 ##
 * License: [CC-BY]

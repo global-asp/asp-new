@@ -1,37 +1,37 @@
-# Mugara gomure.
+# Mugara gomure unene
 
 ##
-Etemo lyendi kwa kere lyesupi.
+Etemo lyendi kwa kere lyesupi-supi.
 
 ##
-Evero lyendi esupi lyakere.
+Nzira zevero lyendi kwa kere pevhuuvhu.
 
 ##
-Mbete zendi nsupi za kere.
+Mbete zendi nsupi unene za kere.
 
 ##
-Mbasikora zendi nsupi.
+Mbasikora zendi nsupi unene za kere.
 
 ##
-Mugara ogu kwa kere gomure.
+Mugara ogu kwa kere gomure unene.
 
 ##
-Mugara kwa pangera mupini getemo gomure.
+Mugara kwa pangerere mupini getemo gomure unene.
 
 ##
-Mugara kwa pangera sikuravero sosire.
+Mugara kwa pangerere sikuruvarero sosire unene.
 
 ##
-Mugara kwa pangera mbete zonde.
+Mugara kwa pangerere mbete zonde unene.
 
 ##
-Mugara kwa rende mbasikora zonde.
+Mugara kwa rende mbasikora zonde unene.
 
 ##
-Age kwa hingilire posipundi sosire, yiyo ga lisire rutugo rononyara rorure.
+Age kwa hingilire posipundi sosire unene. Age kwa lisire rutugo rononyara rorure unene.
 
 ##
-Age kwa sigire embo lyendi aka tunge mowiza wounene, omu ga ka tungire nomvhura dononzi.
+Age kwa sigire embo lyendi a ka tunge momusitu gomunene. Age kwa ka tungire malima gomanzi.
 
 ##
 * License: [CC-BY]

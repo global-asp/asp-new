@@ -10,16 +10,16 @@ Age kuna kuviragura kuwoko.
 Ame kuna kusakerera.
 
 ##
-Age kuna kuligonona.
+Mukadi kuna kuligonona.
 
 ##
-Age kuna kuzigida.
+Mugara kuna kuzigida.
 
 ##
 Ame kuna kulimburura.
 
 ##
-Age kuna kupurakena.
+Mukadi kuna kupurakena.
 
 ##
 Yisinke ono kurugana?

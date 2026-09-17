@@ -1,25 +1,25 @@
 # Nohuki
 
 ##
-Thuli Kwa kara nonohuki dononsupi.
+Thuli kwa kara nonohuki dononsupi.
 
 ##
-Anna Kwa kara nonohuki dononde.
+Anna kwa kara nonohuki dononde.
 
 ##
-Cathy Kwa kara nonohuki dononde unene.
+Cathy kwa kara nonohuki dononde unene.
 
 ##
 Zama ana takere nohuki dendi.
 
 ##
-Baba Kwa kara nononzwedu.
+Baba kwa kara nononzwedu.
 
 ##
 Zanele ana fufura nohuki dendi.
 
 ##
-Thabo ana Tete nohuki dendi.
+Thabo ana tete nohuki dendi.
 
 ##
 Themba ana kurura nohuki dendi.

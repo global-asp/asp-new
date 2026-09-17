@@ -10,16 +10,16 @@ Kuna kara nye monda zombete?
 Kuna kara nye peguru lyosikopa?
 
 ##
-Kuna kara nye konyima zetjofa?
+Kuna kara nye konyima zosipundi?
 
 ##
-Kuna kara nye pepi yegarona?
+Kuna kara nye pepi nendoromani lyoyihando?
 
 ##
-Kuna kara nye monda zosimbamba?
+Kuna kara nye monda zosikumba?
 
 ##
-Kuna kara nye ponze zonzugo?
+Kuna kara nye ponze zembo?
 
 ##
 Sesi apa.

@@ -1,28 +1,28 @@
-# Tara koyi korama
+# Tara koyikorama
 
 ##
-Tara koyi korama.
+Tara koyikorama.
 
 ##
-Ndidi ta zi kumbu asi, "Boonh".
+Ngombe tazi kumbu asi, "Moo!"
 
 ##
-Sikombo tasi kumbu asi, "Buku meeh".
+Sikombo tasi kumbu asi, "Mee, mee!"
 
 ##
-Nkambe tazi lilikida asi, lili lili.
+Nkambe tazi lilikida.
 
 ##
-Singuru tasi gono asi, "Nkorr, nkorr".
+Singuru tasi gono asi, "Nkorr, nkorr!"
 
 ##
-Nhunhwa tazi kerekeka asi, "Kerekekee".
+Nhunhwa tazi kerekeka asi, "Kerekeke!"
 
 ##
-Mbwa tazihuda asi, "Nhaaw".
+Mbwa tazi huda asi, "Hau!"
 
 ##
-Munafara ta hingi asi "Shhh".
+Munafarama ta yingi asi "Sh!"
 
 ##
 * License: [CC-BY-NC]

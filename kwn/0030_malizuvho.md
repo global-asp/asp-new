@@ -1,19 +1,19 @@
 # Malizuvho
 
 ##
-Mutjima gwange ku kara nomalizuvho gomanzi.
+Mutjima gwange kukara nomalizuvho gomanzi.
 
 ##
-Ame kulizuvha ruhafo nsene omama kuna ku tu simwitira ngurova mansanseko.
+Ame kulizuvha ruhafo nsene omama kuna kutusimwitira mansanseko kongurova.
 
 ##
-Ame kulizuvha nomuga nsene tani danauka novakwetu.
+Ame kulizuvha nomuga nsene tani dana namukwetu.
 
 ##
-Ame kulizuvha udona apa ava uyunga otate asi awo kapi vanakara noyimaliwa.
+Ame kulizuvha udona-dona apa ava uyunga otate asi awo kapi vana kara noyimaliwa.
 
 ##
-Ame kulizuvha eharo apa ava lidingire nge onane.
+Ame kulizuvha asi kwa hara nge apa ava lidingire nge onane.
 
 ##
 * License: [CC-BY-NC]
