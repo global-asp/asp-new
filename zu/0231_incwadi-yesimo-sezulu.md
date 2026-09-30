@@ -1,32 +1,32 @@
 # Incwadi yesimo sezulu
 
 ##
-Komile
+Kuyomile.
 
 ##
-Ilanga liyashisa
+iLanga liya shisa.
 
 ##
-Kunomoya
+Kunomoya.
 
 ##
-Liguqubele
+Linamafu.
 
 ##
-Kuyabanda
+Kuyabanda.
 
 ##
-Liyana
+Kuyanetha.
 
 ##
-Kukhona ukuduma kwezulu
+Kuyaduma.
 
 ##
-Ngibona uthingo
+Ngibona uthingo.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Fikile Simelane
+* Translation: Lekalakala Koketso
 * Language: zu
