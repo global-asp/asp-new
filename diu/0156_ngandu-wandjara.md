@@ -1,7 +1,7 @@
 # Ngandu wandjara
 
 ##
-Kwalire ngandu wandjara.
+Kwakalire ngandu wandjara.
 
 ##
 A shana ndya kadidi-kadidi ntani mushiporepore. Makura...
@@ -10,7 +10,7 @@ A shana ndya kadidi-kadidi ntani mushiporepore. Makura...
 Pwaaa!!! Ngandu nko kuhomoka!
 
 ##
-Mauruku rwavino kapi nka ana kara nandjara, ana hafa ngoli.
+Muruku rwavino kapi nka ana kara nandjara, ana hafa ngoli.
 
 ##
 Dogoro yi mu kwate nka ndjara.

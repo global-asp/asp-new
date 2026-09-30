@@ -19,7 +19,7 @@ Vivaradi ntambiri kuna kudukira kumema.
 Mankovovo ntantatu na ntjwi ntane kuna kushana mumema.
 
 ##
-Nyime unwe kununga. Ana shana kunwa. Are a tjiro nyime?
+Nyime umwe kununga. Ana shana kunwa. Are a tjiro nyime?
 
 ##
 Ndjovhu umwe kuna kunwa mema kumwe nanyime.

@@ -16,7 +16,7 @@ Ame kukukusha naghumwande, kapi na pumbwa kehe yino mbatero.
 Kapi natjira mema ghamatenda ntani namurora washinaliwiru wakunuka.
 
 ##
-Nnaa kwa mvhurukitanga ashi, "Washa vhurama mayegho." Ame kulimburura ashi, " Narumwe shi kuvhurama, nkwandi kapishi me!"
+Nnaa kwa mvhurukitanga ashi, "Washa vhurama mayegho." Ame kulimburura ashi, "Narumwe shi kuvhurama, nkwandi kapishi me!"
 
 ##
 Pakumana kukukusha, ame kumorora mamarume ntani nananeghona, na kuvashwera liyuva lyaliwa.
@@ -34,7 +34,7 @@ Ntani ame kukara nashinka ashi muunyande wamumati ana hepa kuyuvha mbudi nadintj
 Munkondarongero ame kurughana nawa mwanavintje.
 
 ##
-Ame kurughana navintje vino vyaviwa kehe liyuva. Ngoli osho na hora po unene ne, kudanuka nakudanauka!
+Ame kurughana navintje vino vyaviwa kehe liyuva. Ngoli osho na hora po unene ne, kudanauka nakudanauka!
 
 ##
 * License: [CC-BY]

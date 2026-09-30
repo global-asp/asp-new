@@ -1,4 +1,4 @@
-# Tom namughuliti wabanana
+# Tom mughuliti wabanana
 
 ##
 Tom kushimba shikumba shabanana dakupya.
@@ -7,7 +7,7 @@ Tom kushimba shikumba shabanana dakupya.
 Tom kuyenda kulivango lyakughulitira aka ghulite banana.
 
 ##
-Vantu kulivango lyakughulita kuna kughura nyango.
+Vantu kulivango lyakughulitira kuna kughura nyango.
 
 ##
 Ene ngoli naumweshi ana kughuro banana da Tom. Kwahora kughura nyango kuvakamali.
@@ -16,7 +16,7 @@ Ene ngoli naumweshi ana kughuro banana da Tom. Kwahora kughura nyango kuvakamali
 "Munkarapamwe yetu, vakamali vaghulitango nyango," mo vana kughamba vantu. Mukafumu munke uno?" Vana kupura vantu.
 
 ##
-Ene ngoli Tom kapi ana kukutapa. Ana kuyiyira, Ghure nu banana dande! "Ghure nu banana dande dakupya daditovali"
+Ene ngoli Tom kapi ana kukutapa. Kuna kuyiyira, “Ghure nu banana dande! Ghure nu banana dande dakupya daditovali!"
 
 ##
 Mukamali umwe nko kudamuna po banana dimwe pashikumba. Nko kudikengurura banana.

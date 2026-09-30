@@ -16,7 +16,7 @@ Khalai pakupita dimucuko damuwiya. "Na kanderere mucuko, yungumuka nakumpayima v
 Kushure, Khalai kughambaura nashitondo shapakatji kalivango. "Na kanderere shitondo, kulita divutavi dadinene mposhi tu varwirange mumundulye ghoye."
 
 ##
-Khalai kughamana na navishwa vyakundurukido shure yendi. "Na kanderere vishwa kurenu nankondo mposhi papire yakupira vantu vavadona."
+Khalai kughamana navishwa vyakundurukido shure yendi. "Na kanderere vishwa kurenu nankondo mposhi papire kukara mpito ya vantu vavadona."
 
 ##
 Khalai pakavyuka kumundi, kudingura shitondo shauguni. "Maguni ghoye ana pi ndi?" Ana kupura Khalai.

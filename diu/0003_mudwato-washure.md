@@ -22,7 +22,7 @@ Vikouse vifupi.
 Ene ngoli nkaku dino ne dipe.
 
 ##
-..... kugwaneko nawa.
+... kugwaneka mo nawa.
 
 ##
 * License: [CC-BY-NC]

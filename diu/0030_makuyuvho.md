@@ -1,4 +1,4 @@
-# Likuyuvho
+# Makuyuvho
 
 ##
 Mutjima wande kuyuvha vininke vyavingi.

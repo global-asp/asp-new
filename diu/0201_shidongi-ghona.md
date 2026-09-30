@@ -1,16 +1,16 @@
 # Shidongi ghona
 
 ##
-Mukadona ghona ndje a hoviro kukenga rupe rwarutu rwande rwa kutetukita mukantanndo kangandi.
+Mukadona ghona ndje a hoviro kukenga rupe rwarutu rwande rwa kutetukita mukantando kangandi.
 
 ##
 Apa runa kushenya rutu pepi, makura a kenge ashi nani mukamali wamarutu maviri walipumba lyalinene.
 
 ##
-Ntjoni ngoli utjimantu, mukadona a shenya pepi-peni namukamali uno. "Tuna hepa kukara naye," Ava tokora vantu vakaliro namukadona. "Kutu va kunga naye namonendi."
+Ntjoni ngoli utjimantu, mukadona a shenye pepi-pepi namukamali uno. "Tuna hepa kukara naye," Ava tokora vantu vakaliro namukadona. "Kutu va kunga naye namonendi."
 
 ##
-Mukeke kara mundjira ana kara ya kumushampuruka. "Kukeme!" "Yitenu ngugho dendi!" "Mema!" "Kukemeeeee!!!"
+Mukeke kare mundjira ana kara ya kumushampuruka. "Kukeme!" "Yitenu ngugho dendi!" "Mema!" "Kukemeeeee!!!"
 
 ##
 Ngoli opo va kengire mukeke, kehe uno a vatuka avyuke munyima kushitetu. "Shidongi?"
@@ -28,7 +28,7 @@ Makura muruhulilira nko kuvitambura tupu ashi unya ndje monendi wamumati ntani u
 Oghunya mwanuke ndi kwa kalire tupu namutika umwe waudidi hasha ndi navintje vyawapire tupu. Ano ngoli shidongi ghona shino ashi kuru nakukura unene dogoro kapi nka ana kugwana mo mumughongo wavawina. Ntani kakondjanga ashi ndi akare yira muntu naye, ngoli kapi avhulire kunegheda nkalito yashiuntu. Vawina kehepano kava rorokanga kumwe nakukupakera shinka. Maruvede ghamwe kumupa viruwana ovyo vyawapero kurughana vikorama.
 
 ##
-Lipiyagano naugara aghu kungangere munda yamutjima waShidongi ghona. Kapi avhuranga kuruwana vino ntani kapi arughananga vinya. Kapi avhuranga kukara yira weno ntani kapi avhuranga kukara yira unya. Makura aya garapa shiri liyuva limwe a tanga vawina ava were palivhu.
+Lipiyagano naugara aghu kungangere munda yamutjima waShidongi ghona. Kapi avhuranga kuruwana vino ntani kapi arughananga vinya. Kapi avhuranga kukara yira weno ntani kapi avhuranga kukara yira unya. Makura aya garapa shiri, liyuva limwe a tanga vawina ava were palivhu.
 
 ##
 Shidongi makura ashi kufu ntjoni. Makura ashi tameke kuduka shikayende kwaure kuno shasho kuna kuduka unene.
@@ -58,7 +58,7 @@ Shidongi makura ashi yiva ashi vinke shiruwana.
 Shidongi ashi ka wana vawina, pantjavo okuno vavo vana guvu kuna kulira monavo. Makura ava kunwiki muruvede rwarure. Makura ava kushamberere nakukumamatera mavoko muntingo unene-nene.
 
 ##
-Shidongi ghona nanyokwa kwa kulire kumwe nakudimburura ndjira dakukushuva-shuva dakukuparukira papepi. Kadidi kadidi, navintje namandi ghaliro lyakukushuva-shuva ava vareke kuya tunga.
+Shidongi ghona nanyokwa kwa kulire kumwe nakudimburura ndjira dakukushuva-shuva dakukuparukira papepi. Kadidi kadidi, navintje namandi ghaliro ghakukushuva-shuva ava vareke kuya tunga.
 
 ##
 * License: [CC-BY]

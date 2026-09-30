@@ -4,7 +4,7 @@
 Kenga vikorama.
 
 ##
-Ngombe kukumba,"Moo."
+Ngombe kukumba, "Moo."
 
 ##
 Shipendje kukumba, "Meeh, meeh."
@@ -13,16 +13,16 @@ Shipendje kukumba, "Meeh, meeh."
 Kakambe kulilikida, "Riririri."
 
 ##
-Shinguru kughona,"Gruuuu."
+Shinguru kughona, "Gruuuu."
 
 ##
 Litende kukekekeda, "Krikekeke."
 
 ##
-Mbwa kughuda,"Huhuhu."
+Mbwa kughuda, "Huhuhu."
 
 ##
-Munafarama kughamba, "Shihh!"
+Munafarama kughamba, "Shi!"
 
 ##
 * License: [CC-BY-NC]

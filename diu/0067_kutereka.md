@@ -1,7 +1,7 @@
 # Kutereka
 
 ##
-Ame kuyura katofura.
+Ame kuyuhura katofura.
 
 ##
 Ame kutetaura likove.

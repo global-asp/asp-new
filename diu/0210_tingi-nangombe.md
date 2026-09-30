@@ -28,7 +28,7 @@ Vanyakulyakadi vendi ava muhoreke mumahako.
 Mukavita umwe amu lyata, ene ngoli uye teete.
 
 ##
-Opa vyakutulire, Tingi vananyakulyakadi vendi ana rupuka mo.
+Opa vyakutulire, Tingi vananyakulyakadi vendi ava rupuka mo.
 
 ##
 Ava kuvavayiki vayende mushipore-pore.

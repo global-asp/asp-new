@@ -10,7 +10,7 @@ Muyoyo wamaywi ghavo gha kunyanyuka kugha yuvhilira mumukunda nauntje. Ava yita 
 Maria ashanashana Ntwala. Ntwala kayowananga kehe Shundaha. "Ntwala! Ntwalee! Ntwalaaa! Ntwaloo!" a yitanga.
 
 ##
-Ntwala nko kuyiyilira kushelikunya yamukunda, "Ame uno ! Kuna kukutaterera. Vakadona navantje ava duka vaka muwane.
+Ntwala nko kuyiyilira kushelikunya yamukunda, "Ame uno! Kuna kukutaterera." Vakadona navantje ava duka vaka muwane.
 
 ##
 "Una kuwapayikiri kuyenda ghuka yowane namuntji?" ava pura Ntwala. "Nhii," ava yiyiri naruhafo okuno vavo vana kara nalihuguvaro ntani nko kuvatauka naruhafo rwarunene.
@@ -25,7 +25,7 @@ Kuntere yamukuro kwa kalire ko limutondo lyalinene lyaUge. Vakadona makura ava s
 "Na wana waunene po," a yiyiri Joyi. Makura atapa uge wendi kwaNtwala.
 
 ##
-"Kayendenu ngoli muka yowane," Ntwala atentere vanya vakadona. Navantje ava dukiri mumema, kukuyilira nakukutakuma pakuyuvha utenda wamema gha mumukuro waZambezi.
+"Kayendenu ngoli muka yowane," Ntwala atentere vanya vakadona. Navantje ava dukiri mumema, kukuyilira nakutakuma pakuyuvha utenda wamema gha mumukuro waZambezi.
 
 ##
 Ntwala uye a yimana kuntere yamema. A kengere ko vangandu. Ghuye a kengere vakadona vavakondi ko omo vana kurumbatana nakumbwitauka. A kengere nka vakadona vavanuke omo vana kurwafaura mema nakukushonga kushana.
@@ -34,7 +34,7 @@ Ntwala uye a yimana kuntere yamema. A kengere ko vangandu. Ghuye a kengere vakad
 "Ruvede rwa marumbatano," a yiyiri muruhura. "Yimanenu mumuyaro umwe." Makura a toghora uge waunene po. Nko kughu vhukumina mumema shinano shashire osho a vhulire kutika.
 
 ##
-"Mwe, viri, tatu. Yendenu!" a yiyiri. Vanuke ava dukiri mumema vashenene oko wa kalilire uge. Ntwala ava kengere.
+"Mwe, viri, tatu. Yendenu!" a yiyiri. Vanuke ava dukiri mumema vashanene oko wa kalilire uge. Ntwala ava kengere.
 
 ##
 "Ame wakuhova!" ava yiyiri vaMaria naChaze shikando shimwe. "Namuvantje muna karo vakuhova," ayiyiri kughamba Ntwala.
@@ -46,13 +46,13 @@ Ntwala uye a yimana kuntere yamema. A kengere ko vangandu. Ghuye a kengere vakad
 "Yimanenu nka mumutunda," ava tantere Ntwala. Makura a toghora uge nko kughu vhukumina mumema shinano shashire osho a vhulire kutika.
 
 ##
-"Mwe, viri, tatu. Yendenu!" a yiyiri. Vanuke ava dukiri mumema vashenene oko wa kalilire uge. Ntwala ava kengere.
+"Mwe, viri, tatu. Yendenu!" a yiyiri. Vanuke ava dukiri mumema vashanene oko wa kalilire uge. Ntwala ava kengere.
 
 ##
 "Ame wakutanga!" a yiyiri Chaze. Maria makura sheyeke kushana. "Chaze ndje ana keto marumbatano," aghamba Ntwala. "Ghuna ruwana nawa, Chaze. Tuyendenuko ngoli kumundi."
 
 ##
-Vanuke makura ava kanduka kumundi naNtwala. "Tu timwitire nka vitimwitira, Ntwala." ava mushungida. Vavo kwa holire kutegherera vitimwitira vyendi.
+Vanuke makura ava kanduka kumundi naNtwala. "Tu timwitire nka vitimwitira, Ntwala," ava mushungida. Vavo kwa holire kutegherera vitimwitira vyendi.
 
 ##
 Maria a kokava kunyima yaChaze makura amu tindiki aware palivhu. Chaze makura avareke kulira. "Kuva kakutoghona vawina vaChaze," Joyi a tentere Maria.
@@ -64,13 +64,13 @@ Maria a kokava kunyima yaChaze makura amu tindiki aware palivhu. Chaze makura av
 Ntwala nko kutantera vakadona navantje vakughungilikire kushungira murupe rwa liuta. "Vinke ana katutantera mukuronashure" ava pura. "Vidona vyakurwana. Vantu vakurwana vana hepa kuvapa matengekero," aghamba Nakamwu.
 
 ##
-"Maria ana hepa kutapa mbili," nko kughama Namasiku. "Chaze ana kona kumu dipura naye," aghamba Joyi. "Hawe, lipuko vya kudipura unyoye," A ghamba nka Ntwala.
+"Maria ana hepa kutapa mbili," nko kughamba Namasiku. "Chaze ana kona kumu dipura naye," aghamba Joyi. "Hawe, lipuko vya kudipura unyoye," A ghamba nka Ntwala.
 
 ##
 Ntwala nko kughamba weno ashi, "Ame omo na kughayara Maria ana hepa kuhupako kukuyowana Shundaha yakukwamako." Maria nko kulira marutjodi tupu ghana kupupa yira ruhandjo. "Ngu... ngu... ngupirepo Chaze. Ngupire po kovyo nakudipura. Kapi ngani dipura nka keheuno," a tapa mbili.
 
 ##
-"Na kughupiripo," aghamba Chaze makura amamatere maghoko ghendi Maria. "Name naMaria kutu yenda nove kumundi wenu." a ghamba Ntwala atentere Chaze. "Maria kwa ka tapa mbili nka kuvanyoko."
+"Na kughupiripo," aghamba Chaze makura amamatere maghoko ghendi Maria. "Name naMaria kutu yenda nove kumundi wenu," a ghamba Ntwala atentere Chaze. "Maria kwa ka tapa mbili nka kuvanyoko."
 
 ##
 Maria a tantere vawina vaChaze, "Ame kuna dipura Chaze mukondashi ndje ana keto marumbatano. Na kutapa mbili. Chaze ne muholi wande, vidona shiri ovyo na mudipura."

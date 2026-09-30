@@ -19,8 +19,7 @@ Ame kukwera mundjugho palivhu.
 Ame kukusha visha.
 
 ##
-Morwa nke na rughanenanga ngudu... ...
-muunyande uye ana kukarere kudana?
+Morwa nke na rughanenanga ngudu... ... muunyande uye ana kukarere kudana?
 
 ##
 * License: [CC-BY-NC]

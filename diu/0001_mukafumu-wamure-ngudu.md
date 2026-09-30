@@ -4,13 +4,13 @@
 Litemo lyendi kwa kalire lyalifupi ngudu.
 
 ##
-Mpito yalivero lyendi kwa kalire yayifupi ngudu.
+Mpito yalivero lyendi kwa kalire ya yi fupi ngudu.
 
 ##
-Mbete yendi kwa kalire yayifupi ngudu.
+Mbete yendi kwa kalire ya yi fupi ngudu.
 
 ##
-Mbashikora yendi kwa kalire yayifupi ngudu.
+Mbashikora yendi kwa kalire ya yi fupi ngudu.
 
 ##
 Mukafumu uno kwa kalire wamure ngudu!

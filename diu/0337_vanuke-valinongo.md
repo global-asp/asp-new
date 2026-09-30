@@ -10,10 +10,10 @@ Vavo kapi kava kurwanitanga. Vavo kava vateranga vakondi vavo mumundi na kumafuv
 Ngoli kapi vava pulitilire va yende pepi namundiro.
 
 ##
-Vavo kava rughananga viruwana vyavyo navintje matiku, mukondashi kwa va tendire nalinongo!
+Vavo kava rughananga virughana vyavyo navintje matiku, mukondashi kwa va tendire nalinongo!
 
 ##
-Ano ngoli umwe vavo vamati ka shananga kuyenda pandje pakantjenya.
+Ano ngoli umwe wavo vamati ka shananga kuyenda pandje pakantjenya.
 
 ##
 Liyuva limwe shihoro shakuyenda pandje ashi kontora. Vakuru vendi vavamati ava murondora...

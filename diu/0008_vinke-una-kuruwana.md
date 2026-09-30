@@ -1,4 +1,4 @@
-# Vinke ghuna kuruwana?
+# Vinke una kuruwana?
 
 ##
 Ame kuna kuyimba.
@@ -10,7 +10,7 @@ Ghuye kuna kuviraura livoko.
 Ame kuna kukanderera.
 
 ##
-Ghuye kuna kuhonyonona mavoko.
+Ghuye kuna kukughonyonona.
 
 ##
 Ghuye kuna kuyita.
@@ -22,7 +22,7 @@ Ame kuna kulimburura.
 Ghuye kuna kutegherera.
 
 ##
-Vinke ghuna kuruwana?
+Vinke una kuruwana?
 
 ##
 * License: [CC-BY]

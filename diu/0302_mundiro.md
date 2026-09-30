@@ -1,7 +1,7 @@
 # Mundiro
 
 ##
-Kenga,mundiro!
+Kenga, mundiro!
 
 ##
 Mundiro kushora.
@@ -16,7 +16,7 @@ Mundiro kutapa ghuyenyu.
 Mundiro kutapa shite.
 
 ##
-Kenga,mundiro!
+Kenga, mundiro!
 
 ##
 Mundiro ne uwa.
