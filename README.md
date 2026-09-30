@@ -38,6 +38,8 @@ luo | Dholuo
 mhw | Thimbukushu
 naq | Khoekhoe
 ng | Oshindonga
+nr | isiNdebele
+nso | Sepedi
 ny | Cinyanja
 old | Kichaga
 om | Oromo
@@ -45,14 +47,17 @@ pcm | Nigerian Pidgin
 rw | Kinyarwanda
 sg | Sango
 so | Somali
+ss | siSwati
 st | Sesotho
 suk | Sukuma
 sw | Kiswahili
 ti | Tigrinya
 tn | Setswana (South Africa)
-tn | Setswana (Namibia)
+tn-na | Setswana (Namibia)
 toi | ChiTonga
+ts | Tsonga
 tum | Tumbuka
+ve | Tshivenda
 xh | isiXhosa
 xog | Lusoga
 yo | Yoruba
